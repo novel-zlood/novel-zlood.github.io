@@ -4,7 +4,7 @@
 
 # Site
 title: Novel Translation
-subtitle: ''
+subtitle: 'Using GPT4 to translate webnovels. I created a python package to let you do your own translation with minimum knowledge of gpt4.'
 description: ''
 keywords:
 author: zlood
