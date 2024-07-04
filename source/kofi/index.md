@@ -7,4 +7,4 @@ Using GPT to translate novels.
 
 Help me recover cost of chapters and gpt4.
 
-<script type='text/javascript' src='https://storage.ko-fi.com/cdn/widget/Widget_2.js'></script><script type='text/javascript'>kofiwidget2.init('Support Me on Ko-fi', '#29abe0', 'F2F71005GO');kofiwidget2.draw();</script> 
+[<img src="/kofi/kofi_button_blue.png">](https://ko-fi.com/zlood)
