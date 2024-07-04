@@ -1,5 +1,5 @@
 ---
-title: ftmg
+title: For the Music Genius
 date: 2024-07-03 11:17:39
 ---
 
