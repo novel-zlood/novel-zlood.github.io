@@ -1,8 +1,9 @@
 ---
-title: For the Music Genius
+title: ftmg
 date: 2024-07-03 11:17:39
 ---
 
+# For the Music Genius
 
 ## Chapter list
 

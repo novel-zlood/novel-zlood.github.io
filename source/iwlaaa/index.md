@@ -1,8 +1,9 @@
 ---
-title: I Will Live as an Actor
+title: iwlaaa
 date: 2024-07-03 11:53:33
 ---
 
+# I Will Live as an Actor
 
 ## Chapter list
 
