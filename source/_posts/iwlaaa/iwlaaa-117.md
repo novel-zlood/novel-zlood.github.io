@@ -7,226 +7,218 @@ tags:
 
 The Beast-Man.
 
-This is a newly coined term that emerged after the historical drama "Yeonsan, The King's Secret" aired. Ironically, why did this term, which was only spotlighted years later, come into existence so quickly? It was none other than because of the Crown Prince's push-up scene. The sight of him gritting his teeth and fully immersing himself in exercise to prepare for any impending political schemes and assassinations was enough to stir the hearts of many women.
+This term emerged after the historical drama "Yeonsan, the King's Secret" aired. Ironically, what could have been a term highlighted years later was coined so quickly because of the crown prince's push-up scene. The scene depicted him working out intensely, preparing for potential schemes and assassinations. The sight of his muscles rippling through the early dawn light was enough to captivate many women's hearts.
 
-The sight of his splitting muscles in the rising dawn was more than enough to shake the hearts of many women.
+"That was insane. I've never seen back muscles rippling like that before. He's not even a bodybuilder, so how is that possible?"
 
-"Seriously, it was crazy. I've never seen someone's back muscles split like that. He's not even a bodybuilder, so how is that possible?"
+"Don't get me started. When he played the butcher Lee Gyeol, his arm veins popped out when he held the axe. I liked Lee Gyeol way more than Lee Yung. It's that rough, macho image. Should we get his autograph when he comes to class?"
 
-"Don't even get me started. When he played Baekjeong Yi-Kyul, the veins on his wrist popped out when he held the axe. I liked Yi-Kyul much more than Lee-Yung. It's that rough macho image. Should we wait a bit and ask for his autograph when he comes to class?"
+"Hey! If push-ups have enchanted you all so much, why not join the rugby team? You two would make perfect managers. What do you say? The recruitment period isn't over yet."
 
-"Hey! If push-ups captivate you all this much, why don't you join the rugby club? I think you two would make perfect managers. What do you think? The recruitment period is still open."
+"Oh, oppa, come on!"
 
-"Oh, come on, sunbae!"
+The classroom was already buzzing with talk about Yeong-guk. It was no surprise, given that "Yeonsan, the King's Secret" had ignited a historical drama craze in Korea. This was proof that a fusion historical drama, rather than a traditional one, captivated the public's discerning tastes.
 
-The lecture hall is already buzzing with talk about Yeongguk. It's no wonder since "Yeonsan, The King's Secret" caused a boom in historical dramas in South Korea. It was proof that the fusion historical drama, rather than a traditional one, had captured the picky tastes of the public.
+Kim Dong-jin, a third-year law student, grumbled as he returned to his seat.
 
-Kim Dongjin, a third-year law student, returns to his seat, grumbling.
+"Why does everyone hate the rugby team so much? Everyone's talking about 'beast men' these days. The real beast men are all in the rugby team, right, Jae-hee?"
 
-"Seriously, why do people hate the rugby club so much? These days, everyone talks about beast-men. The real beast-men are all in the rugby club! Right, Jaehee?"
+"I don't know. But why have you been in the rugby team since freshman year without joining any department clubs?"
 
-"I don't know, but why are you in the rugby club all the time since freshman year without joining any departmental clubs?"
+"Even if I joined a department club, all they'd talk about is the bar exam. It's obvious I'll have to study in Sillim-dong after graduation, so I need to find some romance during my college days. Besides, I never dreamed of passing the bar exam while still an undergrad."
 
-"Even if I join a departmental club, all they talk about is the bar exam. It's obvious that I'll have to go to Sillim-dong and study, so I need to find some romance during my university days. Besides, I don't even dream of passing the bar exam while I'm an undergrad."
+"You'll end up serving active duty in the military at this rate."
 
-"You're going to end up serving in the military, you know that?"
+"Wow, such harsh words. They say 'love your comrades, love your country,' but we're all doomed. If I get drafted, so be it. After graduation, I'll study in Sillim-dong, and if it doesn't work out, that's my fate. When you pass the bar exam and set up a law office, hire me. By the way, Jae-hee, aren't you interested in being a rugby team manager?"
 
-"Wow, that's harsh. They say comradeship is about loving your country, but we're all doomed. If I end up serving, then so be it. I'll study in Sillim-dong after graduation, and if it doesn't work out, that's my fate. Jaehee, when you pass the bar exam and open your law office, hire me. By the way, aren't you interested in managing the rugby club?"
+"No, I'm not. I'm the president of the academic society. I'm too busy with student council work to join a central club. Dong-jin, is your brain made of muscle too?"
 
-"Nope. I'm the president of the academic society. I'm too busy with student council work to join a central club. Dongjin, are you all muscle even in your brain?"
+It's the season when cherry blossoms are in full bloom. On the main street of Korea University, club recruitment is in full swing. While all the students are talking about blind dates and springtime youth, the law department has a different atmosphere. It's probably because the first-round results of the bar exam are about to be announced.
 
-It's the season when cherry blossoms are in full bloom. The central road of Korea University is already bustling with club recruitments.
+Shin Jae-hee, who also took the first round of the bar exam, has a lot on her mind. But what's most troubling her mind is one particular person.
 
-While the spring atmosphere makes all the students talk about blind dates and spring romances, the law department feels unusually tense. It's probably because the announcement of the first round of the bar exam results is approaching.
+"Oh, Yeong-guk is here!"
 
-Shin Jaehee, who also took the first round of the bar exam, can't help but have a complicated mind. But the most complicated thing in her mind is none other than a single person.
+'Oh, what a smooth talker.'
 
-"Oh, Yeongguk is here!"
+If someone were to pick Yeong-guk's closest friend in the department, it would undoubtedly be third-year Kim Dong-jin. With his physique, he would fit better in the PE department than in law. Dong-jin approached Yeong-guk and naturally put his arm around his shoulder.
 
-'Oh, that cheeky guy.'
+"Oh, beast man. Your back muscles are no joke!"
 
-If you had to pick the person closest to Jang Yeongguk in the department, it would undoubtedly be third-year Kim Dongjin. Judging by his appearance, he looks more like a physical education student than a law student. Dongjin approaches Yeongguk and casually puts his arm around his shoulder.
+"Oppa, why are you doing this again this morning?"
 
-"Oh, the beast-man. Your back muscles are no joke!"
+"Yeong-guk, why don't you join the rugby team? You definitely have the build for it. Just look at those sturdy thighs. Normally, you have to pass a test to join, but I'll put in a good word with the club president. What do you say?"
 
-"Ah, sunbae, why are you like this from the morning?"
+"No, thanks. And why do you keep dragging me around?"
 
-"Yeongguk, why don't you join the rugby club? No matter how I look at it, you have the build for rugby. Just look at those solid thighs. Usually, you need to pass a test to join, but I'll talk to the club president and get you in. Come on?"
+"Man, you can't just sit in the back every day and study. Where's the motivation in that? Just come with me and sit together from now on."
 
-"No, and why do you keep dragging me?"
+"Oppa, you're not asking because you need help with a problem, right?"
 
-"Man, how can you get motivated if you sit at the back and study alone every day? Stop talking and follow me. From today, sit with me."
+"Hehe, smart juniors sure catch on quick!"
 
-"Sunbae, you're not asking because you want help with questions, right?"
+Yeong-guk's legal knowledge was on par with, if not better than, other undergraduates. His detailed insights and future-oriented legal perspectives were so impressive that even professors gave him a thumbs up.
 
-"Hehe. Smart juniors are quick on the uptake!"
+Shin Jae-hee was startled to see Yeong-guk sitting next to her. She turned her head, afraid their eyes might meet. Noticing this, Dong-jin spoke without tact.
 
-It's no exaggeration to say that Jang Yeongguk's knowledge of law was on par with other undergraduates. His detailed perspective and foresight in legal matters were so impressive that professors gave him thumbs up.
+"Jae-hee, our beast man Yeong-guk is here. Say hi!"
 
-At that moment, Shin Jaehee is startled as she sees Yeongguk sitting next to her. She turns her head, afraid of making eye contact. Seeing this, Dongjin speaks up without noticing.
-
-"Jaehee, our beast-man Yeongguk is here. Say hello!"
-
-Geez, that guy.
+Ugh, that jerk.
 
 * * *
 
-A broad-shouldered figure walks through the campus where cherry blossoms are falling. The cherry blossom petals on his cardigan look like embroidery crafted by a master artisan.
+A broad-shouldered figure walked through the cherry blossom-filled campus. The cherry blossoms on his cardigan looked like intricate embroidery crafted by an artisan.
 
-Even though he wears a hat pulled down low, passersby can't help but glance at him.
+Even with a hat pulled low, passing students couldn't help but glance at him.
 
-At that moment, a young man waves his hand towards Cheongdam (the pond) located at the center of the university.
+At that moment, a young man waved towards the pond in the center of the campus.
 
-"Jeongseok hyung!"
+"Jung-seok hyung!"
 
-It's been a while since they've met, as both have been busy with their schedules. It was none other than Song Jeongseok, whom he had met years ago in Busan. Unlike before, he now appears on both TV and movie screens, but his appearance hasn't changed much.
+It had been a while since they last met due to their busy schedules. It was none other than Song Jung-seok, whom he had met years ago in Busan. Unlike before, he was now appearing on both TV and movie screens, but his appearance hadn't changed much.
 
-With a loose shirt, old jeans, and unkempt hair, anyone who didn't know him might mistake him for a student preparing for an exam rather than a celebrity.
+With a baggy shirt, old jeans, and untidy hair, anyone who didn't know better would think he was a bar exam student rather than a celebrity.
 
-"Why are you dressed like this when you make good money?"
+"Why do you dress like this when you make good money?"
 
-"Is it okay for you to nag me as soon as we meet after a long time? This is all for method acting, you know. I'm preparing for my next role as a student studying for exams in Noryangjin."
+"Is that how you greet someone after a long time? I dress like this for method acting. My next role is a bar exam student from Noryangjin."
 
-"Do people not recognize you when you dress like this?"
+"Do people not recognize you dressed like this?"
 
-"Most people just think I look like Song Jeongseok and pass by. By the way, Yeongguk, you're quite popular now, but you still wear your hat low at school. Do you think you can hide that handsome face?"
+"Most people just think I look like Song Jung-seok and walk past. By the way, Yeong-guk, you're wearing a hat even at school now that you're getting popular. Do you think you can hide that handsome face?"
 
-Even though it's been a while since they met, it doesn't feel awkward. It makes sense since he was the only senior who gave him advice in his past life.
+Despite meeting after a long time, it wasn't awkward. After all, he had been the only senior to give him advice in the past.
 
-They walked to the campus cafeteria to have lunch together. Occasionally, people recognized them, but since they were eating, most just glanced and didn't approach.
+They walked towards the campus cafeteria to have lunch together. Occasionally, people recognized them, but since they were eating, most just glanced without approaching.
 
-Song Jeongseok takes a bite of his pork cutlet and says,
+Song Jung-seok took a bite of his pork cutlet and said,
 
-"I thought I'd get a proper meal from you after a long time, but it's just pork cutlet?"
+"I was hoping to get a meal from you after a long time, and it's just pork cutlet?"
 
-"Hey, this is the most popular dish in our school. If you come late, you can't get it because the meal tickets sell out. If you don't want it, give it to me. I'll eat two."
+"Why, this is the most popular dish at our school. If you come late, the meal tickets are sold out, and you can't eat it even if you want to. If you don't want it, give it to me. I'll eat two."
 
-"I'm just saying. I never thought I'd have lunch at Korea University's cafeteria in my life. By the way, do you know that Ji Dongyeon signed an exclusive contract with our agency?"
+"I'm just saying. I never thought I'd have lunch at Korea University's cafeteria. By the way, Yeong-guk, did you know our agency signed Ji Dong-yeon?"
 
-Yeongguk raises his head at the mention of Ji Dongyeon. He was an actor he met while preparing for the Korea Drama Festival and had a connection with.
+The mention of Ji Dong-yeon made him look up. Ji Dong-yeon was a senior he had met while preparing for the National Theater Festival.
 
-"Senior Ji praised you a lot. He said you were the benefactor who gave him a turning point in his acting career. Hearing him praise you made me feel proud, as if I were looking at my past self."
+"Ji hyung praised you a lot. He said you were the person who gave him a turning point in his acting career. Hearing his praise made me feel proud, like I was seeing my younger self."
 
-Ji Dongyeon seemed quite grateful for telling him to get his act together when he was struggling with debt.
+When Ji Dong-yeon was struggling with debt, a word of encouragement had meant a lot to him.
 
-Yeongguk was relieved to hear that things were going well for him, even though he hadn't expected him to join the same agency as Song Jeongseok.
+He didn't expect Ji Dong-yeon to join the same agency as Song Jung-seok, but he was glad things were working out for him.
 
-"By the way, do you know Son Hwa-won?"
+"By the way, do you know Son Hwawon?"
 
-"Are you talking about the actor Son Hwa-won?"
+"Are you talking about the movie actor Son Hwawon?"
 
-"Yeah, he's three years older than you and has no experience in dramas yet, but he started as a child actor in movies. He's quite famous in Chungmuro, so you should know him."
+"Yes, he's three years older than you and has no TV drama experience but has been acting in movies since he was a child. He's quite famous in Chungmuro, so you must know him."
 
-How could he not know? Though not famous now, in the future, he would become the first Korean actor to win Best Actor at the Cannes Film Festival.
+How could he not? He wasn't famous now, but he would later become the first Korean actor to win the Best Actor award at the Cannes Film Festival.
 
-In his past life, Yeongguk had connections with many actors, but his hysterical personality had severed those relationships.
+In his past life, he had many actor friends when he was famous. But his hysterical personality had caused all those relationships to fall apart.
 
-Among them, the first person he lost contact with was none other than the actor Son Hwa-won.
+The first person he lost contact with was none other than movie actor Son Hwawon.
 
-Of course, it was because he couldn't overcome his inferiority complex and pushed him away, but still. One was always a leading actor, and the other was always a supporting actor.
+Of course, it was one-sided because he couldn't overcome his inferiority complex. After all, one was always the lead, and the other was always a supporting actor.
 
-"That guy really wants to meet you. He needs to get into dramas soon, and he seems to need someone around his age to talk to openly. I know you're busy with filming, but he insisted, so I'm just asking."
+"He really wants to meet you. He'll be entering TV dramas soon and needs someone his age to talk to frankly. I know you're busy filming, but he kept asking, so I thought I'd ask you."
 
-‘Huh.’
+'Huh.'
 
-In his past life, he was the one who always sought advice. Like Mozart and Salieri, he felt a sense of inferiority watching his acting.
+In his past life, he had always sought advice from Son Hwawon. Like Mozart and Salieri, he had felt a sense of inadequacy watching Son Hwawon's acting.
 
 "I'll meet him."
 
-There was no need to think about it. He now understood the kindness that Son Hwa-won had shown in the past.
+There was no need to think further. He knew now the kindness Son Hwawon had shown him in the past.
 
-Song Jeongseok smiles, as if he knew Yeongguk would say that, and scoops a spoonful of rice.
+Song Jung-seok smiled as if he expected this answer and took a spoonful of rice.
 
-"Whenever I see white rice, it reminds me of the meals your mother used to make. You probably didn't know back then, but the advice you gave me became the foundation of my acting career."
+"Seeing white rice reminds me of the meals your mother used to make. You didn't know at the time, but the advice you gave me became the foundation of my acting career."
 
-"Why are you making it so cheesy all of a sudden?"
+"Why are you being so sentimental all of a sudden?"
 
-"You brat, I'm trying to set the mood and talk, and you call it cheesy. These days, everyone talks about beast-men, and now you're treating your senior like this."
+"This kid, calling it sentimental when I'm trying to set the mood. Everyone's talking about 'beast men' these days, and now you don't even recognize your hyung."
 
-"Ah, stop calling me that. It's driving me crazy. I'm not a beast-man."
+"Oh, stop calling me that. It's giving me a complex. I'm not a beast man."
 
-"Fine, beast-man. How's your mother? I called her during the last holiday but haven't been in touch since."
+"Alright, beast man. How's your mother? I haven't contacted her since New Year's."
 
-Suddenly, he thought of his mother at Namhang Market. She must be busy dealing with the flood of customers.
+He suddenly thought of his mother at the Namhang Market. She must be busy with customers right now.
 
-"I'm planning to bring her to Seoul soon. I need to find a house and live with her."
+"I'm planning to bring her to Seoul soon. I should find a place and live with her."
 
-"Did you tell your mother?"
+"Have you told her?"
 
-"I mentioned it before, but she refused. But I don't want her to do hard work anymore. I called her a few days ago, and she still refuses, so I'm worried. Managing the store alone must be too much for her."
+"I mentioned it before, but she refused. But I want her to stop doing hard work. I called her a few days ago, and she still insists on staying, so I'm worried. The shop work must be tough for her alone."
 
-"Don't rush your decision. If your mother doesn't want to come, there must be a reason. Who knows, she might be dating a nice man there?"
+"Don't rush the decision. If she doesn't want to come, she has her reasons. Who knows, maybe she's met a nice gentleman there and is dating?"
 
-"Oh, come on. That's nonsense."
+"Oh, come on."
 
-"See? Sometimes you seem so mature, but other times you still seem like a kid. Your mother is a woman too, you know."
+"See? Sometimes you seem so mature, but then you show how young you still are. Isn't your mother a woman too?"
 
-Finishing the conversation, Song Jeongseok shoves the pork cutlet into his mouth. Watching him with sauce smeared around his mouth, Yeongguk wonders if there might be another reason his mother wants to stay at Namhang Market besides the camaraderie with other merchants.
+After the conversation, Song Jung-seok stuffed another piece of pork cutlet into his mouth. Seeing the sauce on his lips, he wondered if his mother had a different reason for wanting to stay at the market besides her attachment to the vendors.
 
 * * *
 
-It's the season for flounder. Known as a representative spring sashimi, its chewy and firm texture whets the appetite of many tourists visiting Namhang.
+It's the season for flatfish. Its chewy and firm texture makes it a popular choice for sashimi among tourists visiting Namhang.
 
-As the flood of customers quickly recedes, it's finally time to take a breather.
+With the flood of customers gone, it was time for a break.
 
-The legs of the merchants feel as heavy as if they were stuck in mudflats, but their faces are always filled with happiness.
+Despite their tired legs, the vendors' faces always had smiles.
 
 "It's already lunchtime."
 
-It's a much later lunch than others, but no one complains. This is their way of life and livelihood.
+It's late for lunch, but no one complains. This is their way of life.
 
-While thinking about joining the other merchants for lunch, she remembers that Mrs. Yang mentioned she would be attending a parents' meeting for her daughter Myeongja today. She wants to have lunch with the other merchants, but it's hard to match the timing since everyone opens and eats at different times.
+Just as she was about to head to the neighboring stall, she remembered that Mrs. Yang mentioned attending a school meeting for her daughter, Myung-ja, today. She wanted to have lunch with the other vendors, but their opening times and lunch breaks differed, so it wasn't possible.
 
-'I wonder if my Guk is eating well.'
+'I hope Guk is eating well.'
 
-Despite the hardships of working by the sea, as a mother, she can't help but think about her son.
+Despite the hard work, her thoughts were always with her son.
 
-Her son called her a few days ago after a long time. After much hesitation, he asked her to come to Seoul and live with him.
+A while ago, Yeong-guk had called. After much hesitation, he asked her to come to Seoul and live with him.
 
-But she shook her head over the phone, where her son couldn't see.
+But she had shaken her head on the other end of the line.
 
-'I feel more comfortable staying at Namhang.'
+'I feel comfortable staying in Namhang.'
 
-City life is too complicated and stressful. Besides, she's used to the store work now, and it has become easier.
+City life was too complicated and stressful. Moreover, the shop work had become easier with time.
 
-Thinking back to the early days when she first started her fish stall, she realizes how much time has passed.
+Thinking back to when she first set up her fish stall, she realized how much time had passed.
 
-Her once fair and smooth hands are now covered in calluses, and her face, weathered by the sea breeze, shows lines that mark the passage of time.
+Her once soft hands were now calloused, and her face, tanned by the sea breeze, bore the marks of time.
 
-"This is what Guk told me to apply on my face, right?"
+"Is this what Guk wanted me to put on my face?"
 
-She applies the face cream her son sent her to the wrinkles around her eyes. While it won't erase the wrinkles immediately, her face remains as beautiful as ever.
+She applied the cream her son had sent around her eyes. It wouldn't erase the wrinkles instantly, but to her, her face was still the most beautiful.
 
-Since it's been a long time since she last wore makeup, even applying face cream feels awkward. But her beauty remains unchanged.
+Having not worn makeup for so long, even applying cream felt strange. But her beauty from the past still shone through.
 
-"Oh dear, look at me."
+"Oh my, where's my mind?"
 
-She abruptly stands up, embarrassed after staring into the mirror for a long time. She suddenly remembers that she left the stew on the burner.
-
-The lid of the pot rises and falls, urging her to hurry.
+She stood up quickly, feeling embarrassed after staring at the mirror for so long. She remembered she had put a stew on the burner.
 
 "The soup bowls should be here."
 
-She reaches for the soup bowls in the cupboard. But no matter how hard she tries, she can't reach them. Standing on tiptoe and stretching her hand as far as she can, she barely touches them, but they slide further back into the cupboard. Just then,
+She reached for the soup bowls in the cupboard. But her hand couldn't reach. She stood on tiptoe, stretching her fingers, but the bowls seemed to move further inside. Just then,
 
-Swoosh.
+Suddenly, a shadow loomed from behind. A long arm reached out and grabbed the bowls from the back of the cupboard.
 
-A shadow suddenly appears behind her. A long arm reaches out and retrieves the soup bowls from the corner of the cupboard.
+Startled, she turned around to see Mr. Kim from the side dish shop standing there awkwardly, holding the bowls.
 
-She turns around, startled, to find Mr. Kim from the side dish store standing there awkwardly, holding the soup bowls.
+"Oh, it looked like you were having trouble reaching them..."
 
-"Oh, you looked like you were having trouble reaching them..."
+She finally calmed down. For some reason, Mr. Kim always made her smile. She took the bowls and asked kindly,
 
-She calms her startled heart. For some reason, she can't help but smile whenever she sees Mr. Kim. She takes the soup bowls and kindly asks,
+"Did you come to buy cockles? They're not in season anymore."
 
-"Did you come to buy cockles? They're not in season anymore, so the quality is so-so."
+"No, that's not it."
 
-"Oh, no."
+"Then?"
 
-"Then what?"
+"It's not that..."
 
-"Actually..."
-
-Mr. Kim scratches his head.
+Mr. Kim scratched his head.
 
 "Would you like to have lunch together?"

@@ -5,260 +5,258 @@ tags:
 ---
 
 
-Inferiority complex (열등감).
+Inferiority Complex(劣等感).
 
-"Youngguk, are you acquainted with actress Son Hwa-won?" 
+"Youngguk, do you know the actor Son Hwawon?"
 
-I looked up at the question from CEO Kim Seong-hwan. It was after we had a conversation regarding an advertisement contract.
+I looked up at Kim Seonghwan, the representative, who asked this question. We had just finished discussing an advertisement contract.
 
-It seems like the agency contacted us just a few days after meeting Song Jeong-seok, striking while the iron is hot.
+It seems that they say strike while the iron is hot, as it hasn't been long since I met Song Jeongseok, and already there's been contact from the agency.
 
-"Son Hwa-won contacted the agency saying she wants to meet you, Youngguk. She said she already talked with you."
+"Youngguk, they contacted us saying they want to meet you, saying that it’s already been discussed with you."
 
-"I heard it from Jeong-seok hyung when I met him before. Son Hwa-won wanted to meet me, so I agreed. I didn't know she would contact the agency again."
+"I heard about it when I met Jeongseok hyung before. Son Hwawon said he wanted to see me once, so I agreed. But I didn’t expect him to contact the agency as well."
 
-"The actor Song Jeong-seok from the indie film you did together? No wonder. Our manager Kim was surprised when Son Hwa-won suddenly contacted us. But it's a sign of respect. She contacted the agency again to make sure you weren't pressured by Jeong-seok hyung."
+"Is it the actor Song Jeongseok, who you worked with on an independent film before? No wonder, Kim Manager was surprised when Son Hwawon contacted us out of the blue. But it’s a sign of good manners. He’s probably making sure you didn’t feel pressured to say yes because of Song Jeongseok hyung."
 
-He's always been a straightforward person.
+He has always been a person of integrity.
 
-Indeed, even when an unknown supporting actor sought advice from the lead actor, he didn't hesitate to give acting tips.
+No wonder, even when an unknown supporting actor sought advice from a lead actor, he didn’t hesitate to provide guidance on acting.
 
-- Don't be too anxious about being a supporting actor. Opportunities will come eventually. From what I've seen of you, Youngguk, you won't miss those opportunities. Don’t give up on acting. One day, you will surely stand where I am now.
+-Don’t be too anxious just because you're a supporting actor. Opportunities will come someday. From what I've seen of you, Youngguk, you won’t miss your chance. Don’t give up on your acting career. There will definitely come a day when you stand in this place.
 
-He was the only friend and fellow actor who made me feel an inferiority complex.
+In my past life, he was the only friend and fellow actor who made me feel an inferiority complex.
 
-But perhaps because of poor social skills, I distanced myself from him.
+But perhaps because I wasn’t good at socializing, I kept my distance from him myself.
 
-"By the way, isn't this Son Hwa-won an emerging star in Chungmuro? It seems like the actors I have my eye on always show interest in you, Youngguk."
+"By the way, isn’t this Son Hwawon the rising star of Chungmuro these days? All the actors I’m keeping an eye on seem to be interested in you, Youngguk."
 
 "Was there another actor like that?"
 
-"Do you know how many agencies are waiting for your exclusive contract period to end? Son Hwa-won might be one of them, subtly probing you after a hint from her agency."
+"Do you know how many agencies are waiting for your exclusive contract to end? Son Hwawon might be one of them too. He might be testing the waters with you under the suggestion of his agency’s representative."
 
-"She's not like that. But which actor wanted to meet me? Now I'm curious."
+"He’s not that kind of person. But which other actor wanted to meet me? I’m curious."
 
-"That's a business secret."
+"That’s a trade secret."
 
-CEO Kim Seong-hwan made a playful gesture of zipping his mouth, causing Youngguk to suppress his laughter.
+Kim Seonghwan, the representative, made a gesture of zipping his lips with a playful expression, and Youngguk couldn’t help but smile.
 
-"That's great. Just tell her to come to the filming set. I'll be in Yongin for a while anyway."
+"Great, please tell him to come to the set one day. I’ll be in Yongin for a while anyway."
 
 * * *
 
-Most of Chungmuro's emerging stars have something special.
+Most of the rising stars in Chungmuro have something special.
 
-A vivid sense of realism, humor and quick wit better than most comedians, and acting skills that evoke awe from the audience.
+Whether it’s the vivid realism that exudes from the scene, the humor and quick wit that surpasses most comedians, or the acting skills that elicit exclamations from the viewers.
 
-Among them, actress Son Hwa-won's specialty lies in her innocence.
+Among them, actor Son Hwawon’s forte is his pure and innocent charm.
 
-"Thank you for your hard work today."
+"Thank you for today’s shoot."
 
-Though it might sound strange for a man to say "innocence," just look at how she bows and greets each and every staff member.
+Though it may seem odd for a man to be described as innocent, just look at how he bows his head and greets each and every staff member.
 
-With her fair and delicate appearance and a naive smile like that of a country dog on her lips.
+His fair and delicate face, coupled with a simple smile like that of a country dog, makes him all the more endearing.
 
-No wonder female fans call it a "pure love smile."
+It’s no wonder that among female fans, his smile is often referred to as the epitome of pure love.
 
-"Hwa-won, great job on the CF shoot today. And tomorrow, you'll need to visit the broadcasting station for a meeting about the next project. You'll stop by the shop, right?"
+"Hwawon, you did a great job with today’s CF shoot. And tomorrow, you need to go to the broadcasting station for a meeting about your next project. Are you planning to stop by the shop first?"
 
-"No, there's no need to visit the shop just to meet the PD and writer. It's more genuine and better to go in my usual attire."
+"No, since I’m just meeting the PD and the writer, there’s no need to stop by the shop. It’s more genuine to go in my usual attire."
 
-"You say that because you have a good base. Some picky actors can't leave the house without full makeup."
+"Man, Hwawon, you can say that because you look good without makeup. Some actors can’t even step out of the house without full makeup."
 
-"By the way, hyung, have you contacted Songwon Entertainment?"
+"By the way, hyung, did you contact Songwon Entertainment?"
 
-Son Hwa-won's eyes were filled with curiosity.
+There was a clear look of curiosity in Son Hwawon’s eyes.
 
-"I was about to tell you. Actor Jang is too busy to meet separately, but they said you could visit the set if you're free. I was going to tell you later because I thought you might be tired, but you can probably see him if you go to Yongin now."
+"I was about to tell you. Actor Jang is currently too busy with his schedule to set aside time to meet separately. Instead, they suggested that if we have time, we could visit the set. I was going to tell you later because I thought you might be tired today, but if you go to Yongin now, you might be able to see him filming."
 
 "Really, the set?"
 
-"Yes. But are you really going to ask actor Jang for advice? It seems pointless to me, but since you want it so much. Honestly, actor Jang just got lucky with a good project, and now that your face is known in Chungmuro, you can spread your wings once you move into dramas. As your manager, I don't think you have anything to envy compared to Jang Youngguk."
+"Yes, but are you really going to seek advice from Actor Jang? I think it’s unnecessary, but since you want it so much. Frankly speaking, Jang Youngguk just happened to meet the right project and soared to fame. Hwawon, you’ve already made a name for yourself in Chungmuro, and once you venture into dramas, you’ll be unstoppable. As your manager, I think you have nothing to envy compared to Jang Youngguk."
 
-Son Hwa-won smiled at her manager's words, knowing he said it for her sake.
+Son Hwawon smiled at his manager’s words. He knew that his manager was saying this for his sake.
 
-Objectively and subjectively, she knew she was far behind actor Jang Youngguk.
+Objectively and subjectively, he felt inferior to actor Jang Youngguk.
 
-Though she was gaining popularity as Chungmuro's emerging star, it was an undeserved title.
+Though he was now gaining popularity as Chungmuro’s rising star, it felt like an undeserved title.
 
-Who could have known that her fair and delicate appearance, popular during her child actor days, would hold her back so much?
+Who would have thought that his fair and delicate appearance, which garnered so much popularity as a child actor, would become such a hindrance?
 
-Her gentlemanly, delicate looks constantly led to similar roles and performances.
+His refined and delicate looks consistently led to the same roles and the same acting.
 
-She feared her image would become fixed.
+As a result, he was now truly afraid of being typecast.
 
-Crunch.
+Crack.
 
-Her fist tightened unconsciously. While Son Hwa-won struggled with stereotypes, what caught her eye was none other than actor Jang Youngguk.
+His fist clenched involuntarily. While Son Hwawon struggled with these stereotypes, it was actor Jang Youngguk who caught his eye.
 
-They were both in their early 20s and had been acting since childhood, but Jang Youngguk was on a completely different path.
+He was of a similar age, in his early 20s, and had also been acting since his childhood, but Jang Youngguk was walking a completely different path as an actor.
 
-'How can he act like that?'
+‘How can he act like that?’
 
-His acting was so powerful that his charisma was palpable even through the screen. Every project in his filmography was unique.
+Even through the screen, his powerful acting was palpable. Moreover, each project in his filmography had a different color.
 
-From the nation's first love to a fiercely intense priest and a brief performance as the top playboy of Joseon in a theater festival.
+From the nation's first love to a fiercely intense priest and even the best libertine of the Joseon era, showcased briefly at a theater festival.
 
-It was unbelievable. How could someone in their early 20s continue to make such drastic transformations?
+It was unbelievable. Wasn’t he in his early 20s like himself? How could he continually transform into such vastly different roles at that age?
 
-"Hwa-won, always remember what I say. The entertainment industry is a marathon, not a sprint. It doesn't matter who gets ahead first. I believe you'll soon become a big star. Since the title of 'nation's first love' is taken, how about 'nation's pure love boy'?"
+"Hwawon, always remember what I say. The entertainment industry isn’t a sprint; it’s a marathon. It doesn’t matter who gets ahead first. From my perspective, you’ll become a big star soon. Since the title of the nation’s first love has been taken, how about becoming the nation’s pure-hearted man?"
 
-In the car heading to the historical drama set in Yongin, the manager said.
+Hwawon’s manager said this as they headed to the historical drama set in Yongin.
 
-But Son Hwa-won couldn't think of anything but one person as she gazed out the window.
+But Son Hwawon, staring out the car window, still had only one person on his mind.
 
 * * *
 
-According to unofficial history (야사), it is said that King Yeonsangun, the 10th king of Joseon, sometimes had civilian doctors instead of royal physicians examine him under the watchful eyes of the Queen Dowager.
+According to unofficial history, the 10th king of Joseon, Yeonsangun, occasionally summoned civilian doctors instead of royal physicians to the palace for treatment.
 
-According to the famous doctor Yoo Ik-jun of Hanyang who diagnosed him, Yeonsangun's body suffered from severe tuberculosis since his youth, and he wouldn't live past 30.
+According to the famous doctor Yoo Ikjun from Hanyang, who diagnosed him, Yeonsangun had severe tuberculosis from a young age and wouldn't live past 30.
 
-But no one knows whether his statement was true or not.
+But whether this was true or not, no one knows.
 
-- Gyeol, you must gradually show yourself ascending to the throne in my stead. As your older brother, I wish to take care of you and officially register with the court, but it's regrettable that I cannot. During the week receiving treatment from a doctor in secret, wear the royal robe and stand in for me.
+- Kyora, you must show yourself ascending the throne in my stead. As your older brother, I wish to take care of you and officially register your name with the court, but I cannot. While I undergo treatment in secret for a week, wear the royal robe and stand in my place.
 
-Baekjeong Yi Gyeol, attending the royal lecture (경연), was sweating profusely.
+Sweat dripped down the back of Baekjeong Lee Kyul, who was attending the royal lecture.
 
-The unfamiliar royal robe seemed to weigh heavily on his shoulders, and the gazes of the officials were enough to suffocate him.
+The unfamiliar royal robe felt unbearably heavy on his shoulders, and the gazes of the ministers were enough to suffocate him.
 
-Of course, the only one who noticed his abnormality was the bodyguard Gwak San standing by his side.
+Of course, the only one who noticed his abnormal condition was Gyoemsabokjang Gwak San, who was guarding him closely.
 
-"Your Majesty, as a king and the father of the people, you must not cancel the royal lecture to examine the lives of the people. According to Chapter 20 of the Doctrine of the Mean, there are nine virtues to rule the world and make the nation prosperous. One of them is to inspect and respect the ministers and listen to their intentions. How can you seek to cancel the royal lecture?"
+"Your Majesty, as a king and the father of the people, you must not cancel the royal lecture to look after the people. In the 20th chapter of the Doctrine of the Mean, it is said that to govern the world and make the nation prosperous, there are nine virtues. Among them, one is to observe and respect ministers, understanding their intentions. Why then, Your Majesty, are you attempting to cancel the lecture?"
 
-The officials raised their voices in unison.
+The ministers were all raising their voices.
 
-Naturally, it was because the king had suddenly announced the suspension of the three daily royal lectures for a week.
+It was because the king had suddenly announced that he would cancel the three daily lectures for a week.
 
-"Since the founding of the dynasty, there has never been a case where the royal lecture was suspended. The former king hosted the most royal lectures since King Sejong. Yet, to suddenly cancel the lectures is not the right course of action. Your Majesty, please reconsider!"
-
-"Please reconsider, Your Majesty!"
+"Since the beginning of the dynasty, there has never been a case where the royal lecture was canceled. The former king, King Sejong, held the most lectures since his reign. Yet you suddenly intend to cancel them. This is not right. Your Majesty, please reconsider!"
 
 "Please reconsider, Your Majesty!"
 
-The voices of the officials sitting on either side echoed through the hall. Yi Gyeol's mind was so cluttered that it felt like it would burst.
+"Please reconsider, Your Majesty!"
 
-Though he had learned palace etiquette with the help of bodyguard Gwak San, the Four Books and Five Classics, including the Doctrine of the Mean, the Great Learning, and the Book of Changes, were entirely different matters.
+The voices of the ministers on both sides echoed loudly throughout the hall. Lee Kyul’s mind was so overwhelmed that it felt like it was going to explode.
 
-Having never studied them, how could he know?
+He had learned palace etiquette with the help of Gyoemsabokjang Gwak San, but the Four Books and Five Classics, including the Doctrine of the Mean, the Great Learning, and the Book of Changes, were entirely different matters.
 
-When bodyguard Gwak San was about to speak, Yi Gyeol stood up, his royal robe fluttering.
+He hadn’t studied them in the first place, so how could he know?
 
-"Do the ministers truly mean that the royal lecture is for the people?"
+Just as Gyoemsabokjang Gwak San was about to speak to the ministers, Lee Kyul stood up, his royal robe fluttering.
 
-"Your Majesty, how could we utter falsehoods? By following the teachings of the sages, we aim to govern the country wisely..."
+"Ministers, are you truly saying that the royal lectures are for the sake of the people?"
+
+"Your Majesty, how could we speak falsely? By following the teachings of sages, we aim to govern the nation with virtue..."
 
 "Enough!"
 
-Yi Gyeol's voice silenced the official from the Office of Special Advisors.
+At Lee Kyul’s command, a Hongmungwan official fell silent.
 
-"The main content of the royal lecture I observed over the past two days was not about examining the lives of the people. It was about trying to teach me to represent the factions each of you belong to. To understand the people's starvation and reality, shouldn't we know how the country operates and what happens in the marketplace rather than just sitting here and listening to the teachings of the ancient sages?"
+"The main content of the royal lectures I’ve observed over the past two days wasn’t for the sake of the people. They were all attempts to teach me for the sake of the factions you belong to. To truly understand the hunger and reality of the people, it’s not about sitting here and learning from ancient sages; it’s about knowing how the country operates and what’s happening in the streets."
 
-"Your Majesty, such matters are addressed through memorials from all over the country."
+"Your Majesty, such matters are reported through memorials from across the nation..."
 
-"A single sentence can deceive many people. How can I trust what I haven't seen? Bring me the memorials from Gamcheong-ri."
+"A single sentence can deceive many people. How can I believe something I haven’t seen? Sangchaek, bring me the memorial from Gamcheong-ri."
 
-The memorials were handed to Yi Gyeol. He read them aloud.
+Sangchaek presented the memorial to Lee Kyul. Lee Kyul read it out loud instead of Sangchaek.
 
-"This is a memorial from the official Najutaek of Gamcheong-ri. It states that due to flood damage, the crops have failed, and he has opened the granaries to distribute food to the starving people. Thus, he asks if the tax rate for Gamcheong-ri could be lowered this year. If we only look at this memorial, Najutaek seems like an official deserving a great reward for lowering the tax rate and distributing food. But!"
+"This is a memorial from the official Naju-taek of Gamcheong-ri. Due to flood damage, the crops have failed. He opened the granary to distribute food to the starving people and requested that the tax rate for Gamcheong-ri be lowered this year. Based on this memorial alone, Naju-taek deserves not only a reduction in taxes but also a great reward. However!"
 
-Yi Gyeol's sharp gaze swept over the officials.
+Lee Kyul’s eyes, glaring at the ministers, were intense.
 
-As a butcher from Gyeolsan Valley, hadn't he frequently visited Gamcheong-ri nearby?
+As a Baekjeong from Gyeolsan-gol, he had frequently visited Gamcheong-ri nearby.
 
-Najutaek was a corrupt official who exploited the people's labor.
+Naju-taek was a corrupt official who sucked the blood of the people.
 
-He did collect taxes despite the crop failure due to the flood, and he didn't open the granaries.
+Although the crops had failed due to flood damage, he had still collected taxes and hadn’t opened the granary.
 
-"This memorial cleverly mixes truth and lies. The crop failure is true, but he collected taxes from the people and didn't open the granaries. Moreover, he submitted a false memorial asking for a lower tax rate. How many more false memorials like this are there from all over Joseon!"
+"This memorial cleverly mixes truth and lies. While it’s true that the crops failed, he collected taxes from the people and didn’t open the granary. Moreover, he sent this false memorial asking for a tax reduction. How many other false memorials might there be among those sent from across Joseon?"
 
-Yi Gyeol shouted at the officials.
+Lee Kyul scolded the officials.
 
-"This is the king's order. Instead of holding royal lectures for a week, investigate the corruption of officials and the lives of the people without any falsehoods. This is the task I assign to you!"
+"I decree. Instead of holding royal lectures for a week, investigate the corruption of officials and the lives of the people throughout the nation without any falsehoods. This is the task I assign to you as your king!"
 
 * * *
 
-Son Hwa-won stood idly in front of the vending machine located on one side of the set. She couldn't bear to watch the filming any longer.
+Son Hwawon stood idly in front of a vending machine located on one side of the set. He couldn’t bear to watch the filming any longer.
 
-The more she watched, the more an unknown emotion surged within her.
+The more he watched, the more an indescribable emotion welled up inside him.
 
-Though they were of similar age, Jang Youngguk's acting was captivating.
+Though he was of similar age, Jang Youngguk’s acting was mesmerizing.
 
-She moved away, clenching her trembling fist, unable to overcome the inferiority complex otherwise.
+He clenched his trembling hands into fists and walked away, unable to overcome this inferiority complex.
 
-"Here you are."
+"You’re here?"
 
-How much time had passed? Youngguk, having finished his scene, found Son Hwa-won. She bowed her head involuntarily at his sudden appearance.
+How much time had passed? Youngguk, who had finished his scene, found Son Hwawon. Hwawon instinctively bowed his head at Youngguk’s sudden appearance.
 
-"Hello, I'm actress Son Hwa-won. I'm sorry for showing up at the set so abruptly. I just really wanted to meet you, Jang Youngguk."
+"Hello. I’m actor Son Hwawon. I’m sorry for coming to the set unannounced. I just really wanted to meet Jang Youngguk."
 
-"No, it's fine. I already heard from Jeong-seok hyung. And you're three years older than me, so please speak comfortably. By the way, isn't it funny? Just ten meters away, you can see the grand eaves of the palace, yet there's a vending machine right here."
+"No worries, I already heard from Jeongseok hyung. And you’re three years older than me, so please speak comfortably. By the way, it’s fascinating, isn’t it? Just ten meters away, you can see the grand eaves of the palace, but here, there’s a vending machine."
 
-He had come straight to see her after changing his costume.
+He had come straight to see him after changing his costume.
 
-Son Hwa-won had a mountain of questions for Youngguk, but she couldn't bring herself to ask.
+Hwawon had a mountain of questions for Youngguk, but none of them came out.
 
-After all, she felt such an inferiority complex watching his performance. Sensing this, Youngguk started the conversation.
+After all, he had felt such an inferiority complex while watching the shoot. Perhaps sensing this, Youngguk spoke first.
 
-"I heard you wanted to ask me something, likely about acting?"
+"I heard you had something to ask me, Hwawon. Is it about acting?"
 
-"Yes. I can't shake the thought that my acting is too confined. Even after talking to other senior actors in my agency, I couldn't resolve it. Then I happened to watch your movies. I was speechless, wondering how someone my age could transform into a completely different person with each role."
+"Yes, I can’t shake the feeling that my acting is too confined. I’ve talked to other senior actors at my agency, but it hasn't helped. Then, by chance, I watched a movie you starred in. I was amazed at how you could become a completely different person for each role despite being of similar age."
 
-‘Honest.’
+‘He’s honest.’
 
-Youngguk thought as he looked at Son Hwa-won. She was as genuine as she had been when advising him in his past life.
+Youngguk thought as he looked at Hwawon. Like how Hwawon had given him sincere advice in his past life, Hwawon was an unpretentious person.
 
-Most actors would be reluctant to reveal their vulnerabilities, yet here she was, laying her heart bare.
+Most actors wouldn’t want to reveal their vulnerabilities, but here he was, laying bare his thoughts.
 
-Moreover, Youngguk understood the problem she was struggling with.
+Moreover, Youngguk knew the problem Hwawon was struggling with.
 
-‘It's probably the image issue that Hwa-won hyung is worried about.’
+‘Hwawon hyung is probably struggling with his image right now.’
 
-Though a male actor, he was ironically famous for his innocence. This had likely limited his roles.
+Though he was a male actor, he ironically became famous for his pure and innocent charm. This likely limited the roles he could take, most of which were similar.
 
-Most of them were similar in nature.
+Though time would naturally improve his acting and resolve this issue, it seemed it wasn’t the case for Hwawon.
 
-Though it was a problem that would naturally resolve over time as his acting matured, it was a pressing issue for her.
+Youngguk paused for a moment before offering the advice Hwawon had given him in his past life.
 
-Youngguk paused before giving her the advice she had once given him in his past life.
+"I’ve actually watched all the movies you starred in, Hwawon. From ‘Dawn of the Youth’ to ‘The Ground’ and ‘Christmas in November.’"
 
-"I've actually watched all your movies, starting from 'Dawning of the Youth' to 'Ground' and 'Christmas in November.'"
+"I’m embarrassed. I have a lot of filmography for my age, but all the roles are similar."
 
-"It's embarrassing. Though I have many films in my filmography for my age, all the roles are similar."
+"What’s there to be embarrassed about?"
 
-"What's there to be embarrassed about?"
+"Sorry?"
 
-"Excuse me?"
+He didn’t understand why Hwawon felt so ashamed.
 
-He didn't understand why she felt so ashamed.
-
-"Many actors would give anything to play the roles you've had. If you feel ashamed of your roles, it's a great disrespect to other actors and directors."
+"Many actors would do anything to play the roles you’ve taken. If you feel ashamed of the roles you’ve played, isn’t that a huge insult to the other actors and directors?"
 
 "......"
 
-Finally, Son Hwa-won realized that she was ruining herself with her own obsession.
+It was then that Hwawon realized he was ruining himself with his own obsession.
 
-And the next words from Youngguk felt like a splash of cold water on her head.
+The next words made Hwawon feel like cold water was being poured over his head.
 
-"Just like a caterpillar molts to become a butterfly, acting is the same. Don't be too bound by the limits you've set for yourself. From what I've seen, you're a much more valuable actor than you think. One day, you'll break through that shell."
+"Just as a caterpillar transforms into a butterfly, acting is the same. Don’t be too tied down by the limits you set for yourself. From what I see, you’re a much more valuable actor than the limits you’ve set. You’ll break out of that shell someday."
 
-At that moment, the assistant director signaled that the stand-by was complete.
+Just then, the assistant director signaled that the standby was complete.
 
-Youngguk took a paper cup of beverage from the vending machine and handed it to her.
+Youngguk took out a cup of coffee from the vending machine and handed it to Hwawon.
 
-"Drink this and relax. Sorry if I was too harsh."
+"Drink this and clear your head. I’m sorry if I was too harsh."
 
-Oh, I don't drink coffee. Son Hwa-won almost said aloud.
+Ah, I don’t drink coffee. Hwawon almost said aloud.
 
-But this warm cup of coffee felt more precious than ever.
+But this warm cup of coffee felt more comforting than ever.
 
-As Youngguk walked away, he turned back and added.
+As Youngguk walked away, he turned back and added,
 
-"Next time we meet, speak comfortably, Hwa-won hyung."
+"Next time we meet, please speak comfortably, Hwawon hyung."
 
-Son Hwa-won widened her eyes and gave a short nod. She looked down at the fragrant paper cup.
+Hwawon widened his eyes and gave a short nod. He looked down at the fragrant cup.
 
-It wasn't coffee but milky yulmu tea.
+Inside wasn’t coffee but creamy yulmu tea.
 
-'How did he know?'
+‘How did he know?’
 
-As she watched Youngguk's receding figure, Son Hwa-won was amazed. How did he know that she liked yulmu tea?
+Hwawon was surprised as he watched Youngguk’s receding figure. How did he know he liked yulmu tea?
