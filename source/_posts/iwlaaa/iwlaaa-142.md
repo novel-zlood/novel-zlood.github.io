@@ -212,3 +212,7 @@ Director Baek Janghoon, watching the scene, suddenly stands up.
 It was supposed to be a prop glass made of sugar. But unexpectedly, it cut his hand.
 
 As he is about to halt the shoot, Youngguk’s acting continues.
+
+----
+
+[Back to Chapter List](/iwlaaa/)

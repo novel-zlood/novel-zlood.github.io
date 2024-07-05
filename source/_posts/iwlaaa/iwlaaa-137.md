@@ -236,3 +236,7 @@ The sun was setting. The blue waves beyond the dock turned reddish as they absor
 I placed the empty beer can down with a loud clink and said,
 
 "I want to try playing that role."
+
+----
+
+[Back to Chapter List](/iwlaaa/)

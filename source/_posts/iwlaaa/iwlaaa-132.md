@@ -217,3 +217,7 @@ Go Gwang-tae.
 Yes, this man was nicknamed.
 
 "The madman of Chungmuro."
+
+----
+
+[Back to Chapter List](/iwlaaa/)

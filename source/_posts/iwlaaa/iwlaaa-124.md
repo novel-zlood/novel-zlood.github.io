@@ -230,3 +230,7 @@ The annals recorded that King Yeonsan died of sudden illness two months after be
 Throwing off his hat, Kwaksan burst into tears, holding the cold, lifeless body of the king with trembling hands.
 
 Only the chamomile flowers, swaying as if nothing had happened, seemed to be watching them.
+
+----
+
+[Back to Chapter List](/iwlaaa/)

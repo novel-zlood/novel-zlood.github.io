@@ -211,3 +211,7 @@ Professor Shin Junggil's wrinkled eyes were closed.
 They reopened, bringing back memories of the past, revealing reflections in his half-open pupils.
 
 “The Talmud says a judge should feel like they are being hanged before sentencing someone to death. The early version of myself who sentenced that elderly man to fines and probation still feels as though I sentenced him to death.”
+
+----
+
+[Back to Chapter List](/iwlaaa/)

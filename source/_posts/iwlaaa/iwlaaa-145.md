@@ -214,3 +214,7 @@ Soon, a woman with silver hair entered. CEO Kim Seonghwan's eyes widened, as she
 As soon as she entered, she looked at Youngguk and said,
 
 "In person, you’re even more enchanting."
+
+----
+
+[Back to Chapter List](/iwlaaa/)

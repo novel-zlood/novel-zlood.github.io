@@ -234,3 +234,7 @@ Consumed by this deep and vast desire, he never let go of his management rights 
 Jung Haesuk's lips twist. He leans forward, looking cruelly at his father lying in the hospital bed.
 
 "Did you really think you wouldn't lose your position to such a weak child?"
+
+----
+
+[Back to Chapter List](/iwlaaa/)

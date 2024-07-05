@@ -320,3 +320,7 @@ Because Youngguk’s intense gaze made his knees weak.
 ‘What kind of person has eyes like that?’
 
 It was as if he would kill him any moment.
+
+----
+
+[Back to Chapter List](/iwlaaa/)

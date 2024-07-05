@@ -222,3 +222,7 @@ She finally calmed down. For some reason, Mr. Kim always made her smile. She too
 Mr. Kim scratched his head.
 
 "Would you like to have lunch together?"
+
+----
+
+[Back to Chapter List](/iwlaaa/)

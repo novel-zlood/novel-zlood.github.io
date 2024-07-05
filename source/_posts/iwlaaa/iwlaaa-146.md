@@ -194,3 +194,7 @@ Through the gray smoke, a sharp wind seemed to blow as Jeong Haesuk's piercing g
 Watching this from a corner of the set, Monica felt her heart pounding.
 
 Although the lines were in Korean, so she couldn’t understand the script, why did Youngguk, sitting in the head seat and smoking while smirking, look so sexy?
+
+----
+
+[Back to Chapter List](/iwlaaa/)

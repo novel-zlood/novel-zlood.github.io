@@ -226,3 +226,7 @@ The investigator looked at Prosecutor Lee Howon with concern, but he nodded slig
 There was only one way to stop someone like Jeong Hae-seok, who wouldn't stop throwing punches even in the prosecutor's office.
 
 Lee Howon had to be the bait.
+
+----
+
+[Back to Chapter List](/iwlaaa/)

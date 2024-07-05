@@ -193,3 +193,7 @@ Under the fierce gaze, the straight nose, and the spots on the skin—there was 
 He hurriedly bows his head to the ground.
 
 "Crown, Crown Prince...!"
+
+----
+
+[Back to Chapter List](/iwlaaa/)

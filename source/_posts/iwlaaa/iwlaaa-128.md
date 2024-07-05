@@ -224,3 +224,7 @@ Sweat, which hadn’t been there moments ago, now covered his forehead.
 At Youngguk’s urgent questioning, Lee Bongchun sighed deeply and explained.
 
 “She attempted suicide.”
+
+----
+
+[Back to Chapter List](/iwlaaa/)

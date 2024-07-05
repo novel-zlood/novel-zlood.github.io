@@ -241,4 +241,7 @@ He looked at the sky through the old roof of the slaughterhouse, known as Cheong
 
 In the beam of light, the face of the butcher mirrored that of the crown prince walking toward the throne.
 
-The only difference was the bloodshot gaze with which he looked at the beheaded cow.
+
+----
+
+[Back to Chapter List](/iwlaaa/)

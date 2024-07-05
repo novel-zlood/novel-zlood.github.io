@@ -208,3 +208,7 @@ Youngguk, playing King Yeonsan Yi-yong, approaches the frozen Jang Nok-su. He be
 Like it's finding its home, the frog slips into Youngguk's grasp. King Yeonsan Yi-yong casually releases the frog back into the barley field, adding,
 
 “Perhaps the frog mistook you for a blooming canola flower. Even without a scent, you're so beautiful that it's understandable.”
+
+----
+
+[Back to Chapter List](/iwlaaa/)

@@ -198,3 +198,7 @@ Igyul spoke firmly to the chief guard bowing before him.
 "Will be executed."
 
 The signal for the tyrant had been fired.
+
+----
+
+[Back to Chapter List](/iwlaaa/)

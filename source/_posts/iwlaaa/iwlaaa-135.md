@@ -228,3 +228,7 @@ But my grandfather's next words revealed the issue.
 "Of course, I have you in mind as an actor, Youngguk."
 
 What a bolt from the blue.
+
+----
+
+[Back to Chapter List](/iwlaaa/)

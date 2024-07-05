@@ -278,3 +278,7 @@ The royal robe, once worn by the king, fluttered in the wind, now ownerless.
 The expressions of those watching were varied. Some mourned the departed king, while others regretted not changing the Crown Prince. But they all knew.
 
 It was now the era of Yeonsangun.
+
+----
+
+[Back to Chapter List](/iwlaaa/)

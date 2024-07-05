@@ -212,3 +212,7 @@ There were only two ways out of that situation, he had said.
 Either continue being dragged along like that, or...
 
 "She really went all in."
+
+----
+
+[Back to Chapter List](/iwlaaa/)

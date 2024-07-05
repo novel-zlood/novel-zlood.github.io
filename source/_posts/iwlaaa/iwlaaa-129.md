@@ -210,3 +210,7 @@ Not only was the press conference held so suddenly, but the hosts were none othe
 Youngguk recalls his grandfather's last words from the previous night in the hall.
 
 "It's the adults' turn to step up."
+
+----
+
+[Back to Chapter List](/iwlaaa/)

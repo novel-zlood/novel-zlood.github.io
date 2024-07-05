@@ -228,3 +228,7 @@ It was an experience he hadn't gained in his past life. As someone who had only 
 The sky, once filled with dark clouds, had cleared, and the full moon shone brightly.
 
 Under the moonlight, the jars on the terrace shone more brightly than ever.
+
+----
+
+[Back to Chapter List](/iwlaaa/)

@@ -215,3 +215,7 @@ Jung Haeseok let out a sneer and pressed down on Kim Mincheol’s shoulder again
 
 Chairman Wang nodded briefly, granting permission. The scene ended, alternating between the retreating figure of Jung Haeseok and the humiliated expression of Kim Mincheol.
 
+
+----
+
+[Back to Chapter List](/iwlaaa/)

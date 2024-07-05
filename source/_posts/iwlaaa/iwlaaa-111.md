@@ -191,4 +191,7 @@ Youngguk glances around the room. He then brushes past the upperclassman's face 
 
 The next answer makes the professor's eyes gleam.
 
-"It's that fish growing up in the muddy water might mistake themselves for that bad apple."
+
+----
+
+[Back to Chapter List](/iwlaaa/)

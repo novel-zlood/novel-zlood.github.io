@@ -301,4 +301,7 @@ I was suddenly worried that she might start acting out due to alcohol.
 
 And should I tell her this?
 
-“You have chili powder stuck in your front teeth.”
+
+----
+
+[Back to Chapter List](/iwlaaa/)

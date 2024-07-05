@@ -236,3 +236,7 @@ He walks along the dock to clear his head. The streetlights cast shadows, causin
 ‘Father, please don’t be too hard on mother.’
 
 The rippling waves seem to respond to his inner thoughts.
+
+----
+
+[Back to Chapter List](/iwlaaa/)

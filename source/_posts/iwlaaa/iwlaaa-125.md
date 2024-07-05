@@ -222,3 +222,7 @@ Youngguk straightened her up by the shoulder and said,
 Choi Hyejin's eyes trembled violently at his next words.
 
 "Did the representative tell you to?"
+
+----
+
+[Back to Chapter List](/iwlaaa/)

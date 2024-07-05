@@ -224,3 +224,7 @@ Son Hwawon's eyes glistened like a puppy's. How lonely he must have been. But de
 His slapped cheek was swollen red, looking like a squirrel with a mouthful of acorns.
 
 Instead of responding, Youngguk picked up the egg and rubbed it on his cheek.
+
+----
+
+[Back to Chapter List](/iwlaaa/)

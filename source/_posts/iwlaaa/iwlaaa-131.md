@@ -223,3 +223,7 @@ Group assignment?
 Then, Kim Dongjin, sitting next to him, raised his hand quietly.
 
 Damn.
+
+----
+
+[Back to Chapter List](/iwlaaa/)

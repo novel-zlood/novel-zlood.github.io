@@ -232,3 +232,7 @@ Syncing up wasn’t just about having good reflexes. It required a keen eye and 
 Watching from the side, Son Hwawon couldn’t help but exclaim. The synchronization between Youngguk and the stuntman was perfect.
 
 Kwon Jae-hong also blinked in surprise as he watched.
+
+----
+
+[Back to Chapter List](/iwlaaa/)

@@ -194,3 +194,7 @@ At that moment, Jung Haesuk twisted his lips and looked at the lawyer.
 "Attorney Kim, did you give it to him?"
 
 It was an ad-lib not in the script. Perhaps that's why actor Yang Chigon looked so flustered, as if admitting he was the culprit.
+
+----
+
+[Back to Chapter List](/iwlaaa/)

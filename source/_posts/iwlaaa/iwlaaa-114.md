@@ -235,4 +235,7 @@ As he looked around the auditorium, shadows cast over his eyes, reflecting the t
 
 Some might say they wanted to graduate quickly and step into adulthood, eager to enter society.
 
-After the graduation ceremony, as Youngguk, holding an armful of bouquets, looked back at the receding school, he smiled. He felt grateful for the seasons of romance that would never return.
+
+----
+
+[Back to Chapter List](/iwlaaa/)

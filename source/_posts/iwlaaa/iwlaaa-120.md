@@ -216,3 +216,7 @@ The child actor also hurriedly bowed, eyes wide like a startled rabbit. Park San
 Suin, the child actor, was surprised by Park Sangcheol’s smile. She whispered to Youngguk,
 
 "Mr. Kim Choseon smiled."
+
+----
+
+[Back to Chapter List](/iwlaaa/)

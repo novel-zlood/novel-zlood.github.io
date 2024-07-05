@@ -282,3 +282,7 @@ It can be cumbersome, like wearing clothes that don’t fit, or sometimes uncomf
 After a long pause, Go Kwangtae looks up. His disheveled hair reveals bright eyes staring at me.
 
 "The texture is different."
+
+----
+
+[Back to Chapter List](/iwlaaa/)

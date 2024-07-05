@@ -208,3 +208,7 @@ Wasn't it the model's exclusive contract? He had received it before. What had ch
 Since it was in English, it took time to read.
 
 But what caught his eye was the changed contract amount.
+
+----
+
+[Back to Chapter List](/iwlaaa/)

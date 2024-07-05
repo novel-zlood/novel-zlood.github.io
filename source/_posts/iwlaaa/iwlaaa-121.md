@@ -202,3 +202,7 @@ As a brother who had done nothing for his younger brother living as a butcher, Y
 Like a dying ember, Yeonsan's pupils lose their light as he utters his last words.
 
 "Brother, live for yourself from now on."
+
+----
+
+[Back to Chapter List](/iwlaaa/)

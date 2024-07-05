@@ -231,4 +231,7 @@ He scrutinizes the actors watching him.
 
 Then, with his long fingers, he touches someone's chin. His left hand clenches as if holding something.
 
-"If a dog tries to bite its master, it should be beaten. Isn't that obvious?"
+
+----
+
+[Back to Chapter List](/iwlaaa/)
