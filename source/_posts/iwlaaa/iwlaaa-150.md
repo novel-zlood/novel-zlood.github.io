@@ -5,195 +5,195 @@ tags:
 ---
 
 
-Jang Youngguk Production.
+Baek Janghoon Productions.
 
-As the filming neared its end, post-production began.
+As the filming nears its end, the post-production work also begins.
 
-It's no exaggeration to say that the true value of a commercial film lies in its editing. Some meticulous directors even take over a year just for the editing phase.
+It's no exaggeration to say that the true value of a commercial film lies in its editing. Some meticulous directors even spend over a year just on the editing process.
 
-"Driver Kim, let's watch the lift scene again."
+"Driver Kim, let's take another look at the lift scene."
 
-Director Jang Youngguk's gaze was fixed on the editing screen. It was a scene where Jung Haesuk reveals his true nature while talking with friends.
+Director Baek Janghoon's eyes are fixed on the editing screen. It was a scene where Jung Hae-seok reveals his true nature while talking with his friends.
 
-True to the title "Outlaw," he doesn't hide his temperament from anyone. Especially with the ad-libs from Youngguk, who played Jung Haesuk, making the character even more vivid. However.
+True to its title, "Outlaw," he doesn't hide his temperament in front of anyone. Especially with the ad-lib by Youngguk, who played Jung Hae-seok, the character appears even more vivid. However...
 
-"Director, shouldn't we lift this scene?"
+"Director, don't you think we should lift this?"
 
-Editor Kim Jeongsu scratched his head. It wasn't that he disliked the scene. On the contrary, the ad-lib elevated the scene beyond the script.
+Editor Kim Jeongsoo scratches his head. Of course, it's not that the scene is unsatisfactory. On the contrary, the ad-lib elevates the scene beyond the script.
 
-But the sight of thick blood captured by the camera made him uneasy.
+But the thick blood captured by the filming camera makes him uncomfortable.
 
-"It's not an R-rated movie, so if we include this, it will definitely get caught in the review."
+"It's not an R-rated movie, so if we include this, it will definitely get flagged by the censorship board."
 
-It wasn't just stage blood, but real blood flowing from the actor's hand. The subsequent scenes were graphic enough to be in an R-rated film.
+It's not even fake blood for makeup; it's real blood flowing from the actor's palm. Moreover, the following scene is intense enough to be in an R-rated movie.
 
-Kim Jeongsu also smacked his lips in regret. Commercial films are like that. Not only directing but also the film's age rating must be considered.
+Kim Jeongsoo clicks his tongue in regret. That's how commercial films are. Besides directing, they also have to consider the film's age rating.
 
-After all, the revenue potential varies greatly depending on whether it's rated for general audiences, 15+, or restricted to adults.
+The reason being, the potential revenue varies greatly depending on the rating: General, 15 and over, or R-rated.
 
-"Don't cut it. Use it as is."
+"Don't cut it, use it as it is."
 
 "Director, if we do that..."
 
-"I'll find a way to handle the review. Just use it as is."
+"I'll find a way to deal with the censorship, just use it."
 
-Even if the film ended up being restricted to adults, he wouldn't back down. After all, how could the director kill the performance of an actor who had given his all?
+Even if the movie gets an R-rating, he wouldn't budge. After all, the actor put in such a performance; as a director, it would be absurd not to bring out the best in it.
 
-The conversation between the editor and Director Jang Youngguk continued.
+The conversation between the editor and Director Baek Janghoon continues.
 
-Editing a film doesn't end in a day. It's common to revise a single scene dozens or even hundreds of times.
+Editing a film doesn't end overnight. Adjusting a single scene dozens or even hundreds of times is not uncommon.
 
-"No matter how many times I see it, it's impressive."
+"No matter how many times I see it, it's amazing."
 
-Director Jang Youngguk held his admiration inside as he watched Youngguk on the editing screen.
+Director Baek Janghoon swallows his admiration as he watches Youngguk on the editing screen.
 
-He had certainly felt it while filming. Youngguk's acting was improving day by day.
+He had definitely felt it during the filming. Youngguk's acting was improving day by day.
 
-Initially, he didn't think Youngguk could fully embody a villain. But.
+In fact, he initially didn't think Youngguk would nail the villain role. But...
 
 "He's like a fish in water."
 
-Youngguk perfectly embodied the villain as if he had been waiting for this role all along. It was as if all the roles he had played before were just preludes.
+Youngguk perfectly embodied the villain role as if he had been waiting for it. It was as if all his previous roles were just a prelude, not quite the right fit.
 
-To an outsider, it might seem like Youngguk's true nature resembled Jung Haesuk's villainous character.
+To someone who didn't know better, Youngguk's personality might seem similar to Jung Hae-seok's, given how well he portrayed the villain's malice.
 
 "To think he could expand his range so quickly."
 
-Expanding an actor's range is not easy. If acting were as simple as stretching and shrinking a rubber band, the term "great actor" wouldn't exist.
+Expanding an actor's spectrum is not as easy as it sounds. If acting were as simple as stretching and shrinking a rubber band, why would the term 'great actor' exist?
 
-Take Ahn Joonghyun, for example. He is now praised as a national actor and has established himself as a great actor in Korea, but his range wasn't wide from the beginning.
+Take An Junghyun for example. He is now praised as a national actor and has established himself as one of Korea's finest, but his acting range wasn't this wide from the beginning.
 
-How many years did he work to shed the playboy image that had become a fixed notion on his face?
+He spent years trying to erase the playboy image that had become fixed in people's minds.
 
-But Jang Youngguk was astonishing, peeling off layers like an onion and successfully taking on new roles each time.
+But with Jang Youngguk, it's astonishing how he continuously challenges new roles and produces successful outcomes, as if peeling back layers of an onion.
 
-At that moment.
+At that moment...
 
 "Director—!"
 
-The assistant director burst into the editing room. Considering that no one is allowed in during editing, this was unusual. He didn't even knock.
+The assistant director rushes into the editing room. Considering that no one dares to enter during editing, this is unusual. There wasn't even a knock.
 
-Seeing the assistant director's face drenched in cold sweat like a downpour, it was clear that something serious had happened.
+The assistant director's face is drenched in cold sweat, indicating that something serious has happened.
 
 * * *
 
 "The footage has been leaked?"
 
-The atmosphere on set was icy. Even if they were walking on thin ice, it wouldn't be as chilling.
+The atmosphere on the set is icy. It feels as if they are walking on thin ice.
 
-The cause of the thin ice would soon be revealed. It was because a part of the film had been leaked.
+The reason for this tension soon becomes clear. Part of the movie's footage has been leaked.
 
-'This doesn't make sense.'
+"I don't understand."
 
-In this era, video leaks were rare.
+It's understandable. Given the times, incidents of video leaks were rare.
 
-Although mobile phones were becoming common, they didn't yet have cameras like they would in the future. The ones available were only used for calls.
+Although cell phones were becoming popular, they didn't have cameras yet. Those available were only used as phones.
 
 "Hyung, what happened?"
 
-Having worked with the Jang Youngguk crew as a cameo since childhood, there were many people he was close to. He approached the assistant director, with whom he was closest apart from the directors.
+Having grown up appearing in cameos for Baek Janghoon's team, he had many acquaintances. He went to the assistant director, the person he was closest to apart from the directors.
 
-The assistant director's face also had dark circles, just like the others. He sighed and said,
+The assistant director, like everyone else, had dark circles under his eyes. He sighed and said,
 
-"A newspaper contacted us saying they got hold of some footage. Youngguk, I'm really sorry. You know that scene where you got injured and delivered an intense ad-lib performance? It's that scene."
+"A newspaper contacted us, saying they had obtained footage of the movie. Youngguk, I'm really sorry. Remember that scene where you gave an ad-lib performance despite being injured? It was that scene."
 
 "How did they get that footage? Did it leak from the editing room?"
 
-"Lower your voice. If it leaked from the editing room, we'd know who did it, and the atmosphere wouldn't be this bad. It looks like someone deliberately filmed it with a camcorder from a corner of the set."
+"Keep your voice down. If it had leaked from the editing room, we’d know who the culprit is, so the atmosphere wouldn’t be this bad. It seems like someone purposely filmed it with a camcorder from a corner of the set."
 
-"So, what did they say?"
+"What are they demanding?"
 
-The assistant director ran his fingers over his face and added,
+The assistant director ran his hand down his face and added,
 
-"They demanded a reasonable sum of money, or they'd release the footage to the public."
+"They're asking for a reasonable amount of money, or they'll release the footage to the public."
 
 "Don't they have any business ethics? What about copyright awareness?"
 
 "Do you think a third-rate newspaper cares about that?"
 
-If they cared about copyright, they wouldn't dare. In Hollywood, outsiders are strictly forbidden on set, and many productions are entirely closed off.
+Considering copyright, such actions were unthinkable. In Hollywood, outsiders are strictly prohibited from the set, and many productions are entirely closed off.
 
-But in present-day Korea, awareness regarding intellectual property was still significantly lacking.
+But in Korea, awareness about intellectual property was still significantly lacking.
 
-"Have you found the culprit yet?"
+"Have they found the culprit yet?"
 
-"That's why the atmosphere is so heavy within the production. We've reviewed the making-of footage, but no one looks suspicious. Everyone thinks it couldn't have been the crew."
+"That's why the atmosphere is so heavy within the production company. We've reviewed the making film, but no one looks suspicious. Everyone outwardly thinks it's not the filming team staff."
 
-The Jang Youngguk crew was well-known in Chungmuro. Most of the team had weathered many storms in Chungmuro. Even the junior staff had to have at least five years of experience to join the crew, so further explanation was unnecessary.
+Baek Janghoon's team was well-known in Chungmuro. Most of them had extensive experience in the industry, with even the youngest staff members having at least five years of experience. So, there was no need to say more.
 
-But money can blind and tempt people. No matter how strong the team's bond, there's no telling what might happen when money is involved.
+But money can numb and tempt people. No matter how strong the team's bond, one never knows how they would react in the face of money.
 
-There's a saying: you can predict the depths of a river, but not a person's heart.
+There's a reason for the saying, "You can know the depths of water, but not the depths of a person's heart."
 
-"Just in case, we've started checking everyone's belongings from the directors to the junior staff and even the actors, from main to supporting cast."
+"Just in case, starting today, we've searched the belongings of everyone from the assistant directors to the youngest staff and even the actors, from main to supporting roles."
 
 "No camcorders found?"
 
-The assistant director nodded briefly. Of course, even if I were the culprit, I wouldn't think of sneaking in a camcorder in this tense atmosphere.
+The assistant director nodded briefly. Of course, even if the culprit was among them, they wouldn't dare bring a camcorder into the current tense atmosphere.
 
-At that moment, a certain actor caught Youngguk's eye.
+Then, Youngguk saw an actor approaching.
 
 "Chigon hyung."
 
-It was Yang Chigon, who played Jung Haesuk's lawyer. He looked visibly startled by Youngguk's sudden call.
+It was Yang Chigon, who played the role of Jung Hae-seok's lawyer. He looked visibly flustered at Youngguk's sudden call.
 
-Youngguk had called him to sync up for a scene they had to shoot together, but he seemed as jittery as a puppy that needed to go out.
+Youngguk called him to synchronize for a scene they were filming together, but he seemed restless like a puppy needing to relieve itself.
 
-'Come to think of it.'
+"Come to think of it."
 
-Yang Chigon always showed up on set even when he wasn't filming. At first, Youngguk thought he was just an enthusiastic actor eager to learn. After all, working with Director Jang Youngguk was a dream come true for Chungmuro actors. But.
+Yang Chigon often appeared on set even when he didn't have scenes to shoot. Initially, Youngguk thought he was just a passionate actor eager to learn. After all, working with Director Baek Janghoon was a dream for many actors in Chungmuro. However...
 
-'He didn't become famous.'
+"He didn't become famous."
 
-Reflecting on past memories, there was no actor named Yang Chigon. There could be various reasons why he might quit acting later.
+Reflecting on past memories, Youngguk couldn't recall an actor named Yang Chigon. There could be various reasons why Yang Chigon quit acting later.
 
-But why did he seem so connected to today's incident?
+But for some reason, he felt that today's incident was connected to Yang Chigon.
 
-Moreover, his constant sweating during their sync-ups only heightened Youngguk's suspicions.
+Moreover, his cold sweat during every rehearsal only heightened Youngguk's suspicion.
 
 * * *
 
-"Scene number 121, Jung Haesuk’s Rage—!"
+"Scene number 121, Jung Hae-seok's anger—!"
 
-The slate clapped in the cold atmosphere. Even if the culprit wasn't found, filming had to continue.
+The slate clapped in the cold atmosphere. Even if they couldn't find the culprit, filming had to proceed.
 
-The set was Jung Haesuk's office with a view of Seoul's nightscape. Among the expensive furniture, a glass ashtray flew and crashed.
+The set was Jung Hae-seok's office, overlooking Seoul's night view. Among the expensive furniture, a glass ashtray shattered and fell.
 
 "What?"
 
-Jung Haesuk glared at his lawyer with wide eyes. His presence was so intimidating that the lawyer couldn't even speak properly, standing stiffly.
+Jung Hae-seok glared at his lawyer. His fierce demeanor left the lawyer unable to speak, standing rigidly.
 
-Jung Haesuk ran his long fingers over his face and smirked.
+Jung Hae-seok ran his long fingers over his face, smirking.
 
-"I have to go back to that little shop, huh? Hey, Attorney Kim. If you have a mouth, use it. How can a dog tell its owner to come and go? Is this the best you lawyers could come up with?"
+"I have to appear at that hole-in-the-wall again? Hey, Lawyer Kim, if you have a mouth, use it. Does it make sense for a mutt to order the homeowner around? Is this the best you and the company lawyers could come up with?"
 
-The lawyer swallowed and replied,
+The lawyer gulped and replied,
 
-"The evidence collected by the prosecution is solid. We've contacted higher-ups to pressure them to close the case, but it doesn't seem easy. Even within the Central District Prosecutor's Office, Prosecutor Lee Howon is called an uncontrollable lunatic. Even the prosecutor-general intervened, but Lee is willing to resign over this."
+"The prosecutor's evidence is solid. Although we're pressing from the top to end the investigation, it doesn't seem easy. Even the Chief Prosecutor has stepped in, but the prosecutor, Lee Howon, is determined, saying he'd rather resign."
 
-At that moment, Jung Haesuk jumped up from his seat. He approached the standing lawyer, his eyes gleaming cruelly, and grabbed his hair. His voice sounded like he was about to punch him.
+At that moment, Jung Hae-seok stood up abruptly. He walked up to the lawyer and grabbed his hair, his eyes gleaming maliciously. He asked in a voice that seemed ready to punch him,
 
-"So, you’re saying I have to go back as a suspect this time, not even as a witness?"
+"So, you're saying I have to appear again? This time as a suspect, not just a witness?"
 
-The lawyer shook his head vigorously. The actor Yang Chigon, captured by the camera, perfectly portrayed the frightened lawyer.
+The lawyer shook his head vigorously. The camera captured actor Yang Chigon's perfect portrayal of a terrified lawyer.
 
-Having been by his client's side long enough, he knew how insane his boss could be. If he mentioned attending another hearing, he wouldn't leave the office with his legs intact.
+He had watched his client and master act like a madman for a long time. If he mentioned appearing before the prosecution again, he knew he wouldn't leave the office unscathed.
 
 "Hoo."
 
-Jung Haesuk reclined on the sofa and looked up.
+Jung Hae-seok leaned back on the sofa, looking up.
 
-"My father shouldn't have let that guy off so easily. Was it because the old man got sentimental in his old age? I knew this would happen when he let that big guy off easily. Hey, Attorney Kim. How did that dog gather all this evidence? He couldn’t have done it alone. I told you to handle it properly."
+"My father shouldn't have let that bastard run loose. The old man grew soft with age, letting go of someone who owed him. Hey, Lawyer Kim. How did that mutt gather the evidence? He couldn't have done it alone. I told you to handle it properly."
 
-The evidence Lee Howon gathered wasn't just about the traffic accident. Embezzlement, drugs, frequent assaults, and even attempted murder.
+The evidence Lee Howon gathered wasn't just about the car accident. It included embezzlement, drugs, frequent assaults, and attempted murder.
 
-Lee Howon knew all of Jung Haesuk's skeletons. No matter how central a prosecutor he was, it would have been challenging to find all this evidence alone. He must have had an accomplice.
+He knew all of Jung Hae-seok's dirty secrets. Even if he was with the Central District Prosecutors' Office, it was hard to believe that a single prosecutor could find all this evidence alone. There had to be an accomplice.
 
-At that moment, Jung Haesuk twisted his lips and looked at the lawyer.
+At that moment, Jung Hae-seok twisted his lips and looked at the lawyer.
 
-"Attorney Kim, did you give it to him?"
+"Lawyer Kim, did you hand it over?"
 
-It was an ad-lib not in the script. Perhaps that's why actor Yang Chigon looked so flustered, as if admitting he was the culprit.
+This wasn't in the script. Perhaps that's why actor Yang Chigon looked so flustered, as if confessing he was the culprit.
 
 ----
 
