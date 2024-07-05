@@ -277,3 +277,7 @@ date: 2024-07-03 11:17:39
 [Chapter 268](/ftmg/268/)
 [Chapter 269](/ftmg/269/)
 [Chapter 270](/ftmg/270/)
+
+----
+
+[<img src="/kofi/kofi_button_blue.png">](https://ko-fi.com/zlood)
