@@ -31,6 +31,6 @@ date: 2024-07-06 09:44:44
 <!-- for i in {1..10}; do echo "[Chapter $i](/aaswit/aaswit-$i/)"; done -->
 ----
 
-Support me on ko-fi to continue this series:
+## Help continue this series:
 
 [<img src="/kofi/kofi_button_blue.png">](https://ko-fi.com/zlood)
