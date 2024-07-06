@@ -36,4 +36,6 @@ date: 2024-07-06 18:39:24
 <!-- for i in {6..25}; do echo "[Chapter $i](/site/site-$i/)"; done -->
 ----
 
+Support me on ko-fi to continue this series:
+
 [<img src="/kofi/kofi_button_blue.png">](https://ko-fi.com/zlood)
