@@ -47,6 +47,16 @@ date: 2024-07-06 18:39:24
 [Chapter 38](/site/site-38/)
 [Chapter 39](/site/site-39/)
 [Chapter 40](/site/site-40/)
+[Chapter 41](/site/site-41/)
+[Chapter 42](/site/site-42/)
+[Chapter 43](/site/site-43/)
+[Chapter 44](/site/site-44/)
+[Chapter 45](/site/site-45/)
+[Chapter 46](/site/site-46/)
+[Chapter 47](/site/site-47/)
+[Chapter 48](/site/site-48/)
+[Chapter 49](/site/site-49/)
+[Chapter 50](/site/site-50/)
 
 <!-- for i in {6..25}; do echo "[Chapter $i](/site/site-$i/)"; done -->
 ----
