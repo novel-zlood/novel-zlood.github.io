@@ -5,355 +5,353 @@ tags:
 ---
 
 
-## 7. Simple Things and Things You Can't Stop Even When You Know (2)
+## 7. Simple Things and Unstoppable Things (2)
 
-Beep! Beep! Beep!
+Beep! Beeeep! Beep!
 
 "It's over!"
 
-"Nice! Four consecutive league wins! If you count the Italian Cup, it's five wins in a row!"
+"Nice! Four consecutive league wins! If you count the Italian Cup, it's five consecutive wins!"
 
 "Parma! Parma! Parma! Parma!"
 
 The whistle blew, signaling the end of the match.
 
-A victory announcing Parma's four consecutive wins.
+A victory marking Parma's four consecutive wins.
 
-The result was 3-1.
+The result was 3 to 1.
 
-Cremonese had to be satisfied with chasing one goal at the end of the second half.
+Cremonese had to be content with a single goal chased in the latter part of the second half.
 
 And today's MVP was me.
 
-Standing in front of a pretty reporter, my mouth shut tight again.
+Standing in front of a pretty reporter, my mouth clammed up again.
 
-As expected, I guess I'm not made for broadcasting.
+As expected, I must not be cut out for broadcasting.
 
-I quickly changed a famous acceptance speech from a well-known actor in our country and slipped away.
+I quickly slipped away after slightly altering the acceptance speech of a famous actor from my country.
 
-[Parma on a Four-Game Winning Streak!]
+[Parma races to four consecutive league wins!]
 
-[Park Minho: 'I didn't do much. I just added a spoon to the dish my teammates made.']
+[Park Minho: 'I didn’t do much. I just added a spoon to the dish my teammates made.']
 
-[Play Reminiscent of Arjen Robben! Mino! Knocks Down Cremonese with Simple but Destructive Dribbling!]
+[Reminiscent of Arjen Robben! Mino! Takes down Cremonese with a simple yet destructive dribble!]
 
-[Parma Calcio Off to a Good Start in Serie B! Can They Get Promoted This Season?]
+[Parma Calcio shows a great start towards the top of League 1! Can they get promoted again this season?]
 
-[Parma Calcio Drawing a Lot of Attention Early in the Season! Scouts Seen at Their Home Stadium!]
+[Parma Calcio drawing a lot of attention from the start of the season! Scouts spotted at their home stadium!]
 
 [Comments]
 
 -Mino! Mino! Mino! Mino!
 
--It really felt like watching Arjen Robben! Of course, he's not as fast... But honestly, his dribbling skills seem even more destructive!
+-It really felt like watching Arjen Robben! Though he’s not as fast... Honestly, I think his dribbling is even more destructive!
 
--Great job! We're at the top of the league! Let's keep this winning streak going and get promoted!
+-Great! We’re at the top of the league! Let’s keep this winning streak going and get promoted!
 
--But who are the scouts here to see?
+-But, scouts? Who are they here to see?
 
 -Santiago? Mino? Franco?
 
--They won't take Franco. He's old and injury-prone.
+-Franco's a veteran, they won’t take him. Plus, he’s injury-prone.
 
--It must be Santiago or Mino.
+-It’s probably Santiago or Mino.
 
--Damn scouts. They swarm like rats in a grain silo as soon as one of our prospects does well.
+-Fucking scouts. They swarm like rats in a granary whenever our young players do well.
 
-The reaction is intense.
+The response was enthusiastic.
 
-Not just because of my performance.
+Not just about my performance.
 
-Looking at Parma Calcio's recent games, it's clear why the fans are cheering so much.
+Considering the recent performance of Parma Calcio, I could fully understand why the fans were so excited.
 
-However, there are also opposing views.
+However, there were also opposing views.
 
-Some say that since Parma was relegated from Serie A last season, this level of performance is expected.
+Some said that since Parma was relegated from Serie A last season, this level of performance was expected.
 
-After a bit of waning interest in the team,
+After the interest in the team slightly waned.
 
-The spotlight shifted back to me.
+The spotlight was back on me.
 
-[Mino! Parma Calcio's Hit Product! Shows Amazing Performance with 2 Goals and 2 Assists in 4 League Matches!]
+[Mino! The hit product of Parma Calcio! An incredible performance with 2 goals and 2 assists in 4 league matches!]
 
-[Park Minho's Value Estimated at 4.86 Million Euros! About 6.5 Billion Won in Korean Currency!]
+[Park Minho's value set at approximately 4.86 million euros! Equivalent to about 6.5 billion won!]
 
-[From Zero to 4.86 Million Euros. Parma Can't Stop Smiling!]
+[From zero to 4.86 million euros. Parma is all smiles!]
 
-Just by doing well in 4 games, my value shot up to 6.5 billion won.
+Just by performing well in a few matches, my value has skyrocketed to 6.5 billion won.
 
-My friends in the group chat are having a field day with my value.
+My friends in the group chat are having a field day discussing my value.
 
--MilanoLove: Why is your value so cheap?
+-MilanoLove: Why is your value so low?
 
--RealMilan: 6.5 billion? Parma! Want to trade our Mirai Dzeko for him? He's also 6.5 billion!
+-RealMilan: 6.5 billion? Parma! How about swapping our Mirai Dzeko for him? He’s also worth 6.5 billion!
 
--Roberto: No, I won't trade him for a 35-year-old.
+-Roberto: Nope, not trading for a 35-year-old.
 
--KingYuve: How about Adam Ramsey? We can even supplement his weekly wage! He's only 30!
+-KingYuve: How about Adam Ramsey? We can even subsidize his salary! He’s only 30!
 
--Roberto: Get lost! His muscles are like glass! You want to trade Mino for a guy whose muscles shatter with a little overwork? Are you crazy?
+-Roberto: Get lost! He’s practically made of glass! You think I’d trade Mino for someone whose muscles shatter like glass with a bit of overexertion? You’re really out of your mind?
 
--Monica: Arsenal... a good... team... They even had an unbeaten season... Now 4th in the league... a big club...
+-Monica: Arsenal... good... team... they’ve even had an undefeated season... now they’re 4th in the league... big club...
 
--MilanoLove: Yes, in reality, it's Science Season 2 at Sassnal.
+-MilanoLove: Yeah, in reality, it’s Arsenal Science Season 2.
 
 -Monica: ...
 
 Hey, stop bullying her.
 
-Monica's going to cry.
+Monica’s gonna cry.
 
-Besides, I have no intention of transferring to another team, but they're acting like they're the general managers of each team.
+I mean, I don’t even have plans to transfer anywhere, but everyone’s acting like they’re general managers of various teams.
 
-More than that, I really feel that Italians love football more than anyone.
+More than that, I can really feel how much Italians love football.
 
-Even when I was grocery shopping, five smiling elderly men asked for my autograph.
+Five random guys approached me for autographs while I was grocery shopping, all smiling ear to ear.
 
-If Italy is like this, I wonder what it's like in England, the birthplace of football, and Spain, the land of passion?
+If it's like this in Italy, what would it be like in England, the birthplace of football, or Spain, the land of passion?
 
-Honestly, I do want to visit once.
+Honestly, I kind of want to visit.
 
 Anyway.
 
-These days, my evaluation is that I have great cost-effectiveness and high potential, making other teams envious.
+These days, I’m considered not only cost-effective but also highly potential, to the point where other teams are envious to the bone.
 
-Leo told me last time.
+Leo mentioned it before.
 
-The Juventus scout who came to see me at the tryouts got a lot of flak.
+The Juventus scout who came to see me during the tryout got quite a bit of flak.
 
-I heard he evaluated me as an event player they just needed to give a reasonable amount of money.
+Apparently, they evaluated me as an event player they could get for a reasonable price...
 
 Because of that evaluation, they missed out on me.
 
-So he got some disciplinary action.
+So, they got some disciplinary action.
 
 But.
 
-Juventus must be really rich.
+Juventus must have a lot of money.
 
-Considering the reasonable amount was close to Parma's average weekly wage, it's quite a wealthy club.
+Considering the “reasonable price” was close to Parma's average weekly salary, it’s indeed a wealthy club.
 
-But why are their results like that.
+But why are their results like that?
 
 * * *
 
-I've been in frequent contact with senior Kang Juwon, who I got close to in the national team.
+These days, I frequently contact Kang Juwon, a senior I befriended on the national team.
 
-In his recent 7 games, he has 2 goals and 1 assist.
+In his recent 7 matches, he scored 2 goals and made 1 assist.
 
-It's not great, but it's not a bad record.
+Not outstanding, but not lacking either.
 
-I heard there's interest from the EPL.
+I heard there’s interest from the EPL.
 
-I also want to face a Serie A team soon.
+I want to face a Serie A team soon, too.
 
 "Mino!"
 
-While stretching and thinking about something else, I ran to the coach who urgently called me.
+While warming up, lost in thought, I hurriedly ran to the coach who was calling me.
 
-I was told I wouldn't be playing today.
+I wasn’t supposed to play today.
 
-But it seemed like things had gone awry.
+It seemed something had gone wrong.
 
-"Attack as much as you can on the left. Quick and move! Got it? Brescia's central midfielders will press hard on the central second line. Be careful of that and aim for counterattacks as much as possible."
+"Attack from the left as much as possible. Quick and move! Got it? Brescia's central midfielders will press hard on the central second line. Be careful and aim for counterattacks."
 
-"I was planning to let you rest as much as possible today, but things turned out this way. I'm counting on you."
+"I was planning to give you as much rest as possible today, but things turned out like this. I’m counting on you."
 
 I nodded at the coach's instructions.
 
-The 5th round match against Brescia.
+The match against Brescia in the 5th round of the league.
 
-With over 40 minutes in the second half, the score was 2-2.
+With over 40 minutes into the second half, the score was 2 to 2.
 
-When I stepped onto the field, the players' faces were full of fatigue.
+As I stepped onto the field, I could see the fatigue on the players' faces.
 
-It meant today's game had been intense.
+It meant today’s match had been that intense.
 
-The opportunity came faster than expected.
+The opportunity came sooner than expected.
 
-A ball flying towards me in the center.
+A ball flying toward me in the center.
 
-After easily dodging Brescia's central midfielder who rushed at me right after I got the ball, I connected it long to the left wing.
+As soon as I caught the ball, I dodged Brescia's central midfielder who came charging and connected it long to the left flank.
 
-But.
+However.
 
-Despite my good play, there was no finish.
+Despite my good play, it didn’t lead to a goal.
 
-Time kept flowing.
+Time continued to flow.
 
-But the ball didn't come to me again.
+But the ball didn’t come to me again.
 
-And after the additional time ended.
+And after the added time ended.
 
-Beep! Beep! Beep!
+Beep! Beeeep! Beeeep!
 
 The referee signaled the end of the match.
 
-The home game against Brescia ended in a draw.
+A draw in the away match against Brescia.
 
-It's not a very good result, but.
+Not a great result, but not entirely bad either.
 
-It's not entirely bad either.
+We still got 1 point.
 
-We earned 1 point.
+The players' expressions weren’t all bad either.
 
-The players' expressions weren't entirely bad either.
+Just a bit regrettable.
 
-Just a bit disappointing.
+Even though I played for less than 10 minutes as a substitute.
 
-Even though I didn't play for 10 minutes after being substituted.
+It was the first draw, not a win, in a match I played in.
 
-It was the first time a match I played in didn't end in a win but a draw.
+Well, I’ve lost in friendlies against Oman.
 
-Well, I've lost in friendly matches against Oman and others.
+But that was just a friendly match.
 
-But those were friendlies.
+A draw feels this regrettable.
 
-Even a draw feels disappointing.
+“What would it feel like to lose?”
 
-"What's it like to lose?"
-
-It must be painful.
+Probably painful.
 
 Maybe.
 
 There are quite a few writings comparing defeat to pain.
 
-But why is everyone looking at me weirdly?
+But why is everyone looking at me strangely?
 
 "Mino."
 
-Santiago shook his head as he looked at me.
+Santiago shakes his head, looking at me.
 
-No, I'm just genuinely curious about what it's like to lose.
+No, I’m genuinely curious about how it feels to lose.
 
-Isn't that normal?
+Is that weird?
 
-"You're really crazy."
+"You’re really a crazy guy."
 
 Me?
 
 Why?
 
-Being curious about what it's like to lose...
+Being curious about how losing feels...
 
-That's not a weird thought.
+isn’t a weird thought.
 
 * * *
 
-After the draw with Brescia.
+After drawing with Brescia.
 
-We got on the bus for the away match against Perugia.
+We boarded the bus for the Perugia away match.
 
-It's really far.
+It’s really far.
 
 Anyway, the next opponent, Perugia, is a promoted team.
 
-They're currently in 10th place with 2 wins, 1 draw, and 2 losses.
+Currently sitting at 10th in the league with 2 wins, 1 draw, and 2 losses.
 
-After staying in a hotel for about two days, match day arrived.
+After staying in a hotel for about two days, the match day arrived.
 
-"Once we finish this away match and the Ascoli away match, another international break is coming."
+"Once we finish this away match and the Ascoli away match, it's another international break."
 
-"Will Mino be called up to the national team again?"
+"Mino, do you think you’ll be called up for the national team again?"
 
-"Dunno."
+"Who knows."
 
-In the locker room, the players chatted excitedly.
+The players chatted excitedly in the locker room.
 
-I responded roughly to their conversation and started focusing on the assistant coach's instructions.
+I casually responded to their conversations and started focusing on the assistant coach’s instructions.
 
-"Today, you'll start on the left wing."
-
-"Yes."
-
-"We'll continue with the pattern the coach instructed last time, but I'll add one more thing. You used to cut inside and shoot, right?"
+"Today, you’ll start on the left wing."
 
 "Yes."
 
-"Now, also add a pass inside. Gennaro will finish if he cuts inside. Or you can create a decisive cross or a shot with the outside front kick like you showed in the last practice."
+"Continue with the pattern the coach instructed last time, but I’ll add one more thing. You used to shoot after cutting inside the center."
 
-"Hmm... got it."
+"Right."
 
-A simple pattern was added.
+"Now, add a pass into the mix after driving inside. Gennaro will finish the ball that you push inside. Or, you can use the outside front kick you showed last practice to create a decisive shot or cross."
 
-But I could tell.
+"Hmm... Got it."
 
-With this one added pattern, Perugia's defense would have more complex calculations to make.
+A simple pattern got added.
 
-I get the sense of what modern football is.
+But I knew.
 
-Of course, I can't make some flashy plays like other friends, but I was confident I could create a lot with my other plays.
+With this addition, Perugia's defense would have more complex calculations to make.
 
-It feels like I've truly become a pro?
+I’m starting to get a feel for what modern football is.
+
+Of course, I might not be able to pull off something flashy like my other friends, but I was confident I could create a lot with other plays.
+
+I feel like a real pro.
 
 "Sounds good."
 
 "Right?"
 
-Even though only one simple movement was added.
+A simple movement was added.
 
-The opponent won't be able to stop it even if they know.
+But the opponent won’t be able to stop it even if they know it.
 
-It sounds fun.
+Seems fun.
 
-"It's time to enter."
+"It’s time to enter."
 
-It's time to leave the uncomfortable locker room.
+It was time to leave the uncomfortable locker room.
 
-Perugia's away locker room wasn't great.
+Perugia’s away team locker room was a bit shabby.
 
-But it was slightly better than Vicenza.
+But it was better than Vicenza’s.
 
-The floor there was a bit slippery.
+Their floor was kind of slippery.
 
 I stepped into the hallway to enter the field.
 
-Waiting for us first were the home team.
+The home team was waiting for us.
 
-I could see the red uniforms of Perugia's players.
+I could see Perugia's players in their red uniforms.
 
-Then, the two teams entered the field.
+Soon, both teams entered the field.
 
-The thunderous cheers of the home team poured in.
+A thunderous cheer erupted from the home team’s fans.
 
 This has its own kind of fun.
 
-Sometimes, I can slightly hear what the opposing team's fans are saying when I glance around and make eye contact.
+Sometimes, when I glance around, I can hear a bit of what the opposing team’s fans are shouting.
 
-"Those f***ing bastards! Die!"
+"Fucking bastards! Die!"
 
-"Booo!"
+"Booooooo!"
 
 "Perugia! Perugia! Perugia!"
 
-Playing an away game at the opponent's home is quite interesting.
+Playing away at the opponent's home has its own kind of fun.
 
 Starting on the left wing.
 
-But I was told I could keep switching with Franco or Santiago on the right during the match.
+But I was told to keep switching with Franco or Santiago on the right during the match.
 
 When in the center, move like Franco.
 
-On the wing, draw the opponent's defender's attention with simple patterns like the last game.
+On the wing, draw the defender’s attention with simple patterns like in the last match.
 
-If I have confidence, just score a goal.
+If confident, just score a goal.
 
-Well, let's see how it goes.
+Well, let’s see how it goes.
 
-I've been doing the same play for two games straight, so even a fool would prepare thoroughly.
+I’ve been using the same play for the last two matches, so they must be prepared.
 
-Today, there's a high chance I'll be a decoy.
+Today, I might really be a decoy.
 
-But more than that, I really wonder what it feels like to lose.
+But more than that, I'm genuinely curious about how losing feels.
 
-A loss in amateur football was just so-so.
+Losing in amateur football felt just okay.
 
-Since I’ve never lost in pro matches, I'm curious.
+But I’ve never lost in a professional match, so I’m curious.
 
-Santiago told me never to say that to others...
+Santiago told me not to say such things to others...
 
-But honestly, I can't hold back my curiosity.
+Honestly, I can't hold back my curiosity.
 
 Beep!
 
@@ -363,35 +361,33 @@ The opponent's pressure began.
 
 A ball connected to Franco in the center.
 
-I quickly slipped behind the opposing fullback.
+Quickly, I slipped behind the opponent's fullback.
 
-At the same time, the ball landed perfectly at my feet.
+Simultaneously, the ball landed precisely at my feet.
 
-Simultaneously, I showed the same play I did on the right wing in the last game.
+At the same time, I displayed the same play I did on the right wing in the last match.
 
-Dribbling the ball and breaking through.
+Dribbling with the ball, I cut inside the center.
 
-Then cutting inside finely.
+With a perfect angle between the defenders.
 
-Finding the angle between the defenders.
+This time, I curled a right-footed shot.
 
-This time, a right-footed curler.
+Doing this.
 
-If I do this.
+The opponent's goalkeeper or defender would block my shot.
 
-The opponent's goalkeeper or defender will block my shot.
+From now on, they’d be on guard against me, right?
 
-From now on, they'll be wary of me?
+Smack!
 
-Thwack!
+Oh?
 
-Huh?
+"Wow! You crazy bastard! You scored again?"
 
-"Woohoo! You crazy bastard! You scored again?"
+"You’re really insane! Insanely good!"
 
-"You're really insane! Insane!"
-
-"Hahaha! A goal in just 1 minute of the first half!"
+"Hahaha! Scoring in the first minute!"
 
 As the players swarmed over me, I thought.
 
@@ -399,155 +395,151 @@ Did that really go in?
 
 * * *
 
--Woohoo! A goal in just 1 minute and 15 seconds! Parma Calcio scores a goal right off the bat!
+-Wow! Scored in the first 1 minute and 15 seconds! Parma Calcio has scored!
 
--A fantastic goal! Mino scores here!
+-What a fantastic goal! Here, Mino scores!
 
--It's his 5th goal of the season! And his 3rd league goal!
+-Season’s 5th goal! And 3rd league goal!
 
--Mino is showing fantastic performance on the wing lately!
+-Mino showing fantastic performance on the wing recently!
 
 Boooooo!
 
-Since the goal, the booing has gotten louder.
+The boos got louder after the goal.
 
-Especially when I had the ball, it went crazy.
+Especially when I had the ball.
 
-I wondered if they'd really set off flares.
+I wondered if they’d actually light a flare or something.
 
-Thinking back, I realized how effective this simple pattern macro play is.
+Thinking back, I finally realized how powerful this simple macro play pattern was.
 
 "Switching!"
 
-At Franco's shout, I moved to the center.
+At Franco's call, I moved to the center.
 
-Mmm! This fragrant smell.
+Hmm! This fragrant smell.
 
-It's the smell of home.
+This is the scent of home.
 
 "Mino!"
 
-A ball flew towards me at the center circle.
+A ball flying towards the center circle where I stood.
 
-A counterattack was starting.
+The start of a counterattack.
 
-Franco and Santiago started sprinting to the wings as soon as I got the ball.
+As soon as I caught the ball, Franco and Santiago sprinted down the flanks.
 
-It's been a while since I ran with excitement.
+Let’s have some fun running.
 
-Oddly, I don't feel like I'm running on the wings.
+Strangely, it doesn’t feel like running on the wing.
 
-When I sprint from the center, it feels like a wild horse running in the fields, and I really like it.
+Running from the center feels like a wild horse galloping in the fields, and it feels really good.
 
 "Block him!"
 
-"Narrow the angle for a pass to the wing!"
+"Narrow the angle for a pass to the flank!"
 
-"Mark number 24! Mark him!"
+"Mark number 24! 24!"
 
-I gained more speed.
+I gained speed.
 
-I easily dodged a Perugia midfielder rushing to stop my acceleration with a simple body feint.
+A Perugia midfielder rushed to cut my speed, but I dodged him with a simple body feint.
 
-There was no need to show off fancy skills like a McGeady spin.
-
-Or a Marseille turn.
+There was no need for fancy moves like the McGeady spin or the Marseille turn.
 
 Simple is best.
 
-I realized this while scoring the first goal today.
+I realized today that simple is the best, scoring a goal.
 
-They can't stop it even if they know.
+This can’t be stopped even if they know it.
 
-I saw the Perugia players getting flustered.
+I saw the panicked Perugia players.
 
-Especially the defenders moving busily.
+Especially the defenders, moving busily.
 
 There were four defenders.
 
-We had three players.
+We had three.
 
-We were outnumbered by one, but it didn't matter.
+We were outnumbered by one, but it didn’t matter.
 
-This counterattack had already messed up their line.
+The opponent’s line was a mess due to this counterattack.
 
--Mino! Mino! He's fast! He's fast again!
+-Mino! Mino! He’s fast! This time too, he’s fast!
 
--He's sprinting right into the danger zone quickly!
+-Quickly running into the danger zone, Mino!
 
-The two central defenders blocking my path must have thought.
+The two center-backs blocking my way must have thought they had perfectly blocked my shooting angle.
 
-They perfectly blocked the angle for a shot.
-
-But I saw it.
+But I could see it.
 
 The perfect trajectory angle.
 
-I moved as if I was being pushed to the opposing left wing by the defender.
+Pretending to be pushed to the left flank by the defender.
 
-Then turned my body again, tricking the opponent's timing, and took a shot with my right foot half-space faster.
+Then, turning my body back to trick the opponent and quickly taking a shot with my right foot from the half-space.
 
 With an outside front kick.
 
-Bang!
-
 Thud!
 
--Mino's multi-goal!
+Flop!
 
--Woohoo! Mino is crazy! Fantastico! Fantastico! Woohoo! A mesmerizing outside front kick!
+-Mino scores a brace!
 
--In just 15 minutes of the first half, the score widened with a 2-point lead! Parma quickly snatched 2 points from Perugia!!
+-Wow! Mino is amazing! Fantastico! Fantastico! Wow, a magnificent outside front kick!
 
-Wow! This went in.
+-The score widens to a two-point difference in just 15 minutes into the first half! Parma seizes two goals against Perugia in a flash!!
 
-Honestly, I wasn't sure about this one.
+Wow! This worked.
 
-After scoring, the players all rushed over.
+Honestly, I wasn’t sure about this one.
 
-"Now it's an outside front kick?"
+As I scored, the players swarmed over me.
 
-"You're really crazy!"
+"Now it’s the outside front kick?"
 
-While sharing the joy of scoring with the players and heading back, Santiago sneaked up and asked.
+"You’re really insane!"
 
-"What video did you watch to play this well?"
+Sharing the joy of scoring with the players, Santiago approached and asked.
 
-I recently told him that I study other players' videos and try to mimic their plays, so now he's all about watching various player videos and copying their moves.
+"Which video did you watch this time to play so well?"
 
-Last time, he got a smack on the head from Coach Alain Lavagne for overusing the Marseille turn, trying to mimic Zidane.
+Since I mentioned that I’ve been studying other players’ videos and imitating their play, he’s been on a rampage, watching videos of different players and imitating their play.
 
-"Come on, tell me! Please?"
+Last time, he tried to imitate Zidane, doing the Marseille turn repeatedly, only to get a light smack from Coach Alain Lavagne.
 
-What's he planning to mimic now?
+"Uh? Please tell me! Please?"
 
-Looking at his desperate face, I had no choice but to tell him when he raised two fingers.
+He must be planning to imitate something again.
 
-"2 Euros?"
+Seeing his desperate face, I had no choice but to tell him when he raised two fingers.
 
-"20 Euros."
+"2 euros?"
 
-Yup, money is the best.
+"20 euros."
 
-"What did you watch and mimic?"
+Yeah, money talks.
+
+"Which video did you watch?"
 
 "Yeah!"
 
-There's a player particularly famous for his highlights in Korea.
+There’s a player known for his highlight reels in Korea.
 
-The protagonist of the term 'Quaresma Special.'
+The one known for the ‘Quaresma Special.’
 
 "Ricardo Quaresma."
 
 "Quaresma?"
 
-"Yeah, I watched 'Quaresma Special' and tried to mimic it."
+"Yeah, I watched the 'Quaresma Special' and tried to follow it."
 
-Santiago made a puzzled face at my words.
+Santiago pulled a face.
 
 Why?
 
-In the videos, he's like a football god.
+He’s practically a football god in videos.
 
 ----
 

@@ -7,427 +7,461 @@ tags:
 
 ## 6. National Team? Me? Why? (3)
 
-- Ah! The game ends!
+- Ah! The match ends!
 
 - The friendly match against Oman concludes with South Korea losing 1-0.
 
-- Ah... The performance was really good, but the lack of finishing ability ultimately held us back.
+- Ah... The performance was really good, but the lack of finishing ultimately held us back.
 
-- This needs to be fixed. Other than Shin Junseo, there is no definite scorer, which is really dangerous, isn't it?
+- This needs to be addressed. Except for Shin Junseo, there isn't a reliable scorer, which is very dangerous.
 
 - Still, Park Minho really stood out, didn't he?
 
-- That's right. Park Minho, who played for the first 45 minutes, was really good. A lot of opportunities were created while he was on the field.
+- That's right. Park Minho, who played during the first 45 minutes, was really good. A lot of opportunities were created while he was on the field.
 
-It was the worst game.
+It was the worst match.
 
-After conceding a goal from a single counterattack, South Korea kept missing good opportunities.
+After conceding a goal from a single counterattack,
 
-Someone might say, "Isn't it just the second team?"
+South Korea kept missing good opportunities.
+
+Some might say,
+
+"Wasn't it just the second team?"
 
 But the opponent was Oman.
 
-No matter how much it was the second team, losing wasn’t an option.
+Even if it was the second team, we shouldn't have lost.
 
-South Korea and Oman were teams with such a significant difference in level.
+That's how much of a level gap there was between South Korea and Oman.
 
-And yet, they lost 1-0 to such a team.
+To lose 1-0 to such a team.
 
-Shots: 23 to 3.
+Shots, 23 to 3.
 
-Shots on target: 10 to 1.
+Shots on target, 10 to 1.
 
-Possession: 65% to 35%.
+Possession, 65 to 35.
 
-Despite leading in all indicators, they lost.
+We led in all metrics but still lost.
 
-Senior Kang Juwon, who played as my partner, sighed deeply and apologized to me.
+Kang Juwon, who played as my partner, let out a long sigh and apologized to me.
 
-“Sorry. I created a lot of good chances.”
+"Sorry. I created so many good chances."
 
-“These things happen in games.”
+"These kinds of games happen."
 
-I knew that senior Kang Juwon had just returned from an injury and wasn’t in his best form.
+I knew that Kang Juwon wasn't in his best form, having just returned from an injury and rejoining the national team.
 
-So, I didn’t say anything.
+So I didn't say anything.
 
 I learned a lot from this game.
 
-Soccer is a team sport played by eleven people.
+Soccer is a team sport played by 11 people.
 
-And I realized why strikers who score goals are so highly valued.
+And why strikers who score goals are so highly valued.
 
 I could feel the reason.
 
-[Shock defeat for South Korea! Despite leading in all indicators, they failed to score!]
+[Shock defeat for South Korea! Despite leading in all metrics, they ultimately failed to score!]
 
-[Dominant debut for Park Minho! But all good opportunities were wasted due to the poor performance of South Korea’s attackers!]
+[Dominant debut for Park Minho! But all good chances were squandered due to the poor form of South Korea's attack!]
 
-[Kang Juwon squandered three killer passes from Park Minho! Is his form not back yet?]
+[Kang Juwon wasted three killer passes from Park Minho! Is he not back to his best yet?]
 
-[A diamond found in a bad game! Park Minho! Shocking A-match debut!]
+[A gem found in a poor match! Park Minho! A shocking A-match debut!]
 
-[Coach Ivanković, ‘We were too dominated by South Korea’s number 17. If it weren’t for the saves by goalkeeper Ali Al Habsi, we would have definitely lost.’]
+[Coach Ivankovic: "We were too swayed by South Korea's number 17. If not for goalkeeper Ali Al-Habsi's saves, we would have definitely lost."]
 
 [Comments]
 
-- Is this... the national team? Hahahahahaha
+- Is this... the national team? Hahahahaha
 
 - Wow, Kang Juwon is really hopeless; how can he miss all those good passes?
 
 - ???: Is this the national team?
 
-- Park Minho could slap the attackers and it would be justified.
+- Park Minho could slap the attackers, and he'd be innocent.
 
-- Shin Junseo: Minho... The national team is like this... You have to score! You! Don’t trust your teammates!
+- Shin Junseo: Minho, the national team is like that... You have to score! You! Don't trust your teammates!
 
-- Isn’t that a quote from a Dodgers pitcher?
+- Isn't that a famous quote from a Dodgers pitcher?
 
-- Similar, but no, lol
+- Close but not quite, lol
 
-- Wow... Park Minho is really amazing. He gets pushed a bit by defenders, but he doesn’t easily lose the ball.
+- Wow... Park Minho is really amazing. He gets pushed a bit by defenders, but he doesn't easily lose the ball.
 
-- When he holds the center like that, other attackers definitely come alive.
+- By holding the center like that, other attackers clearly come alive.
 
-- If later on, we put Shin Junseo in the second line with Lee Junseok, Hwang Yoohyun, and Jung Yoohyuk, and Minho at the forefront, the performance might be even better.
+- Later, if they put Shin Junseo in the second line with Lee Junseok, Hwang Yoohyun, and Jung Yoohyuk, and Park Minho in the forward line, the performance would be better.
 
-- Having an attacker who can both post-play and link-up changes the entire team’s movement.
+- Having a forward who can do post play and link up changes the whole team's movement.
 
-After the match against Oman, the atmosphere among the players sank.
+After the match against Oman,
 
-But Coach Pedro and the coaching staff quickly lifted the team’s spirits and prepared for the next game.
+the team's mood was down.
 
-“Minho, how did it feel to play at the forefront?”
+But Coach Pedro and his coaching staff quickly lifted the spirits and prepared for the next match.
 
-“It’s definitely different from playing in the second line.”
+"Mino, how did it feel to play at the front?"
 
-Indeed, the second line and the forefront were different.
+"It's definitely a different feeling from the second line."
 
-Although the central second line, where he usually played, was increasingly under pressure due to modern soccer trends, it couldn’t be compared to directly competing with defenders at the forefront.
+Definitely.
 
-Still, it had its own fun.
+The second line and the front are different.
 
-Moreover, standing at the forefront allowed me to identify certain shortcomings.
+Although the second central line, where I usually play, is increasingly pressured due to the recent trend in modern soccer,
 
-Even though we lost, I learned a lot from this game.
+it can't compare to being a forward who directly competes with defenders.
 
-It wasn’t just a frustrating game.
+Still, this had its own fun.
 
-“Alright! Let’s push hard for the next five days!”
+Moreover, when I stood at the front,
 
-Following the coach’s words, we focused on training again.
+I identified some weaknesses.
 
-The ninth match of the World Cup final qualifiers against Uzbekistan awaited us.
+We lost, but
+
+I learned a lot from the game.
+
+It wasn't just a frustrating match.
+
+"Alright! Let's train harder for the next five days!"
+
+Following the coach's words, I focused on training again.
+
+The 9th match of the World Cup final qualifiers against Uzbekistan was waiting.
 
 * * *
 
-Although I made my A-match debut with the friendly against Oman, I wasn't very nervous.
+I made my A-match debut with the friendly against Oman,
 
-Perhaps it was because I had mentally prepared myself by thinking, ‘This is just a friendly match.’
+but I wasn't very nervous.
 
-In that sense, the upcoming match against Uzbekistan strangely made my heart race.
+Maybe it was because I kept telling myself, "It's just a friendly."
 
-Whether that was good or bad, it would influence me.
+In that sense, this match against Uzbekistan made my heart race for some reason.
+
+Whether good or bad, it would affect me.
 
 Uzbekistan still had a chance.
 
-They were just 1 point behind third-place China.
+They were just 1 point behind 3rd place China.
 
-Winning here would significantly increase their chances of making it to the playoffs, and from there, albeit slim, they could continue dreaming of the World Cup finals.
+Winning here would significantly increase their chances of advancing to the playoffs, keeping their dream of reaching the World Cup finals alive, albeit slimly.
 
-Thus, unlike South Korea, which was experimenting, Uzbekistan brought out their best eleven.
+So, unlike South Korea, who approached it experimentally, Uzbekistan brought out their best eleven.
 
-They were a team of a similar level to Oman, but some of their players had the talent to play in Europe’s top four leagues.
+Though similar in level to Oman, some of their players have the talent to play in the top 4 European leagues.
 
-With the current squad, they were not a team to be taken lightly.
+A team not to be taken lightly with the current squad.
 
-Before the match started, I texted my parents briefly to say that I would be starting today.
+Before the match started, I briefly texted my parents that I would be starting today.
 
-Would they feel heartache seeing me now?
+Would they feel heartbroken seeing me now?
 
-Whistle!
+Beep!
 
-“Hey! That was too rough.”
+"Hey! That was too rough."
 
-The Uzbek defender who fouled me shrugged and stepped back at the referee’s warning.
+A warning from the referee as the Uzbek defender who fouled me shrugged and backed off.
 
 Well, at least I kept the ball.
 
-Honestly, the taste of grass in my mouth wasn’t pleasant.
+Honestly, the taste of grass in my mouth is a bit unpleasant.
 
-I grabbed the hand extended by the opponent and got up, heading back to my position.
+I grabbed the hand offered by my opponent and stood up, heading back to my position.
 
-A free kick from a somewhat far distance.
+A free-kick from a somewhat long distance.
 
-The kicker was senior Jung Woojun, the oldest member of the national team.
+The kicker was the eldest member of the national team, Jung Woojoon.
 
-As the referee’s whistle blew again, senior Jung Woojun’s kick flew towards the goal.
+The referee's whistle blew again.
 
-Buzz!
+Jung Woojoon's kick flew towards the goal.
 
-“Ah!”
+Dang!
 
-After hearing senior Kang Juwon’s curse for misjudging where the ball would fall, I saw the Uzbek defender clearing the ball far away.
+"Ugh!"
 
-The early stages of the first half were pretty even.
+I heard Kang Juwon's curse after misjudging where the ball would drop, and saw the Uzbek defender clear the ball far away.
 
-It meant the opponent was really determined.
+The early part of the first half was surprisingly even.
+
+It meant the opponent was determined.
 
 Knowing this, Coach Pedro was giving instructions louder than usual.
 
-A pass was delivered to me again.
+The ball was passed to me again.
 
-But I couldn’t connect further.
+But I couldn't connect it further.
 
-Whistle!
+Beep!
 
-“Ah!”
+"Ouch!"
 
 Another tackle.
 
-For some reason, they were particularly rough on me today.
+They were particularly rough on me today.
 
-Not that they were maliciously rough.
+Not maliciously rough,
 
-They were just playing tough.
+but just enough.
 
-Soccer is a tough sport, so I could fully understand it.
+Soccer is a physical sport, so I could understand.
 
-Still, I couldn’t just keep taking it.
+But I couldn't just keep taking it.
 
-Pretending to be in a bit of pain, the referee firmly drew a yellow card at the next foul.
+Feigning a bit more pain, the referee decisively pulled out a yellow card for the next foul.
 
-“No! I didn’t tackle that hard!”
+"No! I didn't foul that hard!"
 
-Sorry, but my acting was better this time.
+Sorry, but
+
+my acting was better this time.
 
 The referee was firm.
 
 The Uzbek defender was flustered.
 
-With this, one of the central defenders would no longer easily hold me down.
+Now, one of their center-backs couldn't easily mark me.
 
-The guy still whining.
+Still grumbling, the guy.
 
-Damn, if my calf hurts through the shin guards, he pretty much just swung wildly, didn’t he?
+Damn it. If my calf hurts through the shin guard, you basically swung recklessly, didn't you?
 
-That’s just shameless.
+That's just shameless.
 
-“Your performance in the Oman match must have been really impressive! They’re all targeting you.”
+"Was your performance in the Oman match that impressive? They keep fouling you."
 
-“Seems like it.”
+"Seems like it."
 
-Senior Kang Juwon extended a hand.
+Kang Juwon offered a hand.
 
-Ugh... my back aches.
+Ugh... my waist hurts.
 
-Barely getting up, I moved a bit after resting for a moment.
+I barely got up and moved after a short rest.
 
-Another free kick.
+Another free-kick.
 
-Senior Jung Woojun stood over the ball again.
+Jung Woojoon stood by the ball again.
 
-Slowly positioning myself, I looked at senior Jung Woojun.
+Slowly taking my position, I looked at Jung Woojoon.
 
-Soon, he raised his hand and the free kick flew in.
+As he raised his hand, the free-kick flew in.
 
-It was lower than I expected.
+It was lower than expected.
 
 My body reacted instinctively.
 
 I could definitely get this.
 
-Putting in a bit of effort, I stretched my foot out.
+Putting in some effort, I stretched my foot.
 
-And as soon as the ball touched my foot, I lifted it high towards the goal with my back to it.
+As soon as the ball hit my foot, I lifted it high towards the goal, turning my back to it.
 
-I felt a presence behind me.
+I sensed someone behind me.
 
-Must be a Uzbek defender.
+An Uzbek defender, probably.
 
 At that moment, an image formed in my mind.
 
-My body moved exactly as I thought.
+My body moved exactly as I imagined.
 
-Timing my jump with the falling ball, I lifted my left foot high over my head.
+As the ball dropped, I shifted my weight and jumped.
 
-Bam!
+I lifted my left foot high over my head.
 
-The ball hit my foot and shook the net swiftly.
+Wham!
 
-It was too quick for the goalkeeper to react.
+The ball hit my foot and quickly shook the net.
 
-He couldn’t track the trajectory of the shot.
+The goalkeeper couldn't react in time.
 
-But I was sure it was a goal.
+He couldn't read the trajectory of the shot.
 
-“Ahhhh! You crazy guy!”
+But I was sure of the goal.
 
-“Park Minho! You madman!”
+"Ahhhhh! You crazy guy!"
 
-“It’s a goal! Gooooooal!”
+"Park Minho! You maniac!"
 
-In an instant, my teammates swarmed over me.
+"It's a goal! Gooooooal!"
+
+In an instant, the other players swarmed over me.
 
 * * *
 
-- It’s not good.
+- It's not good.
 
-- There’s a good chance here. South Korea. They can make the most of it.
+- There's a good chance here. South Korea. They can make the most of this opportunity.
 
-- The ball reaches Park Minho. Ah! Vitaliy Denisov of Uzbekistan gets a yellow card.
+- The ball goes to Park Minho. Ah! A yellow card for Uzbekistan's Vitaliy Denisov.
 
 - It was definitely a rough foul.
 
-- Park Minho is receiving a lot of attention today. This is only his A-match debut following the friendly against Oman, but he showed a brilliant performance.
+- Park Minho is receiving a lot of attention today. He made his A-match debut in the friendly against Oman and showed an outstanding performance.
 
-- Unlike Kang Juwon, he’s a different type of striker. His post-play and link-up were really good, right? Knowing this, Uzbekistan is applying strong pressure.
+- He's a completely different type of forward from Kang Juwon. Especially his post play and link-up were excellent, right? Uzbekistan seems to be aware of that and is putting strong pressure on him.
 
-“Won’t Minho get injured at this rate?”
+"Is Minho going to get injured at this rate?"
 
-“Damn... Do they really have to treat Minho, who’s supposed to be the cornerstone of AC Milan, so roughly? These bastards.”
+"Jeez... They’re treating Minho, who should be the backbone of AC Milan, so roughly? These bastards."
 
-“No, Minho will come to Inter.”
+"No, Minho will come to Inter."
 
-In a home in Milan, Park Minho’s friends studying abroad were gathered to watch the South Korean national team game.
+In a house in Milan,
 
-Even though the internet was slightly slow and lagging, it couldn’t hinder their love for soccer.
+Park Minho's friends from his study abroad days were gathered to watch the South Korean national team match.
 
-Kim Joosik, using the group chat ID ‘LoveMilan,’ gulped down his beer roughly.
+Although the internet was a bit slow and laggy,
 
-“But... what’s up with the national team’s attackers today? Just like the Oman game, they’re not finishing anything.”
+it couldn't dampen their love for soccer.
 
-Cha Hyerin, using the ID ‘RealMilan,’ frowned and agreed with Kim Joosik’s sentiment.
+Kim Jushik, using the chat ID 'LoveMilan', gulped down his beer roughly.
 
-“Today, Kang Juwon is really bad... He already missed two goals! Please, just score one!”
+"But... what's with the national team's attackers? They couldn't capitalize in the Oman match, and they're missing chances again today."
 
-The two were cursing the poor performance of South Korea’s attackers while drinking.
+Cha Hyerin, with the ID 'RealMilan', frowned and agreed with Kim Jushik's words.
 
-- Now a free-kick situation.
+"Kang Juwon is playing terribly today... He already missed two goals! Just score one, please!"
 
-- Jung Woojun’s free-kick!
+The two of them were downing their drinks while cursing the poor performance of South Korea's attack.
 
-- It seems a bit low... Ah! Park Minho has it! And the ball is high... Oh! Just like that!
+- Now, a free-kick situation.
 
-- Just like that, a shot! Gooooooal!
+- Jung Woojoon's free-kick!
+
+- It looks a bit low... Ah! Park Minho has it! And the ball bounces high... Oh! He shoots!
+
+- Goal!
 
 - An incredible goal!
 
-Waaah!
+Wow!
 
-Suddenly, the two who were cursing South Korea’s attackers jumped up from their seats.
+In an instant, the two who were cursing South Korea's attack jumped up from their seats.
 
-“What’s going on? What’s happening?”
+"What happened? What happened?"
 
-Lee Seongkyung, using the ID ‘KingWangJangJuve,’ who was bringing some snacks from the kitchen, hurried into the living room.
+'KingJuventus' Lee Seongkyung, who was bringing some snacks from the kitchen, rushed to the living room.
 
-But the magnificent scene had already passed, leaving only the caption that Park Minho had scored.
+But the wonderful moment had already passed, and only the subtitles announcing Park Minho's goal remained.
 
-“Wait. They’ll show the replay soon.”
+"Wait. They'll show a replay soon."
 
-Just as Cha Hyerin said, Park Minho’s opening goal was replayed shortly after.
+As Cha Hyerin said,
 
-A sensational bicycle kick.
+soon, Park Minho's opening goal was replayed.
 
-Watching Park Minho’s performance, the three friends expressed their joy.
+A fantastic bicycle kick.
 
-“Wow... Truly Park Minho! He’s on another level.”
+Seeing Park Minho's display, the three of them were elated.
 
-“Right.”
+"Wow... Park Minho! He's on another level."
 
-“Honestly... could Minho be the god of soccer?”
+"Right."
 
-“Maybe.”
+"Honestly... could Minho be the god of soccer?"
 
-Their friend was instantly elevated to the god of soccer.
+"Maybe."
 
-“Minho will definitely become an incredible player.”
+Their friend was instantly elevated to the status of a soccer god.
 
-“I think so too.”
+"Minho will definitely become an amazing player."
 
-“But I don’t think his current team can handle him.”
+"I think so too."
 
-“Parma? A good team, but... it’s definitely too much.”
+"But I don't think his current team can handle him."
 
-“Sorry to Roberto, but you’re right.”
+"Parma? It's a good team, but... it's too much."
+
+"Sorry to Roberto, but you're right."
 
 The three nodded in agreement.
 
-“Definitely, Minho to AC Milan...”
+"Still, Minho should go to AC Milan..."
 
-“No, Inter is Minho’s...”
+"No, Inter is where Minho should go..."
 
-“Juventus is...”
+"Juventus is..."
 
-However, their opinions did not match.
+But,
 
-A brief silence followed.
+their opinions did not match.
 
-The three then spoke again.
+After a moment of silence,
 
-“““You soccer noobs.”””
+they spoke again.
+
+"““Soccer noobs.”””
 
 * * *
 
-Whistle! Whistle! Whistle!
+Beep! Beeeep! Beeeep!
 
-- The game ends!
+- The match is over!
 
-- A 2-0 victory! South Korea lost to Oman in the previous friendly but secured a refreshing 2-0 victory over Uzbekistan today, bringing a positive atmosphere.
+- A 2-0 victory! South Korea, after losing to Oman in the friendly, bounces back with a 2-0 win against Uzbekistan, bringing a good atmosphere.
 
-Unlike the Oman match, goals came easily, and the performance was much better.
+Unlike the Oman match, we scored well.
 
-Senior Kang Juwon, who had a terrible form in the Oman match, also had a much brighter expression today.
+The performance was much better.
 
-I thought senior Kang Juwon would be the MVP today, but...
+Kang Juwon, who had a terrible form in the Oman match, looked visibly brighter.
 
-Standing next to the reporter with bright makeup was me, who scored a lucky goal.
+I thought the MVP today would be Kang Juwon,
 
-Honestly, I don’t remember what questions I was asked.
+but standing next to a brightly made-up reporter was me, who luckily scored a goal today.
 
-I just answered briefly and earnestly...
+Honestly, I don't remember what questions I was asked.
 
-Concerned about any issues, I contacted Leo, who replied, ‘Your answers were fine.’
+I just focused on giving short answers...
 
-Phew, what a relief.
+Worried it might be a problem, I contacted Leo, who said, "They were not bad answers."
 
-[A new forward candidate! Park Minho! Shocking debut match and debut goal!]
+Phew, that's a relief.
 
-[Park Minho’s fantastic bicycle kick debut goal against Uzbekistan!]
+[A new striker candidate! Park Minho! A shocking debut and debut goal in the match against Uzbekistan!]
 
-[Coach Pedro, ‘Park Minho is definitely a player in my plans. Today’s performance confirmed it further.’]
+[Park Minho's fantastic bicycle kick debut goal against Uzbekistan!]
 
-[The fierce competition for the forward position! Kang Juwon, Park Sangbin, Lim Juseong, and Park Minho! Coach Pedro faces a happy dilemma with various styles of forwards!]
+[Coach Pedro: "Park Minho is definitely a player in my plans. Today's performance gave me more confidence."]
+
+[A fierce battle up front! From Kang Juwon, Park Sangbin, Lim Joosung, to Park Minho! Coach Pedro is delighted with various styles of forwards!]
 
 [Comments]
 
-- Truly the Korean Benzema... Wow, seeing him hold the ball in a physical battle and then make killer passes, I was really impressed.
+- Truly a Korean Benzema... Wow, seeing him hold the ball under pressure and deliver killer passes was impressive.
 
-- Kang Juwon and Park Sangbin are good forwards, and Lim Juseong is better at post-play than Park Minho, so it must be a tough decision.
+- Kang Juwon and Park Sangbin are already good forwards, and Lim Joosung is better at post play than Park Minho, so it must be a tough decision.
 
-- The Oman match was disappointing... But such games aren’t always absent, so I understand.
+- The Oman match was disappointing, but... such games do happen. I understand.
 
-- More than that, Parma is so lucky, lol. They got such a player for free and are using him as a starter, lol.
+- More importantly, Parma must be thrilled, lol. They got such a player for free and made him a starter, haha.
 
-- ???: From now on... should we start hyping him?
+- ???: From now on... should I start praising him?
 
-- Sir, that’s a risky joke.
+- Sir, that's a risky joke.
 
-The fans' and media's reactions were favorable.
+The reactions from soccer fans and the media were positive.
 
-But I wasn’t satisfied.
+But I wasn't satisfied.
 
-No matter how much my post-play and link-up play were my strengths at the forefront...
+Even though post play and link-up are my strengths as a forward...
 
-Honestly, I preferred scoring goals.
+Honestly, I prefer scoring goals.
 
-So, when I get called up to the national team again, I want to be a much better player and help the team more than I did today.
+So,
 
-Sure, link-up play is good, but...
+next time the national team calls me, I want to be an even better player and help the team.
+
+Yes, linking up is good, but
 
 I want to be a player who scores goals better than anyone.
 
-In the national team, I want to be that kind of player.
+That's the kind of player I want to be for the national team.
 
 ----
 

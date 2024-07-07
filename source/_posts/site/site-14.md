@@ -9,369 +9,361 @@ tags:
 
 World Best Agency.
 
-Known as WB Agency, it was founded by Leo Carpentieri, Park Minho's agent.
+In short, WB Agency is an agency founded by Leo Carpentieri, who is Park Minho's agent.
 
-This place prides itself on "elite few."
+This place operates on a 'select elite' basis.
 
-In other words, it’s a mid-sized agency comprising a small number of players with exceptional talent.
+In other words, it is a mid-sized agency consisting of a few outstandingly talented players.
 
-Because of this, they sometimes faced financial difficulties due to the lack of mid-tier players.
+Because of this, there are no mid-tier players, which sometimes leads to financial difficulties. However, they have overcome these challenges and established themselves as a well-recognized agency.
 
-However, they overcame these challenges and established themselves as a reputable agency.
+Anyways.
 
-Anyway.
+They have a unique department that other agencies can hardly imitate.
 
-They have a unique department that no other agency has.
+The PR team.
 
-The PR Team.
-
-More specifically, the 'Documentary Production Team' within the PR Team was unique to this agency.
+That is, the 'Documentary Production Team' belonging to the PR team was a unique department that no other agency had.
 
 In fact, it was Leo Carpentieri who instructed the creation of this department.
 
-When he watched 'Sunderland 'Til I Die,' he thought that creating documentaries for players rather than clubs would be a great idea.
+The moment he watched 'Sunderland 'Til I Die,' he thought they should make documentaries for players, not clubs.
 
-A simple documentary summarizing the player's life from childhood to the present.
+It was, in some ways, a simple documentary that organized the player's life from childhood to the present.
 
-Some employees questioned, "How would this benefit the players?"
+Some employees asked, "How does that help the players?"
 
-Leo just responded with a mysterious smile.
+But Leo just showed an inscrutable smile.
 
-As 'Sunderland 'Til I Die' succeeded and various club documentaries gained attention,
+And as 'Sunderland 'Til I Die' became a hit and various club documentaries gained popularity, the documentaries of players from his agency also began to spread by word of mouth.
 
-the documentaries of the agency's players also started to gain word-of-mouth popularity.
+It wasn’t the fans of the players spreading it.
 
-It wasn’t the fans of the players who spread the word.
+It was the scouts from various clubs who spread the word.
 
-It was the scouts of various clubs.
+When Leo produced a documentary of his first player, Bruno Campos, the current AC Milan midfielder, he included everything about Bruno.
 
-When Leo created a documentary for his first player,
+His strengths, the life he lived, how others viewed his character, and even his weaknesses and bad traits.
 
-Bruno Campos, the current midfielder of AC Milan,
+In an industry where highlighting only the strengths is the norm, Leo's documentary was not a good packaging.
 
-he included everything about Bruno.
+However, for clubs that had recently been burned by young players with poor mentality and character, this documentary that revealed both strengths and weaknesses was appealing.
 
-His strengths, his life journey,
+They could understand who the player was and determine if he would fit into their team through the documentary.
 
-how others viewed his personality, and even his weaknesses and bad traits.
+Therefore, after watching Bruno Campos' documentary, AC Milan contacted him.
 
-In a field where only highlighting strengths is common, Leo's documentary was far from being a good wrapper.
+The result was immensely successful.
 
-But it appealed to clubs who had been burned by the poor mentality and character of promising players.
+Last year, AC Milan securing second place in Serie A was largely thanks to Bruno Campos, who almost perfectly protected the team's defense from the third line.
 
-They could understand the player's character and assess if he would fit into their team.
+"We are extremely satisfied with this signing."
 
-As a result, AC Milan approached Bruno Campos after watching his documentary.
+"Especially, watching the documentary allowed us to understand how Bruno grew and the mindset he had."
 
-The outcome was incredibly successful.
+"Thanks to that, we could predict the chemistry he would show when he joined our squad."
 
-Last year, AC Milan finishing second in Serie A was largely thanks to Bruno Campos, who almost perfectly protected the team's defense from the midfield.
+"Yes, this signing was successful as we expected."
 
-"It was a very satisfying acquisition."
+The director of AC Milan was highly satisfied.
 
-"Especially, by watching the player's documentary, we could understand how Bruno grew and what mindset he had."
+At the same time, other documentaries began to be produced.
 
-"Thanks to this, we could predict what kind of chemistry he would bring to our team."
+Leo's other players also started to film these documentaries one by one, leading to more successful transfers.
 
-"Yes, this acquisition was successful as we expected."
+Of course, it wasn’t always successful.
 
-The director of AC Milan was very satisfied.
+Revealing weaknesses significantly affected the player's market value.
 
-Simultaneously, other documentaries began to be produced.
+This led to some disappointing results in negotiations.
 
-Leo's other players gradually filmed these documentaries, leading to successful transfers.
+Nevertheless, Leo did not stop producing these documentaries.
 
-Of course, it wasn't always successful.
-
-Revealing weaknesses significantly impacted the player's market value.
-
-This sometimes resulted in disappointing negotiations.
-
-However, Leo did not stop producing these documentaries.
-
-And the word spread to the extent that some OTT platforms approached them first.
+And this word of mouth spread so much that some OTT platforms contacted them first.
 
 That renowned documentary production team was now in Korea.
 
-To produce a documentary on Leo's 10th player,
+To produce a documentary of the 10th player personally managed by Leo.
 
-Park Minho.
+To make a documentary of Park Minho.
 
 (What kind of player was Park Minho?)
 
 "Minho?"
 
-"Minho… he was alright. He consistently enjoyed soccer and was more passionate about it than anyone else."
+"Minho...he was fine. He consistently enjoyed football and was more sincere about it than anyone else."
 
-"But… he wasn't a player who grew quickly."
+"But...he wasn't a rapidly growing player."
 
-This was the calm response of Coach Lee In-tae in front of the camera.
+Coach Lee In-tae calmly answered in front of the camera.
 
-He was Park Minho's mentor during his high school days.
+He was Park Minho's mentor during high school.
 
 (Do you mean his talent was ambiguous?)
 
 "Not that... How should I put it?"
 
-“Players called geniuses grow on an upward curve like riding an escalator.”
+"Players called geniuses grow in an upward curve like riding an escalator."
 
-“But… Minho was different. He definitely grew, but it was like climbing a cliff.”
+"But... Minho was different. He certainly grew, but it was like climbing a cliff?"
 
-“He learned faster than other kids. But his ability to apply what he learned was very lacking.”
+"He learns much faster than other kids. But his ability to apply what he learned is very lacking."
 
-“So, it was like he was growing but struggling as if climbing a cliff.”
+"So, it's like climbing a cliff. He’s certainly growing, but Minho struggles."
 
-“To Minho, it looked like others were comfortably riding an escalator while he was struggling up a cliff.”
+"To Minho, it looks like others are riding an escalator and going up comfortably."
+
+"While he himself is struggling to climb a cliff."
 
 Yes, Park Minho was such a player.
 
-Too quick to learn to be called a late bloomer.
+He learned quickly to be a late bloomer.
 
-But lacking the brilliance to be called a genius.
+But he lacked the brilliance to be called a genius.
 
-An ambiguous player.
+A somewhat ambiguous player.
 
 (What was his personality like?)
 
-"He said he was very cautious. But from my perspective, he wasn't cautious; he was very prudent."
+"He says he is timid. But from my perspective, he is not timid but very cautious."
 
-"That's why he quit soccer after graduating high school. He knew his chances of success in soccer weren't high."
+"That's probably why he quit football after graduating high school because he knew his chances of succeeding in football were not very high."
 
-"Or… even if he succeeded, it would take a long time. He needed money urgently back then. I heard he attended college and worked in a factory to pay for his father's hospital bills. Because of that, his grades plummeted. He said it was because he enjoyed soccer while attending college, but…"
+"Or... even if he succeeded, it would take a long time. Back then, Minho was in urgent need of money. I heard he worked at a factory while attending college to pay for his father's hospital bills. Because of that, his grades were terrible. He said it was because he enjoyed playing football while in college..."
 
-Coach Lee knew that wasn't the truth.
+But he knew that wasn't the case.
 
-Thanks to Minho’s year of hard work, his father recovered, and he now runs a successful restaurant.
+Thanks to Minho’s one-year struggle, his father recovered and now runs a restaurant successfully.
 
-That restaurant did so well that Park Minho could serve in the military and then study abroad in Parma, Italy.
+The restaurant did so well that Park Minho could go to Italy to study in Parma after completing his military service.
 
-Yes, he was a filial son and kind-hearted.
+Yes, he was a filial son with a kind heart.
 
-(Do you still keep in touch with him?)
+(You still keep in touch?)
 
-"Yes. He's one of my students that I still feel… regretful about. I was confident I could have nurtured him into an exceptional soccer player if I had just a little more time."
+"Of course. Among the students I raised, Minho still... I feel regretful. If only he had a bit more time, I had confidence I could have made him an outstanding football player."
 
-"That's why it's more regretful."
+"That's why I feel more regretful."
 
-It was a great regret that he couldn't witness Park Minho's debut match with his own eyes.
+He deeply regretted not being able to see Park Minho's debut match with his own eyes.
 
-(How did you feel when you heard that Park Minho made his debut in Serie B?)
+(How did you feel when you heard that Park Minho debuted in Serie B?)
 
 "I was surprised."
 
-"To suddenly hear such news from Italy was really surprising."
+"I was really surprised when I suddenly heard such news from Italy."
 
-Coach Lee was relieved.
+Coach Lee In-tae was relieved nonetheless.
 
-A talented player had returned to the soccer world.
+A talented player had returned to the football world.
 
-So he could smile more brightly than anyone.
+So he could smile brightly more than anyone else.
 
-(If you could coach Park Minho again… how would you want to train him?)
+(If you could coach Park Minho again, how would you like to train him?)
 
-"I mentioned this before. Park Minho learns very quickly but lacks application skills."
+"I said this before. Park Minho learns incredibly fast but lacks the ability to apply it."
 
-(Yes, you did mention that.)
+(Yes, you said that.)
 
-"I'd probably show him Messi's highlight videos and tell him to imitate them. Honestly, even if he imitates half of it, he could be the best in Korea."
+"I would probably show him a bunch of Messi highlight videos and tell him to imitate them. Honestly, if he could imitate half of that, he would be the best in Korea."
 
-"Hahaha… I'm just joking."
+"Haha... Just kidding."
 
-"No matter how good Minho's learning ability is, can he fully imitate something just by watching a video?"
+"No matter how good Minho's learning ability is, would he be able to perfectly imitate something just by watching a video?"
 
-Coach Lee laughed.
+Coach Lee In-tae laughed.
 
-He knew it was unrealistic.
+Even he thought it was nonsense.
 
-If someone could imitate everything by just watching, anyone could become Messi, he laughed heartily.
+If watching videos could make everyone imitate Messi, anyone could be Messi, he laughed heartily.
 
 * * *
 
 Beep! Beep! Beep!
 
-The match ended.
+The game ended.
 
-"Shit! Shit! Shit!"
+"Damn it! Damn it! Damn it!"
 
 Carlito angrily kicked the grass.
 
-A 4-1 home defeat.
+A 4 to 1 home defeat.
 
-The home fans hurled insults and jeers at the S.P.A.L team they supported.
+Home fans of S.P.A.L were hurling insults and boos at their team.
 
-Boo! Boo! Boo!
+Boooooo!
 
-Carlito, you son of a bitch!
+Carlito, you bastard!
 
-Can't even stop that? You son of a bitch!
+Can't you even block that? You bastard!
 
-Carlito was not in a good mood.
+Carlito wasn't feeling good.
 
-A newcomer playing on the flank had repeatedly broken through against him.
+A player who was playing on the flank for the first time managed to dribble past him several times.
 
-As a result, he became the scapegoat for today’s defeat and faced harsh criticism from home fans.
+Thanks to that, he became the main culprit for today's defeat and was harshly criticized by the home fans.
 
-Nonetheless, he fared better after the damn Asian was substituted in the 63rd minute.
+Still, after the damn Asian kid was substituted in at the 18th minute of the second half, it was manageable.
 
-However, the three-goal deficit did not narrow any further.
+But the 3-goal deficit didn't narrow any further.
 
-Then, from a distance, Park Minho approached.
+At that moment, Park Minho approached from afar.
 
-Carlito shook hands with him lightly, as he wore a jacket.
+Carlito lightly shook hands with him, who was wearing a jacket.
 
-The words Minho left shattered Carlito’s already fragile mental state, grinding it into dust.
+The words Park Minho left shattered Carlito’s already broken mentality into pieces.
 
-"I'll watch more Hazard videos next time."
+"Next time, I'll watch more Hazard videos."
 
 Carlito thought.
 
 I really don't like this guy.
 
-So he shot back with a sharp retort.
+So he responded with a sharp retort.
 
-"Why not watch Messi videos instead?"
+"Why don't you just watch Messi videos?"
 
-Hearing this, Park Minho nodded seriously with a peculiar expression and replied.
+Park Minho nodded seriously with a strangely serious expression and replied.
 
-"That might be a good idea."
+"That sounds good too."
 
-"Sure, if you can emulate even half of Messi, I'll buy you an expensive sports car later. Though... I doubt you can."
+"Sure, if you can even imitate half of Messi, I'll buy you a fancy sports car. Well... if it's even possible."
 
-"Alright, I'll try to play like Messi someday."
+"Alright, I'll try to play like Messi next time."
 
-Carlito thought after hearing Minho's response.
+Hearing that, Carlito thought.
 
-This Asian guy has some serious swagger.
+This Asian guy's bluffing is on another level.
 
 * * *
 
-[Two consecutive wins in the league! Parma leads the season early!]
+[2 Consecutive Wins in the League! Parma Leading at the Start of the Season!]
 
 (Serie B Round 2)
 
-- Parma Calcio 4 : 1 S.P.A.L
+-Parma Calcio 4 : 1 S.P.A.L
 
-Scorers: Lautaro Valentia (14), Lautaro Valentia (25), Park Minho (55), Gennaro Tatis (78), Samuele Esposito (88)
+Goals: Lautaro Valentia (14), Lautaro Valentia (25), Park Minho (55), Gennaro Tatis (78), Samuele Esposito (88)
 
 MVP: Lautaro Valentia
 
-[Is it really a super team? S.P.A.L’s shocking defeat!]
+[Is it Really a Super Team? S.P.A.L’s Shocking Defeat!]
 
-[Parma's excellent tactics! Minho's movement on the flank is noteworthy!]
+[Parma’s Excellent Tactics! Minho’s Move to the Flank is Impressive!]
 
-[Minho ranks 2nd in the team ratings! Second only to MVP Lautaro Valentia!]
+[Minho, 2nd Best Rating in the Team! Second Only to MVP Lautaro Valentia!]
 
-[Minho stands out on both central and left positions! Becomes a definitive option for Parma!]
+[Minho Shows His Presence Both in the Center and on the Left! Becomes a Reliable Option for Parma!]
 
-[Coach Alain Lavin: “Minho? He looked like Hazard today. Next time, we might position him at the forefront.”]
+[Coach Alain Levagne, ‘Minho? He looked like Hazard today. We might even use him at the forefront next time.’]
 
 [Comments]
 
-- Amazing! They beat S.P.A.L!
+-Amazing! They beat S.P.A.L!
 
-- Moving Minho to the flank was the best decision. Coach Alain Lavin is extraordinary!
+-Minho’s move to the flank was the best choice. As expected, Coach Alain Levagne is amazing!
 
-- It's incredible that a player like this was a free transfer. So thrilled.
+-Can't believe such a player was free... It’s surreal.
 
-- We could deploy Franco in central, Minho on the left, and Santiago on the right for crucial games.
+-Now we can think about tactics with Franco in the center, Minho on the left, and Santiago on the right in important matches.
 
-- Can we expect great things this season?
+-Can we expect great things this season?
 
-- Raise the player well, Juventus. We'll take him later.
+-Raise Juventus' player well. We need to take him later.
 
-- Shut up. Idiots.
+-Shut up. Idiots.
 
-Out of the two league games, I started one and came on as a substitute in the other, scoring one goal.
+Out of 2 league games, I started one and substituted in the other, scoring 1 goal.
 
 My performance was quite decent.
 
-Considering the Italian Cup, I had performed well enough to become a key player for the team.
+Considering the Italian Cup, it was enough to become a key player for the team.
 
-[Three consecutive wins in the league! Parma leads alone!]
+[3 Consecutive Wins in the League! Parma Takes the Lead Alone!]
 
 (Serie B Round 3)
 
-- Parma Calcio 3 : 1 Vicenza
+-Parma Calcio 3 : 1 Vicenza
 
-Naturally, I started in the next match too.
+Of course, I started in the next game as well.
 
-I played for 61 minutes and recorded one assist.
+I played 61 minutes and recorded 1 assist.
 
-- Park Minho -
+-Park Minho-
 
-League: 3 matches, 1 goal, 1 assist.
+3 games in the league, 1 goal, 1 assist.
 
-Italian Cup: 1 match, 2 goals, 2 assists.
+1 game in the Italian Cup, 2 goals, 2 assists.
 
-Season: 4 matches, 3 goals, 3 assists, 1 MVP.
+4 games in the season, 3 goals, 3 assists, 1 MVP.
 
-I continued to perform exceptionally.
+I continued to perform excellently.
 
-But I wasn’t satisfied.
+However, I wasn’t satisfied.
 
-"So... like this, in this way."
+"So... this way, like this."
 
-"And you can also approach it this way."
+"I see, it can be solved like this too."
 
-Watching Santiago’s dribbling, I learned something new today.
+Watching Santiago dribble, I learned one thing at a time today as well.
 
-Santiago was definitely more talented than me.
+Certainly, Santiago had more talent than me.
 
-Unlike me, who could only do one thing after learning it, Santiago could do two or three things.
+Unlike me, who could only do one thing after learning one, he could do two or three things.
 
-"That's impressive."
+"Amazing."
 
-"Actually, I think you're more impressive, Minho."
+"Actually, I think you are more amazing, Minho."
 
-"Really? I'm envious of your talent."
+"Really? I envy your talent more."
 
-I just imitated what Santiago showed.
+I just did exactly what Santiago showed.
 
-But I envied Santiago's talent.
+Rather, I envied Santiago's talent.
 
-Well, Santiago looked at me with a puzzled expression.
+Well, Santiago looked at me with a confused expression after hearing what I said.
 
-"You're not mocking me, are you?"
+"You're not mocking me, right?"
 
-"No, I'm serious."
+"No, I’m serious."
 
-Yes, I was serious.
+Yes, I was sincere.
 
-"Anyway, you’ll get to rest for two weeks."
+"Anyway, you’ll rest well for two weeks then."
 
-"The international match period is coming up, right? Aren't you going?"
+"Yeah, the A-match week is coming, right? Aren’t you going?"
 
-"Think about who plays in my position."
+"Think about who’s in my position."
 
-Ah! Messi plays in Santiago's position.
+Ah! Messi is in Santiago’s position.
 
 Poor guy.
 
-"Won't the national team call you, Minho? With your performance, they should call you at least once."
+"Isn’t Minho called up for the national team? With this performance, they should call you at least once."
 
-"No coach would be crazy enough to call a late-blooming rookie who just debuted. Especially for the national team... They'd call much younger and more talented players."
+"No coach is crazy enough to call a late-blooming rookie who just debuted. And it's the national team... They would call much younger and more talented players than me."
 
-"Well... true."
+"Well... that’s true."
 
-Santiago nodded in agreement.
+Santiago nodded.
 
-Just then, a coach with a pale face ran towards me from afar.
+At that moment, a coach with a pale face ran towards me from afar.
 
 "Minho! Minho!"
 
-"What's the matter?"
+"Is something wrong?"
 
-I asked, and the coach nodded vigorously.
+The coach nodded vigorously at my question.
 
 "The national team called you! Minho!"
 
-Upon hearing that, I was stunned.
+Hearing that, I was dumbfounded.
 
-Wait, the national team suddenly?
+Wait, the national team?
 
-I was so flustered that I hurriedly asked the coach.
+It was so sudden that I hurriedly asked the coach.
 
-"The national team?"
+"National team?"
 
 ----
 

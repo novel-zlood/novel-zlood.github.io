@@ -7,93 +7,95 @@ tags:
 
 ## 4. Pro Debut (1)
 
-"Waaaaah! Who's number 27?"
+"Uwaaaaah! Who's number 27?"
 
 "Minho? Park Minho? Is he Korean?"
 
 "Mi-no! Mi-no! Mi-no! Mi-no!"
 
-The moment the score became 2-2.
+The moment it became a 2-2 tie.
 
-The excited shouts of Parma's fans filled the field.
+The excited shouts of Parma fans filled the field.
 
 As expected, Italians are the most passionate people in Europe.
 
-It's just a friendly match, but they're this excited.
+Even for a friendly match, they are this enthusiastic.
 
-What if I had scored in a derby?
+What if I scored a goal in a derby?
 
-Wouldn't it have been a blazing scene?
+Wouldn't there be flares going off?
 
-It sends a little chill down my spine.
+I felt a slight chill in my chest.
 
 Anyway.
 
-"Minhooooooo!"
+"Minooooooo!"
 
-"Minho! Minho! Park Minho!"
+"Mino! Mino! Park Minho!"
 
-"Waaaaah!"
+"Uwaaaaaah!"
 
-But seriously, why are they calling my name all the way to the half-line?
+But why do they keep calling my name all the way to the halfway line?
 
-"Minho! Just wave your hand once."
+"Mino! Just wave once."
 
-"But, Gianluca scored the goal."
+"But Gianluca scored the goal."
 
-"You made the goal happen."
+"You created the goal."
 
-As Gianluca urged me with a bright smile, I awkwardly waved my hand, and they liked it even more.
+When I awkwardly waved in response to Gianluca's bright smile, they liked it even more.
 
-"Waaaaah! Minho waved at me!"
+"Uwaaaah! Mino waved at me!"
 
-"Minho! Minho!"
+"Mino! Mino!"
 
-I feel a strange sense of emotion.
+I felt a strange sense of emotion.
 
-What will it be like when I actually score a goal later?
+What will it be like when I score a goal later?
 
-I embraced this thrilling sensation in my chest and started to focus on the game again.
+With this thrilling feeling in my chest, I started to focus on the match again.
 
-Soccer is really fun.
+Football is really fun.
 
 * * *
 
-Soccer is a sport of mistakes.
+Football is a sport of mistakes.
 
-If there were no mistakes in soccer, the score would always be just 0-0, and no one would come to the stadium to watch this boring sport.
+If there were no mistakes in football, the score would always remain 0-0, and no one would come to the stadium to watch this boring sport.
 
 A sport built on mistakes.
 
-That's soccer, and the more you delve into it, the more you realize how unpredictable it is.
+That's football, and the deeper you dig into it, the more mysterious it becomes.
 
-You press your opponent for 90 minutes.
+You can press the opponent for 90 minutes straight.
 
-You pound them and mess them up.
+Overwhelm and wreck them.
 
-Yet, a single shot in the 90+1 minute can result in a comeback or an equalizer, costing you the victory.
+But in the 90+1 minute, one shot can lead to a comeback or an equalizer, ruining the victory.
 
-That's the sport called soccer.
+That's the nature of football.
 
-In that sense, until the 20th minute of the second half, Genoa was perfectly pressuring Parma and dominating the game.
+In that sense, until the 20th minute of the second half, Genoa was completely dominating Parma by pressing them perfectly.
 
-But the score was 2-2.
+But the result was 2-2.
 
-Naturally, Genoa wouldn't be satisfied.
+Of course, Genoa would be dissatisfied.
 
-A team maintaining 60% possession.
+They had maintained 60% possession.
 
-A team with three times more shots on target.
+They also had three times as many shots on target.
 
 Would such a team be satisfied with a 2-2 score?
 
 I don't think so.
 
-They must feel unfair.
+They would feel unfairly treated.
 
-They showed better performance, but the score is tied.
+They showed better performance.
 
-So, their line will push up.
+But the score was tied.
+
+So, they would push their line up.
 
 Just like now.
 
@@ -101,111 +103,109 @@ Just like now.
 
 "Press harder!"
 
-The Genoa coach, who is from England, mixes Italian and English as he encourages his players.
+The Genoa coach, from England, mixed Italian and English to encourage his players.
 
-They knew they couldn't end without a win in three consecutive friendly matches.
+They knew very well that they couldn't end a friendly match without a win for three consecutive games.
 
-No matter how friendly the match is.
+No matter how friendly the match was.
 
-If they can't secure a win with their current performance, it will undoubtedly affect the early part of the regular season.
+If they couldn't secure a win with this kind of performance, it would definitely affect the early regular season.
 
-So, they revealed their weaknesses, even if it meant taking risks.
-
-To score a goal.
+So, they revealed their weaknesses a bit, even if it was risky, to score a goal.
 
 But.
 
-Boom!
+Booom!
 
 "Block it!"
 
-Thanks to them pushing up the line, I, who was between the defense and midfield lines, could enjoy soccer even more.
+Thanks to them pushing the line up, I had more fun playing football in the space between the defense and midfield.
 
-This is already my third through pass in today's game.
+This was already my third through pass of the game.
 
-Gianluca excitedly ran into the opponent's back space and received my pass.
+Gianluca excitedly penetrated the opponent's backline to receive my ball.
 
-Unlike me who was running slowly, Parma’s two wingers were quickly running toward the center.
+Unlike me, who was running slowly, Parma's two wingers were quickly moving towards the center.
 
-Although Genoa's defender pushed Gianluca to the side, space was created in the half-space due to the wingers' central penetration.
+The Genoa defender pushed Gianluca to the side, but at the same time, the two wingers who were cutting in towards the center created space in the half-space.
 
-I didn't miss this.
+I didn't miss it.
 
 The coach also demanded this part.
 
 I would pass to the back space.
 
-The attacker and wingers would switch positions.
+The forwards and wingers would switch positions.
 
-Finally, I would utilize the space created in the half-space to deliver a killer pass or finish the play myself.
+Finally, I would either make the perfect killer pass or finish using the created half-space.
 
-As I sneaked into the empty space in the half-space, the pass came at the perfect timing.
+When I sneaked into the empty half-space, the pass came in at the perfect timing.
 
-Tuk!
+Tap!
 
-I received the ball and took a shot as I slightly moved forward.
+I controlled the ball and moved slightly inside before taking a shot.
 
-Boom! Daang!
+Boom! Thud!
 
 The ball hit the goalpost and went over.
 
 Gianluca gave me a thumbs-up.
 
-"Minho! Good attempt!"
+"Mino! That was a good attempt!"
 
 "I'll definitely score next time."
 
-What a shame.
+It's a pity.
 
-If I had shot a little lower, it would have gone in.
+If I had shot a bit lower, it would have gone in.
 
 The turn went back to Genoa.
 
-We'll be tormented for another 10 minutes or so.
+We would struggle for about 10 more minutes.
 
-It's true that Genoa's activity and performance are better than ours.
+The fact was that Genoa had better activity and performance than us.
 
-But soccer is a sport of flow, so even just 5 minutes can give us a chance to strike.
+But football is a sport of flow, so even 5 minutes could give us a chance to press.
 
-No matter how strong the team is, they can't press their opponent hard for the entire 90 minutes.
+No matter how strong the team is, they can't press the opponent hard for the entire 90 minutes.
 
-As I moved between the center and half-space, harassing the opponent's defenders, they couldn't easily push up the line like before.
+As I harassed the opposing defenders by moving between the center and half-space, they couldn't push their line up easily like before.
 
-Thanks to that, their build-up from the back was shaky.
+Thanks to that, their build-up from the back was shaken.
 
-I could see the flow being interrupted here and there.
+I noticed their rhythm breaking here and there.
 
-I wouldn't miss such an opportunity.
+I wouldn't miss this opportunity.
 
-Swish!
+Whoosh!
 
-I passed again towards the empty space, and Gianluca ran like a hunting dog.
+When I passed to the open space again, Gianluca ran like a hunting dog.
 
-He really lacked only goal-scoring ability.
+He only lacked finishing ability.
 
-He was a player with many strengths as a forward.
+As a forward, he had many strengths.
 
-In Parma, which has abundant second-line resources, Gianluca was an essential link-up forward.
+In Parma, which had abundant second-line resources, Gianluca was an indispensable linking forward.
 
-As soon as he got the ball, he crossed it to the center.
+As soon as he got the ball, he quickly crossed it to the center.
 
-The ball that rose to the center hit Santiago's head and shook the goalpost.
+The floating ball hit Santiago's head, who was cutting into the center, and shook the goalpost.
 
-Daang!
+Thud!
 
-Genoa's defenders checked where the ball would fall.
+The Genoa defenders checked where the ball was falling.
 
-It was an empty space with no one.
+It was an empty space where no one was.
 
 But I was the first to move.
 
-I, who had run quickly from the center, trusted my acceleration.
+I trusted my acceleration as I ran quickly from the center.
 
 I believed I would be the first to reach the ball.
 
-The flustered Genoa defenders.
+The confused Genoa defenders.
 
-Watching them, I curled the ball into a perfect angle.
+While looking at them, I curled the ball at the perfect angle.
 
 Boom!
 
@@ -213,221 +213,221 @@ Thwack!
 
 The shaking net.
 
-Seeing the ball sucked into the goal, I quickly ran toward the direction of the crowd.
+Seeing the ball sucked into the goal, I quickly ran towards the direction of the crowd.
 
-"Waaaaah! This is me! This is me!"
+"Uwaaaaaah! This is me! This is who I am!"
 
-Swoosh!
+Whoosh!
 
 In the second half.
 
 Parma finally succeeded in turning the game around.
 
-The score is now 3-2.
+The score was now 3-2.
 
-Genoa had to catch up with us again.
+Genoa had to chase us again.
 
 * * *
 
-"Waaaaaaah! Goal! Goal! Goal! We scored against that damn Genoa! And three goals at that!"
+"Waah! Goal! Goal! Goal! We scored against those damn Genoa! And three goals at that!"
 
 "It's a comeback! A comeback!"
 
-"When Franco got injured, I thought it was over... but we turned it around like this."
+"When Franco got injured, I thought it was over... But we turned it around like this."
 
-The fans who were watching the game with worried expressions clenched their fists in delight.
+The fans, who had been watching the game with worried expressions, clenched their fists in joy.
 
-Their gaze was fixed on the 24-year-old late-blooming rookie.
+Their eyes were on the 24-year-old late-blooming rookie.
 
 Park Minho.
 
-A player who joined Parma without a transfer fee.
+A player who joined Parma without any transfer fee.
 
 No one expected a player with no professional experience to perform like this in a friendly match.
 
-When they saw Franco, the heart of the team, get injured, they thought this season was over too.
+When they saw Franco, the heart of the team, get injured, they thought the season was over.
 
-But seeing a player like this emerge, it seemed the soccer gods hadn't abandoned Parma.
+But seeing a player like him emerge, it seemed the football gods hadn't abandoned Parma.
 
-With this one goal, the flow of the game shifted.
+With that one goal, the flow of the game changed.
 
-Parma gained composure.
+Parma had some breathing room.
 
-Genoa, who allowed the comeback, became desperate.
+Genoa, which allowed the comeback, became desperate.
 
-"Good! Let's hold on like this!"
+"Alright! Let's hold on like this!"
 
-"The opponent is getting very impatient! Just a little longer!"
+"The opposition has become quite desperate! Just hold on a bit longer!"
 
-Genoa was desperate.
+Genoa was in a hurry.
 
-If they lost today's game, it would be their third consecutive loss in friendly matches.
+Losing today would mean three consecutive defeats in friendly matches.
 
-In a situation where they desperately needed a win, this loss would be a painful blow.
+In a situation where they desperately needed a win, this loss was painful.
 
-This loss could potentially linger as an aftereffect throughout the season, continuously tormenting them.
+It could haunt them throughout the season.
 
 So, Genoa came out as offensively as possible.
 
 Thwack!
 
-The problem was, the more aggressive they came out, the more their impatience led to worse results.
+The problem was that the urgency the players felt from being on the offensive led to worse results.
 
-"Waaaaah!"
+"Uwaaaaaah!"
 
 "Gianluca! Gianluca! Gianluca!"
 
-Gianluca, who neatly handled the cross from the flank, clenched his fist and savored the goal.
+Gianluca, who neatly handled the cross that came from the side, clenched his fist and savored the goal.
 
-The score was now 4-2, making it a score that Genoa couldn't easily catch up to.
+The score was now 4-2, making it hard for Genoa to catch up.
 
-Park Minho, who was the starting point of this goal.
+Park Minho, who was the starting point of the goal.
 
 1 assist, 1 goal.
 
-He, who showcased a perfect performance, smiled brightly and high-fived Gianluca.
+He showcased perfect performance, smiling brightly as he high-fived with Gianluca.
 
 * * *
 
 Beep! Beep! Beep!
 
-The referee blew the whistle to signal the end of the game.
+The referee blew the whistle to signal the end of the match.
 
-At the same time, Parma's players smiled brightly and enjoyed the victory in the friendly match.
+At the same time, Parma's players smiled brightly and celebrated their friendly match victory.
 
-On the other hand, Genoa's players didn't look happy.
+On the other hand, Genoa's players didn't look pleased.
 
 A shocking three-game losing streak.
 
-Especially since the last loss was to Parma, a team in Serie B, it would sting even more.
+Moreover, the last defeat was to Parma, a Serie B team, which must have stung even more.
 
-Naturally, the result of today's game was featured in Parma's local newspaper.
+Naturally, after the match, the result was reported in the local Parma newspaper.
 
-[Parma Calcio! A 4-2 victory over Genoa in a friendly match!]
+[Parma Calcio! 4-2 victory against Genoa in a friendly match!]
 
-[Crying over Franco's injury, laughing at the performance of a 24-year-old rookie with a special story!]
+[Parma, crying over Franco's injury and laughing at the performance of a 24-year-old rookie with a special story!]
 
-[1 goal, 1 assist! Park Minho, who revitalized the team's attack after coming on in the second half!]
+[1 goal, 1 assist! Park Min-ho, who energized the team's attack after coming on in the second half!]
 
-["Park Minho!" The name that echoed in the stadium! Who is this player who captivated Parma's fans?]
+["Park Min-ho!" The name echoed through the stadium! Who is this player who captured the hearts of Parma's fans?]
 
-[Minho: "It was a good performance. In the second half, we were able to play the soccer we wanted."]
+[Min-ho, "It was a good performance. We were able to play the kind of football we wanted in the second half."]
 
-[Coach Alain Lavin: "Franco's injury isn't too serious. But it's true he won't be available for the early part of the season. We have to play without Franco until the third round of Serie B."]
+[Coach Alain Levagne, "Franco's injury is not severe. But it's true that he won't be available for the early part of the season. We have to play up to the 3rd round of Serie B without Franco."]
 
 [Comments]
 
-- It was a perfect game! Although Franco's injury is really unfortunate, I think it was a satisfying game in that we found a player who can replace him.
+- It was a perfect match! Franco's injury is really unfortunate, but I think it was a satisfying game considering we found a player who can replace him.
 
-- Isn't he that guy? The one who got frustrated and played himself after winning a tour event?
+- Is it that guy? The one who got frustrated during a tour event and ended up playing himself?
 
-- I heard he played soccer professionally in Korea until he was 19.
+- I heard he trained professionally in Korea until he was 19.
 
-- Can this guy who joined without a transfer fee really fill Franco's shoes? Of course, today's game was amazing, but it's still worrying.
+- Can a player we got for free fill Franco's shoes? Of course, today's game was fantastic, but it's still a concern.
 
 - Can this Korean survive in Serie B?
 
 - I hope he does well.
 
-- Judging by today's game alone, it was perfect. I am confident he will show decent results in the regular season too.
+- Based on today's game alone, he was perfect. I'm confident he'll show decent performance in the regular season too.
 
-- Minho! He's a god!
+- Min-ho! He's a god!
 
-The local reaction in Parma wasn't bad.
+The response in Parma wasn't bad.
 
-Some fans pointed out my lack of experience as a concern and said they needed to watch more.
+Some fans pointed out my lack of experience and said they needed to see more.
 
-But overall, the response was satisfying.
+But overall, the reaction was satisfactory.
 
 Well, I joined the team without a transfer fee.
 
 It must feel like finding money on the street for free.
 
-But this wasn't the end.
+But this isn't the end.
 
-[Debuting at 24? Why did a Korean amateur debut in Serie B?]
+[Pro debut at 24? Why a Korean amateur made his pro debut in Serie B.]
 
-[An interesting story! Who is Park Minho, and how did he join Serie B's Parma?]
+[A fun episode! Who is Park Minho, and how did he join Parma in Serie B?]
 
-I received messages saying that some journalists in Korea also posted news about me.
+Some reporters in Korea also contacted me, saying they posted news about me.
 
-My father was happy that I was adjusting well, and my mother said she might end up on TV later, so she went to a dermatologist yesterday.
+My father was happy, saying I was adjusting well, and my mother said she might appear on TV someday and went to a dermatologist yesterday for skin care.
 
-"......."
+"……."
 
 This wasn't the end.
 
 Roberto and my Italian friends.
 
-And the Korean student friends on the WhatsApp group chat were filled with my stories.
+And my Korean student friends filled the group chat on WhatsApp with my stories.
 
-- MilanLove: Minho! Minho! You have to move to AC Milan and lift the championship trophy! You have to!
+- MilanLover: Minho! Minho! You must transfer to AC Milan and lift the championship cup! Promise?
 
-- RealMilan: Come to Inter. There's no need to go to that fake Milan.
+- RealMilan: Come to Inter. No need to go to that fake Milan.
 
-- MilanLove: Yeah, the fake Milan is you guys, right?
+- MilanLover: Yeah, fake Milan is you guys, right?
 
-- KingJuve: But don't both teams have no money right now?
+- KingJuventus: But don't both teams have no money right now?
 
 - RealMilan: Yeah, NoShowtus, get lost.
 
-- MilanLove: Ugh! You punk! Why are you, a team with no roots, interfering when the two great Milan teams are talking?
+- MilanLover: Hey! You! How dare a team with no roots interrupt the conversation between the two great Milan teams!
 
-- KingJuve: ㅠㅠㅠㅠ
+- KingJuventus: ㅠㅠㅠㅠ
 
-- Roberto: It was a truly amazing game! I told you, Minho is good at soccer!
+- Roberto: It was a fantastic game! I told you, Mino is good at football!
 
 Three Korean students.
 
 Two Italian friends.
 
-And me, making a total of six people in this chat group, which Roberto, who is interested in Korean culture, created a year ago.
+And me, making a total of six, were in this group created by Roberto, who was interested in Korean culture, a year ago.
 
-- Monica: Congratulations, Minho.
+- Monica: Congrats, Mino.
 
-- Park Minho: Thank you.
+- Park Minho: Thanks.
 
-- KingJuve: Minho! You're coming to Juventus, right?
+- KingJuventus: Minho! You're coming to Juventus, right?
 
-- Park Minho: Last time Juventus made an offer, but their salary was lower than Parma's, so I didn't go.
+- Park Minho: Juventus offered me a transfer last time, but the salary was lower than Parma's, so I didn't go.
 
-- RealMilan: Hahahahahaha, poor club hahaha
+- RealMilan: Hahaha, the beggar club, hahaha.
 
-- MilanLove: Hahahaha, really poor bastards hahaha
+- MilanLover: Hahaha, really a beggar, hahaha.
 
-- KingJuve: ㅠㅠㅠㅠㅠㅠㅠㅠ
+- KingJuventus: ㅠㅠㅠㅠㅠㅠㅠ
 
-Despite being rival teams with a derby, AC Milan and Inter's relationship was better than their relationship with Juventus.
+Even though AC Milan and Inter were rival teams with a derby, their relationship with Juventus was worse.
 
-Thanks to that, the friend who liked Juventus was teased every day by the two Milan supporters.
+Thanks to that, the friend who liked Juventus was teased by the two Milan fans every day.
 
 Anyway.
 
 I received congratulations from everyone.
 
-They asked if I was going to debut at this rate.
+They asked if I would debut just like this.
 
 And time passed quickly.
 
-Although I wasn't a starter in friendly matches, I frequently played and slowly built up my stats.
+Even though I wasn't a starter, I often played in friendly matches and slowly built up my stats.
 
-Thanks to that?
+Was it because of that?
 
-On August 15th.
+August 15th.
 
-Copa Italia Round 1.
+The first round of the Coppa Italia.
 
-The opponent was Ternana from Serie B.
+The opponent was Ternana, a Serie B team.
 
-I was confirmed to start in this match.
+I was confirmed as a starter for this match.
 
-"Finally......."
+"Finally..."
 
 Yes.
 
-I'm finally making my professional debut.
+I was finally making my pro debut.
 
-Sooner than I expected.
+And sooner than I thought.
 
 ----
 

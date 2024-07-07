@@ -7,313 +7,313 @@ tags:
 
 ## 6. National Team? Me? Why? (2)
 
-The national team.
+National Team.
 
-The players who represent a country.
+Players who represent a country.
 
-Therefore, only those with exceptional skills can seize the honor of becoming national team members.
+Therefore, only those with exceptional skills can achieve the honor of being part of the national team.
 
 “But why me?”
 
-This was something I couldn’t comprehend.
+I couldn't understand this.
 
-Suddenly, I'm called up to the national team?
+Suddenly, the national team?
 
-Why am I, who is just starting to stand out in Serie B, called up to the national team?
+Why would I, who is just now standing out in Serie B, be called up to the national team?
 
 I couldn't understand.
 
 So I asked.
 
-Why was I selected for the national team?
+Why was I called up to the national team?
 
-Then Leo answered me.
+Leo answered me.
 
-- South Korea secured their spot in the 2022 Qatar World Cup final qualifying round Group B, following the results of the last match.
+- In the final qualifiers of Group B for the 2022 Qatar World Cup, South Korea has secured its place in the World Cup based on the previous match results.
 
-- Moreover, Tottenham is somewhat negative about Shin Junseo’s call-up this time.
+- Additionally, Tottenham is somewhat negative about Shin Junseo's call-up this time.
 
-Well……. Senior Shin Junseo at Tottenham hasn’t had a break for two consecutive years.
+Well... Shin Junseo, who plays for Tottenham, hadn't had a proper rest for two consecutive years.
 
-Some people even said, ‘Shin Junseo might actually die from this!’ showing their concern.
+Some people even worried, saying, “At this rate, Shin Junseo might really die!”
 
-- Because of that, most overseas players were not called up this time.
+- Because of that, most of the overseas-based players were not called up this time.
 
-- Minho can be considered the fourth option among the secondary players……. With the first option, Shin Junseo, out and the other two players injured……. Also, more domestic players are injured than expected.
+- Mino can be considered the fourth option among the second line resources. With the first option Shin Junseo out, and the other two players out due to injuries... Moreover, there are more injured players among the domestic players than expected.
 
-- So, in a way, it's a position you got by luck. Since you are a player in Serie B, it feels like they are just trying you out. They probably don’t have high expectations for you.
+- In a way, it's a position gained by luck. Since you're a player in Serie B, they probably decided to give you a chance. They probably don't have high expectations for you, Mino.
 
 So.
 
-It’s not an important match.
+It's not an important match.
 
-And due to the rotation and injuries of other players, the order has been pushed back to me.
+It means that due to the distribution of stamina and injuries of other players, my turn came up.
 
-No wonder I was suddenly called up to the national team.
+No wonder they suddenly called me up to the national team.
 
 I somewhat understood.
 
-- South Korea essentially formed the national team with mostly second-tier players this time.
+- South Korea has mostly formed the national team with second-tier players this time.
 
-- Minho, you don’t need to feel too burdened. The first match is a friendly against Oman, and the second match is the ninth match of the final qualifiers against Uzbekistan.
+- Mino, there's no need to feel a huge burden. The first match is a friendly against Oman, and the second match is the ninth match of the final qualifiers against Uzbekistan.
 
-Then I don’t need to feel too pressured.
+Then, I guess there's no need to feel a huge burden.
 
-I don’t know.
+I'm not sure.
 
-When I checked the sports news on my smartphone, the reactions weren’t entirely bad.
+When I checked the sports articles on my smartphone, the reactions weren't entirely bad.
 
-[Pedro Custodia, who called up Minho Park, an attacking midfielder from Serie B!]
+[Coach Pedro Custodia calls up attacking midfielder Park Minho from Serie B!]
 
-[A dried-up pool of secondary players due to injuries. It's fortunate that we secured an early spot in the World Cup finals!]
+[Second line resources dry up due to injuries. It's fortunate they secured their spot in the World Cup early!]
 
-[Coach Pedro: 'I will look at as many resources as possible. Especially keeping an eye on Minho Park.']
+[Coach Pedro: ‘I will evaluate as many resources as possible. Especially keeping an eye on Park Minho.’]
 
-[A lineup primarily composed of domestic players! What kind of performance will they show against Oman?]
+[Line-up mostly composed of domestic players! What kind of performance will they show against Oman?]
 
 [Comments]
 
-- Minho Park, isn't he that guy? The one who watched a Parma game, got frustrated, and went onto the field to score himself.
+- Park Minho, right? That guy... He watched the Parma game and got so frustrated that he stepped onto the field himself and scored a goal.
 
-- That's right, lol.
+- Correct, LOL
 
-- An ordinary student in Italy got called up to the South Korean national team? Boom!
+- An ordinary student in Italy gets called up to the South Korean national team? Boom!
 
-- The storyline is killer. It looks like someone planned this story for a novel, lol.
+- This story is killer. Looks like someone scripted it for a novel later, LOL
 
-- Both Junseok Lee and Yoohyuk Jeong are injured……. Can they really get their form back by the World Cup?
+- Lee Junseok is injured, and Jung Yuhyuk is injured too... Can they get back in form by the World Cup?
 
-- Yeah, it's enough time. There's about 1 year and 2 months left, so they will definitely get back in form by then.
+- Yeah, definitely. There's still about 1 year and 2 months left, they will surely get back in form by then.
 
-- He just debuted professionally a month ago… Is it okay to call him up to the national team?
+- He only debuted in the pros a month ago... Is it okay to call him up to the national team?
 
-- They probably called him up because his form was good during that one month?
+- He must have shown good form during that month, that's why they called him up.
 
-- I think it's a bit much…
+- I think it's a bit much...
 
-Fortunately, the reactions weren’t bad.
+Fortunately, the reactions weren't bad.
 
-We already secured a spot in the World Cup finals.
+They've already secured their spot in the World Cup.
 
-They said it was an understandable choice since all the main secondary players were out due to rotation and injuries.
+And since all the main second line players were out due to stamina distribution and injuries, they said it was an understandable choice.
 
-Of course, there were people questioning if it made sense to call up a player who just turned pro a month ago.
+Of course, some people questioned if it made sense for a player who just turned pro a month ago to be called up to the national team.
 
-But my performance wasn’t that ambiguous.
+But my performance wasn't that ambiguous.
 
-More people said to just watch for now.
+More people suggested to wait and see.
 
-They had already called up everyone they could call for the national team.
+After all, they've called up everyone else who could be called up.
 
-They said it wouldn’t hurt to check me out.
+So they said it wouldn't be bad to take a look at me.
 
-So I boarded the plane.
+I boarded the plane.
 
-And after arriving at Incheon Airport, I soon reached Paju NFC.
+Upon arriving at Incheon Airport, I could soon reach Paju NFC.
 
 * * *
 
 Pedro Custodia thought.
 
-If the Qatar World Cup schedule had been delayed due to COVID-19, the beginning of the final qualifiers would have been quite tough.
+If the schedule for the Qatar World Cup had been delayed due to COVID-19, the early part of these final qualifiers would have been quite tough.
 
 Fortunately, COVID-19 subsided quickly.
 
 The schedule remained unchanged.
 
-In any case.
+Anyway.
 
-Maybe because the schedule wasn’t delayed, South Korea was placed in Group B for this Asian final qualifier.
+Maybe because the schedule wasn't delayed, South Korea was placed in Group B in this final Asian qualifier.
 
-Iran, China, Uzbekistan, UAE, Vietnam.
+Iran, China, Uzbekistan, United Arab Emirates, Vietnam.
 
-These were the five teams in the group.
+They were grouped with the five teams above.
 
-Would it have been different if the schedule was delayed?
+If the schedule had been delayed, it might have been different?
 
-“How’s the preparation?”
+“How is the preparation?”
 
-“Good. The players' conditions are good, and they have blended into the tactics we prepared as we expected.”
+“Good. The players are in good shape. They have adapted well to the tactics we prepared.”
 
-Most of them are domestic players.
+Most of the players were domestic.
 
-The overseas players are Juwon Kang from Girondins de Bordeaux.
+The overseas players included Gang Juwon from Girondins Bordeaux.
 
-Minjun Lee from Fenerbahçe.
+Min Jun from Fenerbahçe.
 
-Jooyong Kim from Rubin Kazan.
+Kim Juyong from Rubin Kazan.
 
-And finally, Minho Park from Parma Calcio.
+And lastly, Park Minho from Parma Calcio.
 
-Except for these four, all are domestic players.
+Excluding these four, all were domestic players.
 
-Moreover, Minho Park is a player called to the national team for the first time, so the only players who can be called first-team are the other three excluding Minho Park.
+Moreover, Park Minho was called up to the national team for the first time, so in a way, only the other three could be considered first-tier players.
 
-So there was a bit of concern.
+So there was some worry.
 
-No matter how relaxed we are.
+Even if there's leeway.
 
-There was no reason to lose the remaining final qualifying matches.
+There was no need to lose the remaining final qualifying matches.
 
-The final qualifier matches for the World Cup are matches with quite high points counted towards FIFA ranking.
+The World Cup final qualifiers were high-stakes matches that contributed significantly to FIFA rankings.
 
-It was a chance to slightly raise South Korea’s FIFA ranking, which is in the mid-30s.
+It was an opportunity to slightly improve South Korea's mid-30s FIFA ranking.
 
 However.
 
 Contrary to concerns, the form of the newly joined players was better than expected.
 
-“They are in better form than I expected.”
+“They are definitely in better form than I expected.”
 
-“I used to think South Korea’s squad was weak without the first-team players……. But nowadays, it seems quite solid.”
+“Two years ago, I thought South Korea's squad was weak without the first-tier players... But these days, it seems quite solid.”
 
-“At least for the secondary players.”
+“At least the second line resources seem so.”
 
-The coaching staff, who followed Coach Pedro from Portugal to South Korea, watched the players with bright eyes.
+The coaching staff who followed Coach Pedro from Portugal to South Korea watched the players with bright eyes.
 
-The level of the domestic players was quite good.
+The level of the domestic players was quite impressive.
 
-Changmin Kim, Seungjae Baek, Juseon Moon.
+Kim Changmin, Baek Seungjae, Moon Jusun.
 
-The movements of the secondary players in the domestic league were better than expected.
+The movements of the second-line resources playing in the domestic league were better than expected.
 
-“How about Sangbin Park?”
+“How's Park Sangbin?”
 
-“Good. I think he is the third striker we can bring out after Juwon Kang and Joosung Lim.”
+“Good. I think he’s the third striker the team can use after Gang Juwon and Lim Jusung.”
 
-“I think so too. However, his style overlaps with Shin Junseo, so depending on the situation, it may not be easy to deploy him.”
+“I think so too. But since his style overlaps with Shin Junseo, it might not be easy to use him depending on the situation.”
 
 Coach Pedro nodded.
 
-He turned his head and looked at a man who seemed somewhat isolated among the national team.
+He turned his head to look at a man who seemed isolated among the national team players.
 
-“How about Minho?”
+“What about Mino?”
 
-“Minho…… Honestly, I don’t know.”
+“Mino... Honestly, I'm not sure.”
 
-“You don’t know?”
+“Not sure?”
 
-“He is definitely a good player……. He reminds me of Özil during his Arsenal days.”
+“He's certainly a good player... But he reminds me a lot of Özil during his Arsenal days.”
 
-“If we use him in the center, other players will need to sacrifice.”
+“To use him centrally, I think it would require sacrifices from other players.”
 
-“I think the same. If we use him on the left, there won’t be a problem.”
+“I think the same. If we use him on the left, there shouldn't be any problem.”
 
-“Do you have any data?”
+“Do we have any data?”
 
-“Yes, he played on the left in the recent Serie B matches and showed quite an active performance. But he was mostly substituted after 60 minutes, so there seems to be a stamina issue.”
+“Yes, in the recent Serie B matches, he played on the left and showed quite an active performance. But most of the time, he was substituted out after 60 minutes, so there seem to be stamina issues.”
 
-He is a player like a double-edged sword.
+He's a bit like a white elephant.
 
-It doesn’t mean Minho Park is lacking.
+It doesn't mean Park Minho is lacking.
 
-His style overlaps.
+It's just that his style overlaps.
 
-Or he just doesn’t fit the team’s tactics.
+Or he doesn't fit into the tactics of the national team.
 
-There was no need to forcefully use him.
+So there was no need to force him into the lineup.
 
-Certainly, Seungjae Baek, a central midfielder, could be used as a secondary player in an emergency.
+Clearly, central midfielder Baek Seungjae could be used as a makeshift in the second line.
 
-Sangho Kang could also play in the secondary central position.
+Kang Sangho could also play centrally in the second line.
 
 However, there was one thing that bothered him.
 
-“Has that guy ever played as a striker?”
+“Has he ever played as a forward?”
 
-“No, he hasn’t. He mostly played in the secondary position.”
+“I don’t think so. He mostly played in the second line.”
 
-Coach Pedro stared at Minho Park for a while and then nodded.
+Coach Pedro stared at Park Minho for a moment and then nodded.
 
-“Let’s try putting that guy in the next practice match with Juwon Kang as a pair of strikers.”
+“Let's try him as a forward with Gang Juwon in the next practice match.”
 
-His instinct told him.
+His intuition told him.
 
-That player seems like he could do well as a striker.
+This player would do well as a striker.
 
-There was no evidence.
+There was no basis.
 
-It was just a hunch.
+It was just a feeling.
 
-But Coach Pedro was sure that hunch would fit well.
+But Coach Pedro was sure this intuition would hit the mark.
 
 * * *
 
-It’s awkward.
+It's awkward.
 
-I don’t know anyone.
+I don't know anyone.
 
-I felt even more isolated because Shin Junseo, the captain of the national team and my senior by one year in high school, wasn’t here.
+Without Shin Junseo, the team captain and my senior by one year in high school, I felt even more isolated.
 
-Thankfully, it wasn’t a hostile atmosphere.
+Thankfully, it wasn't an atmosphere of ostracism.
 
-Just…… a bit awkward.
+Just... a bit awkward.
 
-But senior Juwon Kang, who was assigned to the same room, took care of me more than I expected, so the atmosphere wasn’t entirely awkward.
+But fortunately, senior Gang Juwon, who was assigned to the same room, took care of me more than I expected, so the awkward atmosphere didn't last too long.
 
-After the lunch training, senior Juwon Kang took me around and introduced me to the national team players.
+After the afternoon training, senior Gang Juwon took me around and introduced me to the national team players.
 
-Thanks to him, I was able to chat with other players.
+Thanks to him, I could also talk with other players.
 
 They were amazed by my story.
 
-“Wow……. That’s an amazing story.”
+“Wow... your story is really something.”
 
-“It reminds me of what senior Ki Sangyong said back in the day.”
+“It reminds me of what senior Gi Sangyong once said.”
 
-“Oh! If you’re frustrated, you should play yourself?”
+“Ah! If you're frustrated, why don't you play yourself?”
 
-“So we have someone who actually did that here. Haha! It’s really amazing.”
+“That's exactly what this guy did. Seriously impressive, right?”
 
 Anyway.
 
-As I got more accustomed, I started noticing my surroundings.
+As I adapted, I could see my surroundings more clearly.
 
-It seemed like I was a double-edged sword to them.
+I seemed like a white elephant.
 
-Due to my low activity level, I didn’t fit Coach Pedro’s tactics, which required high activity in the secondary central position.
+I didn’t have the stamina to fit into Coach Pedro's tactics, which required a lot of activity in the central second line.
 
-And moving to the wing wasn’t an option since the secondary wing positions were already saturated.
+And moving to the sides wasn't an option because the second-line side resources were already overflowing.
 
-I gave up my expectations.
+I had already given up expectations.
 
-I was called to the national team as a stopgap anyway.
+I was called up to the national team as a stopgap anyway.
 
 What more could I expect?
 
 However.
 
-The next day, during the practice match, Coach Pedro directed me to play as the frontline striker.
+The next day, during practice, Coach Pedro instructed me to play as the frontline striker.
 
 “What? Me? As a striker?”
 
-“Yes, Minho! I think you have enough talent to play as a striker.”
+“Yes, I think, Mino! You have enough talent to play as a striker.”
 
-If the coach says so……. I will play, but.
+Since the coach said so... I would play, but.
 
-Honestly, I don’t know if I have the physical strength to endure between tough defenders.
+Honestly, I wasn't sure if I had the physicality to withstand the rough defenders.
 
-I don’t have an entirely lacking physical build, but I have never played in the striker position.
+I don't have a completely lacking physicality, but... shouldn't you have played as a striker before?
 
-“It’s okay. I won’t place you as the lone striker. You will play as a pair with Juwon Kang.”
+“It's okay. I won't put you as a lone striker. You'll play as a duo with Gang Juwon.”
 
-Since the coach directed so.
+Since the coach instructed so.
 
-I had no choice but to follow his words.
+I had no choice but to comply.
 
-But…….
+But... 
 
 Does a striker just need to score goals?
 
-I have never played in the frontline position.
+Shouldn't you have experience playing at the frontline?
 
-So I asked senior Juwon Kang.
+So I asked senior Gang Juwon.
 
-“What type of striker do you find comfortable to play with? Hmm……. Probably a player like Benzema would be the best?”
+“What type of striker do you find it easy to work with? Hmm... A player like Benzema would be good, I guess?”
 
 “Benzema?”
 
-“Yeah, I'm not that great at post-play. So, it’s more comfortable to have a striker who can connect and do post-play while playing as a pair with me.”
+“Yeah, I'm not that good at post play. It would be much easier to have a striker who can link up with me and do post play in a duo.”
 
 Karim Benzema.
 
@@ -321,121 +321,121 @@ I know he played for Real Madrid.
 
 He still plays there.
 
-Although overshadowed by a player named Ronaldo, I know he is an excellent striker.
+Even though he was overshadowed by a player named Ronaldo, I knew he was an excellent striker.
 
-“He’s a complete striker with world-class post-play abilities. Honestly, if it weren’t for all the controversies, he would be rated even higher.”
+“He's a complete striker with world-class post-play ability. Honestly, if it weren't for all the controversies, he'd be rated even higher than he is now.”
 
 Is he that good?
 
-I wanted to watch Benzema’s videos.
+I felt like watching Benzema's videos.
 
-So, before the practice match, I briefly checked out Benzema’s videos on my smartphone.
+So before the practice match, I quickly checked out Benzema's videos on my smartphone.
 
-“Wow……. He is indeed different.”
+“Wow... He's definitely different.”
 
-Sorry to Gianluca and Gennaro.
+I felt sorry for Gianluca and Gennaro.
 
-But the level of talent was on another plane.
+But a different level of talent was unfolding before my eyes.
 
-I could see why such a player continues to play for a team like Real Madrid despite countless controversies and still gets called up to the French national team.
+I understood why such a player continued to play for Real Madrid despite all the controversies and got called up to the French national team.
 
-“His skills are truly respectable.”
+“His skill alone is truly respectable.”
 
 The talent was different.
 
-Such a connecting player also scores quite well?
+And this kind of linking player scores quite well too?
 
-Isn’t he the perfect striker?
+Isn't he the closest to a complete striker?
 
-“Minho! Come quickly!”
+“Minho! Hurry up!”
 
 “Yes!”
 
-Thinking about Benzema’s play that I briefly saw, I entered the practice match.
+Thinking about Benzema’s play that I quickly watched, I entered the practice match.
 
 Both A team and B team used a 4-4-2 formation.
 
-Coach Pedro’s main formation was 4-2-3-1, but this time, since all the main players for that tactic were out, it seemed like he was testing a different tactic.
+Coach Pedro’s main formation was 4-2-3-1, but since all the main players for that formation were out, it seemed like he was testing another tactic.
 
-I was paired with senior Juwon Kang as the B team’s striker.
+I was paired with senior Gang Juwon as the forward for the B team.
 
-Before the practice started.
+Before starting the practice.
 
-Coach Pedro told me to ‘not worry about stamina and move as much as possible.’
+Coach Pedro told me to ‘Move as much as possible without worrying about stamina.’
 
-It seemed like I would be placed as a 1.5-line striker rather than a full secondary resource in the national team.
+It seemed likely that I would be placed as a 1.5 line striker rather than a full second line resource in the national team.
 
-*Whistle sound*
+*whistle*
 
 And.
 
-While lost in various thoughts.
+While I was lost in various thoughts.
 
 The practice match began.
 
 * * *
 
-What is the most important factor for a striker?
+What is the most important element for a striker?
 
-Well, everyone knows it’s ‘goals.’
+Well, as everyone knows, it's ‘goals’.
 
-If a player scores goals, no one cares if he’s a turtle or Charlie Adam, and they’ll put him at the frontline.
+If a player scores goals, no one cares if he's a turtle or Charlie Adam; they would plant him in the frontline.
 
-In that sense, am I a good striker?
+From that perspective, am I a good striker?
 
-I don’t know yet.
+I wouldn't know yet since it's my first time playing as one today.
 
-If I knew that after playing for the first time today, I’d be a football god.
+If I knew that, I would be a football god.
 
-Right?
+Wouldn't you agree?
 
-In that sense, am I doing well now?
+From that perspective, am I doing well now?
 
-At least, the expression on senior Juwon Kang’s face wasn’t bad, so I think I can give myself a passing grade.
+Judging by the expression of my strike partner, senior Gang Juwon, I think I can give myself a passing grade.
 
-Moreover, it was quite fun to play while holding the ball with my back.
+More than that, playing with my back to the goal and holding the ball was quite fun.
 
 Was it because I adapted well?
 
-My B team already had 4 effective shots.
+The B team I was in had already recorded four shots on target.
 
-“Let’s focus a bit more!”
+“Let's focus a bit more!”
 
-“Align the line! Align!”
+“Align the line! The line!”
 
-Senior Juwon Kang’s excellent off-the-ball and line-breaking abilities seemed to keep the A team’s defense busy.
+Maybe because of the excellent off-the-ball and line-breaking skills of senior Gang Juwon, the A team's defenders seemed busy.
 
-Moreover, I realized something surprising.
+More than that, I realized something surprising.
 
-I’m actually quite good at physical battles.
+I am quite good at physical battles.
 
-Honestly, I was worried because I had never properly engaged in physical battles while playing in the secondary central position.
+Honestly, I was worried a lot as I had never really engaged in proper physical battles while playing centrally in the second line.
 
-But I held up better than I thought.
+But I held up better than expected.
 
 My body was sturdier than I anticipated.
 
-Senior Juwon Kang even praised my sense of balance.
+Especially my balance, which senior Gang Juwon praised.
 
 The ball came to me again.
 
-This time, I pushed away the defending player while receiving the ball and deeply penetrated the A team’s danger area.
+Once again, I received the ball and pushed away the defender who came at me, digging deeply into the A team's danger zone.
 
-Then I made a clean through pass to senior Juwon Kang, who was breaking the line.
+And I connected a clean through pass to senior Gang Juwon, who was making a line-breaking move.
 
-Naturally, senior Juwon Kang finished it with a non-stop shot.
+Of course, it was finished with senior Gang Juwon's non-stop shot.
 
-*Thud*
+*thud*
 
 “Nice!”
 
 Finally, the first goal was scored.
 
-Senior Juwon Kang gave me a thumbs up.
+Senior Gang Juwon gave me a thumbs up after scoring.
 
-It was fascinating.
+It was amazing.
 
-So, this is another way to play football.
+So you can play football like this too.
 
 I realized something new.
 
@@ -443,21 +443,21 @@ At the same time.
 
 I experimented with everything I could.
 
-Since it’s a practice match.
+After all, it was a practice match.
 
-Of course, I made a lot of mistakes.
+Naturally, there were a lot of mistakes.
 
-But despite my mistakes, Coach Pedro’s expression while watching the game seemed particularly bright.
+But despite my mistakes, Coach Pedro's expression seemed particularly bright as he watched the game.
 
-“Good movement! Move more aggressively! Minho!”
+“Good movement! Move more aggressively! Mino!”
 
-Even when I failed in dribbling, he smiled with satisfaction and praised me to move more actively.
+Even when I failed in dribbling, he smiled contentedly and praised me to move more actively.
 
 Thanks to that, I could move with confidence.
 
-Eventually, the first half of the practice match ended.
+Soon, the first half of the practice match ended.
 
-2 assists.
+Two assists.
 
 I didn’t score, but.
 
@@ -465,33 +465,33 @@ I achieved somewhat satisfactory results.
 
 Unfortunately, I was substituted in the second half.
 
-But I felt like I made a good impression on Coach Pedro.
+But it felt like I had made a strong impression on Coach Pedro.
 
-“Minho! You will start in the upcoming friendly against Oman.”
+“Mino! You will start in the friendly against Oman.”
 
-But, he seemed too pleased.
+But, he seemed too pleased?
 
 Is this what they call favoritism?
 
-Suddenly, a starter?
+Suddenly a starter?
 
 “A starter?”
 
 “Yes, and you will also start in the match against Uzbekistan after that, so be prepared.”
 
-Moreover, I will start in the 9th match of the World Cup final qualifiers?
+Moreover, a starter in the 9th match of the final World Cup qualifier too?
 
 Something.
 
 Something felt very strange.
 
-No, why am I a starter?
+Why am I suddenly a starter?
 
 I couldn’t understand.
 
 “Me? Why?”
 
-Coach Pedro just smiled broadly and gave me a thumbs up.
+Coach Pedro just smiled and gave me a thumbs up in response to my question.
 
 ----
 

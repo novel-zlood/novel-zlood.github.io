@@ -7,221 +7,221 @@ tags:
 
 ## 10. What Does It Mean to Lose? Does Such a Thing Exist? (1)
 
-After the match against Lecce.
+After the match with Lecce.
 
-If I were to describe the atmosphere in Parma and South Korea, this phrase would fit best:
+If I were to express the atmosphere in both Parma and South Korea, I think this phrase fits best:
 
-Buzzing.
+Bustling.
 
-It was really buzzing.
+It was really bustling.
 
-Not that the whole of South Korea was like that.
+Of course, not all of South Korea was like that.
 
-But for Koreans who watch overseas football, they were reacting to my 68-meter breakthrough that appeared in a certain MiTube video.
+But for Koreans who watch international football, they were reacting to my 68-meter run that appeared in a Mitube video.
 
-Ah, and this time the official distance was measured at 68 meters, and it was reported in the news.
+Oh, and this dribble was officially measured at 68 meters and made it into the news.
 
-This is a bit disappointing.
+That’s a bit disappointing.
 
-But unlike senior Shin Junseo, I also did a Marseille turn in the middle... I should be able to win the Puskás Award, right?
+Still, unlike Sun Junseo-senpai, I did a Marseille turn in the middle... Can I win the Puskás Award?
 
-Looking at the articles, there doesn't seem to be any problem.
+Looking at the articles, there doesn’t seem to be any issues.
 
-[Parma! Incredible Comeback Victory! Achieves a 3-2 Comeback Despite Being Down to 10 Men!]
+[Parma! Incredible comeback win! Achieves a 3-2 reversal despite being down a player!]
 
-[Park Minho Records 1 Goal, 1 Assist! Selected as MVP Once Again!]
+[Minho Park records 1 goal and 1 assist! Selected as MVP again in this match!]
 
-[Amazing Goal Worthy of the Puskás! Can Park Minho Win the Puskás Like Shin Junseo?]
+[An incredible goal worthy of the Puskás Award! Can Minho Park win the Puskás just like Sun Junseo?]
 
 [Comments]
 
-- Jumo-oooooo!
+-Pub Owner Oooooooo!
 
-- Wow! Just about 3 months ago, I was an ordinary person, but now I'm Parma's ace, a national team player, and a Puskás Award nominee? Bboong-bbang-boong?!
+-Wow! Just about 3 months ago, I was an ordinary person, but now I'm Parma's ace, a national team player, and a Puskás nominee? Bwoosh Bwoosh Boom?!
 
-- Really, lol, play football like Shin Junseo, live life like Park Minho, lolololol
+-Seriously, hahaha, football like Sun Junseo, life like Minho Park, hahaha.
 
-- Wow... Seeing him cleanly execute a Marseille turn in the middle, push off a player in a physical clash, and run... Isn't he really a hexagonal winger? What's he lacking?
+-Wow... Seeing the clean Marseille turn in the middle and pushing away the player who was trying to body check... Isn't he a real hexagon winger? What's lacking?
 
-- Honestly, when Pedro brought him to the national team just a month after his pro debut, I thought the coach had lost his mind, lol
+-Honestly, when Coach Pedro included him in the national team just a month after his pro debut, I thought he was crazy, hahaha.
 
-- I thought he took bribes, lol
+-I thought he took a bribe, hahaha.
 
-- Is it true that a player like this can play well up front and also perform well in the third line?
+-Is it true that such a player can play decently as a forward and also play well in the defensive midfield?
 
-- Really... he's versatile and highly skilled.
+-Really... He’s versatile and very skilled.
 
-- Lol, patting the Parma emblem with his left hand while pointing to the Korean flag with his right? National pride yummyyyyyyyyyyyy!
+-Hahaha, tapping the Parma emblem with his left hand while pointing at the Taegukgi with his right hand? National pride is deliciousiiiiiiiiiiiiiiiiiiiiiiiiiiiiii!
 
-- Yummy is a Japanese word. Please change it to "national pride is delicious."
+-Delicious is a Japanese word. Please correct it to say national pride is tasty.
 
-- Enough! So when is Park Minho's next match?
+-Enough! So when is Minho Park's next match?
 
-The reaction in South Korea was hot.
+The reaction in Korea was hot.
 
 Of course, the reaction in Parma was also hot.
 
-Sometimes it was oddly scary to see them worship me like a god.
+Sometimes, seeing them worship me like a god felt oddly scary.
 
-Thanks to this, I could feel the passion for football in Italy.
+Thanks to that, I could feel the enthusiasm for football in Italy.
 
-The group chat was also in chaos.
+Even the group chat was in chaos.
 
-Amid friends excitedly arguing over which club they support, I saw Roberto joining in, saying he would make me stay at Parma forever.
+Friends were excitedly arguing about bringing their favorite clubs, and I saw Roberto jumping in, saying he would make me a Parma legend.
 
-And Monica sent a private message.
+Then, Monica sent me a private message.
 
--Monica: Why Shin Junseo of all people?
+-Monica: Why Sun Junseo of all people?
 
 -Monica: Huh? Minho?
 
--Monica: Answer me quickly. Huh?
+-Monica: Answer quickly. Huh?
 
-It's a bit scary.
+It’s a bit scary.
 
-Really... Something's off with Arsenal?
+Really... Arsenal seems to be jinxed somehow.
 
-I hope Arsenal can lift a league trophy this season.
+I hope Arsenal can lift the league trophy this season.
 
 Anyway.
 
-To calm Monica down, I promised to show her a play by an Arsenal legend next time.
+To calm Monica, I promised to show a play that Arsenal's legend had shown.
 
--Park Minho: Then next time, I'll show you Van Persie's diving header goal!
+-Minho Park: Then next time, I'll show you Van Persie's diving header goal!
 
-But something felt strange.
+But something felt off.
 
-Even though my message was sent and the "1" next to it disappeared...
+Even though my message went through and the "1" next to the message disappeared, Monica didn’t reply.
 
-Monica didn't reply.
-
-What is this... Did I make a mistake?
+What the... Did I make a mistake?
 
 * * *
 
 Santiago.
 
-Lazybones.
+The slacker.
 
 Argentinian sausage.
 
-He has a lot of subtly dumb nicknames, but...
+He has many subtly dumb nicknames, but.
 
-He's a guy with incredible talent.
+He’s a guy with great talent.
 
-8 matches in the league, 2 goals, 3 assists.
+In 8 league matches, he has 2 goals and 3 assists.
 
-He's showing great performance, but...
+He’s showing excellent performance, but.
 
-He's oddly fragile.
+He’s oddly fragile.
 
-He also has quite a bit of inconsistency, showing performances worse than an amateur in some matches...
+He has quite a bit of inconsistency, showing worse than amateur performances in some matches.
 
-But in other matches, he shows fantastic form that even Messi would envy and dominates the game.
+But in other matches, he shows such fantastic performance that even Messi would be jealous, dominating the game.
 
-Moreover, unlike his inconsistency, he always performs in big matches.
+Besides his inconsistency, he always shines in big matches.
 
-In the Argentine league and here in Serie B, he always shows incredible performance in matches against strong teams.
+Both in the Argentine league and here in Serie B, he always showed incredible performance in matches against strong teams.
 
-"Like this?"
+“Like this?”
 
-"That's right. Move like that so the opponent can't easily predict you from the side."
+“That’s right. Move like that so the opponent can’t easily predict your move from the side.”
 
-Anyway, today I trained with this lazybones and our team's key defender, Lautaro Valentia.
+Anyway, today I trained with this slacker and our team’s key defender, Lautaro Valencia.
 
-Lautaro has a weird prince syndrome?
+Lautaro has a strange prince syndrome?
 
-No, should I say an ax syndrome?
+No, should I call it an axe syndrome?
 
-He's a friend with a strange mental world.
+He’s a friend with a weird mental world.
 
-Last time, Lazybones, myself, Buffon, and Lautaro went to a restaurant.
+Last time, the slacker, I, Buffon, and Lautaro went to a restaurant.
 
-Lautaro heard some customers talking about him and his narcissism exploded, leading to all sorts of embarrassing acts.
+Lautaro heard the conversation of other diners talking about him and showed all kinds of embarrassing behavior in a burst of narcissism.
 
 Thanks to that, the three of us frowned.
 
-Well, it was still fun.
+Well, it was still fine.
 
-In the end, when we realized that they were talking about Inter's Lautaro Martinez, not our prince syndrome Lautaro, he shut his mouth.
+In the end, Lautaro realized the conversation was about another Lautaro Marcius from Inter, not him, and shut his mouth.
 
-I remember us three laughing hard, and Lautaro turning red and nibbling on his pizza.
+I remember the three of us laughing out loud, and Lautaro turning red-faced, nibbling on his pizza.
 
-Still, he's a good friend.
+Still, he’s a good friend.
 
-Despite his unique mentality, he has better relationships with the players than expected and trains enthusiastically.
+Despite his unique mentality, he has better relationships with the players than expected.
 
-When I think about it, Lautaro stays as long at the training ground as Lazybones and I do.
+He’s passionate about training.
+
+Thinking about it, this friend stays on the training ground as long as the slacker and I do.
 
 His downside?
 
-Unlike his narcissistic personality, his play is oddly rough?
+Despite his narcissistic personality, his play is oddly rough.
 
-Thanks to that, he often gets cards.
+Because of that, he often gets carded.
 
-Of course, I've heard Assistant Coach Matteo mumbling that this roughness is a flaw that will disappear with more experience.
+Of course, I once heard Assistant Coach Matteo muttering that such roughness would disappear with more experience.
 
-"Like this?"
+“Like this?”
 
-"Hey! You jerk! Think about it! Moving like this, what do you think the defender will do? Huh?"
+“Hey! You idiot! Think! What would a defender think if you move like this? Huh?”
 
-"They'll think I'm going this way..."
+“They’d think I’m going this way...”
 
-"If you know that, why move to the left?"
+“Why move left if you know that?”
 
-Two Argentinians of similar age have become friends and are bickering.
+The two Argentinians, who are around the same age, have gotten close and bicker a lot.
 
-Then their eyes turned to me.
+At some point, their gazes turned to me.
 
-"Minho! I'm right, aren't I?"
+“Minho! I’m right, aren’t I?”
 
-"No, Minho! Look at this fool! Who moves like this with a defender in front of them? Huh?"
+“No, Minho! Look at this fool! Who moves like this with defenders around! Huh?”
 
-"If you move like this, the defender will read everything! A play relying on such low odds negatively affects the team!"
+“If you move like this, the defender reads it. Such low-probability plays negatively impact the team!”
 
-"No, but if I break through even once, it will shake the opponent badly, so there's no problem!"
+“But if you break through once like this, the opponent gets significantly shaken, so it’s fine!”
 
-Well, I don't really know either, but...
+Well, I don’t know either.
 
-Wouldn't it be fine if you moved in a way that they can't block even if they know?
+Wouldn’t it be enough to move in a way that they can’t block even if they know?
 
-When I conveyed my opinion, they told me to try it myself.
+When I shared my opinion, they told me to show them directly.
 
-So I showed them.
+So I did.
 
-I dribbled cleanly past Lautaro in a narrow space and successfully shot.
+I broke through a narrow space, cleanly bypassing Lautaro, and dribbled the ball for a successful shot.
 
-When I came back with the ball, their expressions had subtly changed.
+Returning with the ball, the two’s expressions had subtly changed.
 
-"See? It's easy, right?"
+“How about it? Easy, right?”
 
-Their faces frowned at my words.
+Their faces crumpled at my words.
 
-What's this?
+What?
 
-Why are you looking at me like that?
+Why look at me like that?
 
 * * *
 
 The next opponent is Benevento.
 
-A strong team, ranked 2nd in the league.
+They are a strong team, ranked 2nd in the league.
 
-They might be our competitors for promotion this season.
+They might be the team to continue the promotion competition with us this season.
 
-But Coach Alain Lavang rotated many of the main players, fielding a 1.5-string team.
+However, Coach Alain Levagne rotated many main players and used the B team.
 
 The result was a 3-1 victory.
 
-Entering in the 30th minute of the second half and recording an assist, I couldn't help but feel a strange emotion seeing Benevento collapse much more easily than Lecce.
+Entering at the 30th minute of the second half and recording an assist, I felt a strange sense of futility seeing Benevento crumble much more easily than Lecce.
 
-And then the match against Reggina 1914.
+Then came the match against Reggina 1914.
 
-We won 5-2 in this match.
+We won this match 5-2.
 
-I recorded 2 goals and 2 assists, bringing my season tally to 13 goals and 10 assists, amassing 23 attack points.
+I recorded 2 goals and 2 assists, achieving 13 goals and 10 assists this season, totaling 23 attacking points.
 
-And I grabbed another MVP.
+And I grabbed the MVP again.
 
 [Serie B]
 
@@ -229,21 +229,21 @@ And I grabbed another MVP.
 
 -1st. Alfredo Donnarumma: 12 goals.
 
--2nd. Park Minho: 11 goals.
+-2nd. Minho Park: 11 goals.
 
 -3rd. Gennaro Tatis: 8 goals.
 
--4th. Christian Zipthiry: 8 goals.
+-4th. Christian Zibtriri: 8 goals.
 
 -5th. Gianluca Lapadula: 7 goals.
 
-Currently ranked 2nd in league scoring.
+Currently, I rank 2nd in the league scoring rankings.
 
 [Serie B]
 
 <League Assist Rankings>
 
--1st. Park Minho: 8 assists.
+-1st. Minho Park: 8 assists.
 
 -2nd. Riccardo Improta: 5 assists.
 
@@ -251,251 +251,259 @@ Currently ranked 2nd in league scoring.
 
 -4th. Franco Vázquez: 4 assists.
 
--5th. Oliver Krebil: 4 assists.
+-5th. Oliver Krieble: 4 assists.
 
-Leading the league in assists.
+I ranked 1st in assists.
 
 Man of the Match.
 
-In other words, I've been selected as MVP 7 times, and the Italian media showered me with praise, calling me the leader of Parma's attack.
+I was selected as the game’s MVP 7 times, and the Italian media showered me with praise, saying I was leading Parma’s offensive line.
 
-Honestly, I wondered if I'd need to visit a proctologist from all the praise.
+Honestly, I was a bit worried that I might need to see a proctologist soon.
 
-Realizing my performance through numbers, I could see that I was showing unbelievable form.
+Looking at my stats, I realized I was showing unbelievable performance.
 
-Thanks to this, Coach Alain Lavang's eyes have been gleaming with intensity lately...
+Thanks to that, Coach Alain Levagne’s eyes are filled with madness these days...
 
-I wonder if I can really transfer in the summer after renewing my contract this winter, as Leo mentioned.
+I wonder if, as Leo said, I can renew my contract in winter and transfer this summer after this season ends.
 
 Anyway.
 
 The next opponent is Pisa.
 
-A team ranked 19th, stuck in the relegation zone.
+A team ranked 19th in the league, stuck in the relegation zone.
 
-A team with the Italian striker prospect, Lorenzo Lufo.
+They have Lorenzo Lupo, a promising Italian striker.
 
-Lorenzo Lufo, who is certain to be picked up by a big club either this winter or at the end of the season, is showing his strength by scoring 4 goals in the league despite lacking team support.
+He is likely to be taken by a big club this winter or at the end of the season.
 
-Thanks to this, our coaching staff worked overtime.
+Despite the lack of team support, Lorenzo Lupo showed his prowess by scoring 4 league goals.
 
-They obsessively pondered how to maintain aerial superiority against a 2-meter-tall striker, evident from their dark circles.
+Because of him, our coaching staff had to work overtime.
 
-Even the prince syndrome Lautaro was conscious of Lorenzo Lufo and worked hard in the previous training session.
+They had dark circles from thinking about how to defend against a 2-meter-tall striker.
+
+Even the prince syndrome Lautaro was aware of Lorenzo Lupo and worked hard in the previous training, running and running.
 
 Not that his jumping ability would suddenly improve.
 
-But what does it mean to be 2 meters tall?
+But how tall does 2 meters mean?
 
-I'm 181cm, so... he's over 20cm taller.
+I’m 181 cm... so 20 cm taller.
 
-Thanks to that, I was a bit excited.
+I was a bit curious.
 
-How would the young striker, whom Serie B has high hopes for, perform against us?
+How would the 21-year-old young striker, whom Serie B expects, perform against us?
 
 * * *
 
 Waaaaaaah!
 
-A huge cheer erupted at Ennio Tardini Stadium.
+A huge cheer erupted at the Ennio Tardini Stadium.
 
-Pisa's players and our team lined up, waiting to enter the field.
+The players of Pisa and our team were lined up, waiting to enter the field.
 
-But all my attention was on the 2-meter giant.
+But all my attention was on the 2-meter-tall giant.
 
 Not the Leaning Tower of Pisa.
 
-The giant of Pisa.
+The Pisa Giant striker.
 
-Lorenzo Lufo.
+Lorenzo Lupo.
 
 He was staring ahead with a calm expression.
 
 Honestly, I wanted to talk to him.
 
-But I held back, not wanting any misunderstandings.
+But I held back, fearing a misunderstanding.
 
-The fierce looks in the eyes of Pisa's players, who were on a losing streak recently, were filled with determination.
+The recent losing streak had filled the eyes of Pisa’s players with a fierce determination.
 
-I didn't want to get beaten up due to a misunderstanding.
+I didn’t want to get misunderstood and beaten up.
 
-Just in time, it was time to enter the field.
+It was time to enter the field.
 
-The players lined up and entered the field.
+Players lined up and entered the field.
 
 The boy holding my hand looked at me with sparkling eyes and almost tripped.
 
-"Are you okay?"
+“Are you okay?”
 
-"Yes!"
+“Yes!”
 
-"What's your name?"
+“What’s your name?”
 
-"Nicolas!"
+“Nikola!”
 
-"That's a nice name."
+“That’s a nice name.”
 
-"Hehehe..."
+“Hehehe...”
 
 The boy wriggled his body at my words.
 
-I wondered if this was such a great compliment, but then I remembered how even small compliments made me happy as a child, and I nodded.
+I wondered if it was such a great compliment, then remembered how I liked even small compliments as a child and nodded.
 
-"Win today!"
+“Win today!”
 
-As I watched the boy leave the field after the ceremony, I lightly nodded.
+I lightly nodded to the boy leaving the field after the event.
 
-Yeah, we must win.
+Yeah, we have to win.
 
-After shaking hands with Pisa's players, I headed to my position.
+After shaking hands with Pisa’s players, I headed to my position.
 
-Today, I start in the central attacking midfield.
+Today I started in the center of the second line.
 
-Come to think of it, Lorenzo Lufo is not only tall but also has hands as big and rough as bear paws.
+Lorenzo Lupo, with his huge build, had hands that were like bear paws—big and rough.
 
-Compared to my height, my hands are small, so the contrast might have made it seem more noticeable.
+My hands are small for my height, making the contrast even more noticeable.
 
-Most of the main forwards are resting today.
+Most of the main attackers are resting today.
 
-Except for me and Gennaro Tatis.
+Except for Gennaro Tatis and me.
 
-Gennaro, standing with the ball, looked at me and asked.
+Gennaro looked at me while standing with the ball.
 
-"Can you do better than that tall guy?"
+“You can do better than that tall guy, right?”
 
-"He has 4 goals, I have 11 goals, right?"
+“He has 4 goals, and I have 11, right?”
 
-"Sorry. I asked something too obvious."
+“Sorry. I asked a too obvious question.”
 
-Gennaro smiled and looked at the referee.
+Gennaro smiled, looking at the referee.
 
-Soon, the referee blew the whistle.
+Soon the referee blew the whistle.
 
-Gennaro passed me the ball, and the game began.
+Gennaro passed the ball to me, starting the match.
 
 * * *
 
 15 minutes into the first half.
 
-We were being swayed by Pisa's mindless set pieces.
+We were being swayed by Pisa’s reckless set-pieces.
 
-"Block himmmm!"
+“Block him!”
 
-That 2-meter tall guy was really something.
+That 2-meter tall guy was really amazing.
 
-Having such physicality and only 4 goals in the league?
+Having such physicality and scoring 4 league goals?
 
-I thought his goal-scoring ability was questionable, but then I understood after seeing the pass success rate of Pisa's midfielders shown by the analyst.
+I thought his goal-scoring ability was too much, but then I understood after seeing the pass success rate of Pisa's second line players shown by the analyst.
 
-I had respect for Lorenzo Lufo.
+I respected Lorenzo Lupo.
 
-Pisa's midfield.
+Pisa’s second line.
 
-They really can't pass.
+They really can’t pass.
 
-So they abandoned all other offensive routes and decided to trust Lorenzo Lufo by sending high crosses to induce heading duels.
+So they abandoned all other attack routes and decided to rely solely on Lorenzo Lupo, launching high crosses to induce aerial battles.
 
-In such a situation, that tall guy managed to score 4 goals competing against multiple defenders.
+In such a situation, Lorenzo Lupo managed to score 4 goals against numerous defenders.
 
-If it were me, I wouldn't have scored a single goal.
+It meant he scored 4 goals despite facing multiple defenders in every match.
 
-Fortunately, today, Lautaro is holding onto Lorenzo Lufo tightly, preventing him from scoring.
+I wouldn’t have scored even one goal.
 
-But if this continues, we'll lose control to a relegation zone team and face a tough game.
+Luckily, today Lautaro is tightly marking Lorenzo Lupo, preventing him from scoring.
 
-Since I'm playing in the central attacking midfield for a change...
+But at this rate, we would be giving the initiative to a relegation team and having a tough match.
 
-I need to create something.
+Since I’m playing in the center of the second line.
 
-"Minho!"
+Shouldn’t I create something?
 
-The ball was passed to me.
+“Minho!”
 
-Seeing Pisa's midfielder looking at me with a tense expression, I calmly dribbled forward.
+The ball connected to me.
 
-Tap!
+I dribbled the ball forward slowly, looking at the tense Pisa midfielder.
 
-However, as I passed to the side, the midfielder relaxed and turned his gaze.
+Thud!
 
-At that moment, I sprinted.
+When I passed the ball sideways, the Pisa midfielder relaxed and turned his attention away.
 
-The ball flew right behind the surprised Pisa midfielder.
+At that moment, I sprinted forward.
 
-It was perfectly delivered in front of me.
+Surprised, the Pisa midfielder turned back.
+
+The ball was delivered right in front of me.
 
 Nice pass!
 
-After receiving the return pass from Dennis Man, I accelerated further, sensing the chaos among Pisa's players.
+Receiving the return pass from Dennis Man, I sped up, feeling the Pisa players in disarray.
 
-It was an all-out attack, suddenly starting.
+All the attackers were running forward.
 
-Of course, they were flustered.
+A sudden, all-out attack.
 
-They must have felt a bit relaxed, having seized the momentum in the early part of the first half.
+They couldn’t help but be flustered.
 
-But that relaxation ends here.
+They must have felt a bit relaxed early in the first half, thinking they had the upper hand.
 
-Honestly, they're a relegation zone team.
+But that ease would end here.
 
-And we're the league leaders.
+Honestly, they are a relegation team.
 
-We need to show them what it's like to be number one.
+We are the league leaders.
 
-This time, it's a scoop turn.
+We must show them what being at the top feels like.
 
-Maybe because I've been using the Marseille turn a lot lately, all the opponents were wary of it.
+This time it’s a scoop turn.
 
-But I can do other things too.
+Recently, I’ve been using the Marseille turn often, so all the opponents were wary of it.
 
-The ball slipped through the opponent's legs.
+But I can do other moves too.
 
-As I rounded the opponent, I caught sight of their panicked expression.
+The ball slipped through the opponent’s legs.
 
-They quickly reached out.
+I rounded the opponent, seeing the surprised look on his face.
+
+The opponent hurriedly reached out.
 
 But I was faster.
 
-The opponent ended up sitting down.
+The opponent could only collapse.
 
-I sped up.
+I sprinted even faster.
 
-As soon as I penetrated the danger zone, I moved horizontally along the right half-space.
+Breaking into the danger area, I moved laterally along the right half-space.
 
-The opponent pushed me to the side, investing two players to block the shooting angle.
+Two players invested to push me to the side and block the shooting angle.
 
-But I didn't just stand there.
+But I didn’t just stand there.
 
-Quickly shielding the ball with my back to the goal.
+I protected the ball with my back and quickly turned to cross with my right foot’s outside.
 
-I turned and crossed with the outside of my right foot.
+A beautiful curved cross flew over the three players focusing on me.
 
-A beautiful curved cross over the three players focused on me.
+It connected precisely to Gennaro Tatis, who jumped high.
 
-I smiled, seeing the cross perfectly connect with Gennaro Tatis's head.
+I could smile, seeing the perfect cross.
 
--Goooooal!
+-Goal!
 
--Amazing outside foot cross from Minho! And a clean header from Gennaro Tatis!
+-A fantastic outside foot cross from Minho! A clean header from Gennaro Tatis!
 
--It's incredible! Minho, who has become Parma's ace in just 3 months since his pro debut!
+-Amazing! Minho, who has become Parma’s ace just 3 months after his pro debut!
 
-Parc! Minho!
+Parma! Minho!
 
-Parc! Minho!
-
-Gennaro! Tatis!
+Parma! Minho!
 
 Gennaro! Tatis!
 
-Home fans were chanting our names.
+Gennaro! Tatis!
 
-Feeling the electrifying sensation down my back from the enthusiastic cheers.
+The home fans chanted our names.
 
-Is this what they call 'buzz'?
+The thrilling sensation rose up my back.
 
-I could somewhat understand why Lautaro has prince syndrome.
+Is this what they call ‘buzz’?
 
-And why Koreans get so caught up in national pride.
+I could understand why Lautaro had prince syndrome.
+
+And why Koreans get national pride buzz.
+
+A little bit.
 
 ----
 

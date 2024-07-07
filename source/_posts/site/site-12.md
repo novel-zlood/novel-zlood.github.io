@@ -7,187 +7,189 @@ tags:
 
 ## 5. You Can Follow Along in a Day? (1)
 
-I am a very timid person.
+I'm a scaredy-cat.
 
-I think that can be both a disadvantage and an advantage at the same time.
+This can be a disadvantage.
 
-"What does being timid have to do with training so late?"
+But at the same time, I think it can be an advantage.
 
-"I still have doubts about my skills."
+"What does being scared have to do with training this late?"
+
+"I'm still uncertain about my skills."
 
 "Even after performing so well?"
 
-Santiago looked at me with an exasperated expression.
+Santiago looked at me with eyes that said he couldn't understand.
 
 Yeah, I still doubted myself.
 
-I thought that this bubble could burst at any moment.
+I thought I didn't know when this bubble would burst.
 
-So, I was increasing my activity level.
+That's why I've been increasing my activity.
 
-It's not like I made a significant improvement.
+That doesn't mean I've gotten significantly better.
 
-But I was definitely a bit better than a few weeks ago.
+But it's definitely a bit better than a few weeks ago.
 
-Especially after observing Franco's movements.
+Especially observing Franco's movements.
 
-Thanks to that, I could conserve my energy and lead the game as the team's heart during counterattacks.
+Thanks to that, I could conserve energy and become the heart of the team during counterattacks to lead the game.
 
-Honestly, I was still worried even after doing all this.
+Honestly, even doing this, I was worried.
 
 I didn't know how long my strengths would continue to work against other teams.
 
-So, I couldn't just sit still.
+So I couldn't just sit still.
 
-Honestly, even if I didn't contribute to defense, the more I moved in the attack, the easier it was for my teammates.
+Honestly, even if I didn't contribute to defense, the more I moved in attack, the more comfortable my teammates became.
 
-I confirmed that in the last match, so I worked even harder.
+I confirmed that in the last game, so I worked even harder.
 
-To avoid being left behind.
+To avoid falling behind.
 
-"To have such talent and to work so hard... Minho, you really are on a different level."
+"With such talent... you're still working hard. Minho, you're truly on another level."
 
-Santiago thought of me as some soccer genius.
+Santiago thinks I'm some soccer genius.
 
-But I'm not quite there yet.
+I'm not quite at that level.
 
 Santiago clenched his fist.
 
-"I'll train late today too."
+"I'll stay and train late today as well."
 
-Saying that, he joined my training.
+With that, he joined my training.
 
-But after 2 hours,
+But after 2 hours.
 
-Santiago left early with a tired expression.
+Santiago went home first, looking exhausted.
 
-I trained for two more hours and then went home.
+I trained for another 2 hours before going home.
 
-Santiago, that slacker...
+That Santiago guy...
 
-Two hours of determination, really?
+Is 2 hours of determination even a thing?
 
-"You slacker."
+"You lazy guy."
 
-From now on, you are a slacker.
+From now on, you are Lazy.
 
----
+* * *
 
-### After Winning the First Round of the Italy Cup
+After winning the first round of the Coppa Italia.
 
-I blended in with the players even faster.
+I blended in more quickly with the players.
 
-However, there were still parts I found hard to follow.
+However, there were still parts that were hard to follow.
 
-Maybe because it's Italy.
+Maybe it was because we were in Italy.
 
-The fashion was different.
+The fashion was unique.
 
-"Seriously... Minho, you can't dress."
+"Seriously... Minho can't dress well."
 
 "Really?"
 
-"What is up with that weird character T-shirt and orange shorts combo? And socks up to your ankles with slippers? Damn! Damn! Damn!"
+"What's with that odd character T-shirt and orange shorts combo? And socks up to your ankles with slippers? Damn! Damn! Damn!"
 
-I've heard that I'm the worst fashion terrorist in the club... Honestly, I don't think it's that bad.
+I heard that I'm the worst fashion terrorist in the club... Honestly, I don't think it's that bad.
 
-So, I asked in the group chat.
+So I asked in the group chat.
 
-If I'm really that bad at dressing.
+If I really dressed that poorly.
 
-- MilanoLove: Human, are you serious?
+-MilanoLover: Human, are you even asking?
 
-- Roberto: It's quite bad. I was embarrassed sometimes in college.
+-Roberto: It's pretty bad. There were embarrassing moments during college.
 
-- Park Minho: Really that bad?
+-Park Minho: Really?
 
-- MilanoLove: Human, do you know what your friends at Parma University called you? Crazy Korean Terrorist. You crazy person!
+-MilanoLover: Human, do you know what your friends at Parma University called you? Crazy Korean Terrorist, you madman!
 
-- KingWangJjangJuve: Even if Park Minho wears rags, Juventus will support him. Please come to Juventus!
+-KingAwesomeJuve: Juventus supports Park Minho even if he wears rags. Please come to Juventus!
 
-- MilanoLove: What’s this beggar team?
+-MilanoLover: What is this beggar team?
 
-- RealMilan: There it is, the trash team showing off again? Juventus, who got beaten by Inter last year, showing off again?
+-RealMilan: Look at this trash team acting up again! The Juve guy who got smashed by Inter last year is acting up again?
 
-- KingWangJjangJuve: Wait... The moment Park Minho joins Juventus... The King is back! The king of Serie A will take the throne again. That's Grand Juventus.
+-KingAwesomeJuve: Just wait... The moment Park Minho joins Juventus... The King Is Back! The king of Serie A will reclaim the throne. That's the Great Juve.
 
-- Park Minho: I have no thoughts of going to Juventus though?
+-Park Minho: Huh? I have no plans to go to Juventus?
 
-- KingWangJjangJuve: ㅠㅠㅠㅠㅠ
+-KingAwesomeJuve: ㅠㅠㅠㅠㅠ
 
-- MilanoLove: Hahaha Juve? If it's Minho, it's definitely AC Milan hahaha
+-MilanoLover: Hahaha Juve? If it's Minho, it's definitely AC Milan hahaha
 
-- RealMilan: Haha What? Juve? Minho's next team is definitely last season's champion Inter, right?
+-RealMilan: Hahaha what? Juve? Obviously, Minho's next team is last season's champion Inter, isn't it?
 
-- Park Minho: Anyway, am I that bad at dressing?
+-Park Minho: Anyway, am I really that bad at dressing?
 
-- Roberto: Yep
+-Roberto: Yes.
 
 "Am I really that bad at dressing?"
 
 I didn't think it was that bad.
 
-Listening to my friends, it seemed I wasn't very good at dressing.
+Listening to my friends, it seems I'm not good at dressing.
 
-I should just wear comfortable sportswear.
+I'll just wear comfortable sportswear.
 
-- Monica: If you have time, do you want to go shopping with me?
+-Monica: If you have time, want to go shopping for clothes with me?
 
-Hm, going shopping with Monica?
+Hmm, going shopping with Monica?
 
-It didn't seem like a bad idea.
+Doesn't sound bad.
 
-Since she was a model, she would know much more about fashion than I did.
+Since she's a model, she knows fashion much better than I do.
 
-But wasn't she busy?
+But isn't she busy?
 
-- Park Minho: Aren't you busy these days?
+-Park Minho: Aren't you busy these days?
 
-- Monica: I have about a week free.
+-Monica: I have about a week free.
 
-- Park Minho: Then, how about meeting in two days?
+-Park Minho: How about meeting in two days then?
 
-Five minutes after my response,
+5 minutes after I replied.
 
-Monica's reply came in.
+Monica's response came.
 
-- Monica: Sure.
+-Monica: Sure.
 
----
+* * *
 
-### Monica Argento
+Monica Argento.
 
 Born to an Italian father and an English mother, she lived in Italy until she was 12.
 
-Then, at 13, she moved to London with her mother and lived there until she was 21.
+Then she moved to London with her mother at 13 and lived there until she turned 21.
 
-She returned to Parma, Italy, in the winter of 21 and jumped into the modeling industry, gaining quite a bit of popularity and leading a busy life.
+Returning to Parma, Italy, in the winter of 21, she entered the modeling industry and had been living a busy life ever since.
 
-"I was lucky."
+"She was lucky."
 
 That's what she thought.
 
 That she was lucky.
 
-Plans in Paris and Milan were canceled, giving her about two weeks of free time.
+With her schedule in Paris and Milan canceled, she suddenly had two weeks free.
 
-Thanks to that, she could come to her father's house in Parma and relax.
+Thanks to that, she could rest at her father's home in Parma.
 
-Because of that, she could watch Park Minho's debut match from the stands and use the excuse of going shopping to have a date.
+And because of that, she could watch Park Minho's debut match directly from the stands, and even have a date under the pretext of shopping for clothes.
 
-Of course, that clueless idiot didn't know.
+Of course, that clueless idiot had no idea.
 
-Even though she had shown hints for a year, that blockhead didn't realize her feelings.
+Even though she had been hinting for a year, that blockhead never realized her feelings.
 
-- Roberto: You're just the same.
+-Roberto: You're the same.
 
-- Monica: What do you mean?
+-Monica: What?
 
-- Roberto: Sigh...
+-Roberto: Sigh...
 
-She closed her smartphone and looked up, seeing a man who clearly looked like "I am Park Minho."
+Closing her smartphone and lifting her head, she saw a man in the distance who screamed 'I'm Park Minho.'
 
-Lowering her sunglasses slightly, she saw Park Minho smiling and waving at her.
+Lowering her sunglasses slightly, she saw Park Minho smiling brightly and waving.
 
 "Monica! Long time no see."
 
@@ -197,313 +199,315 @@ Lowering her sunglasses slightly, she saw Park Minho smiling and waving at her.
 
 It was strange.
 
-Whenever she stood in front of this man, her mouth would stiffen.
+Whenever she stood in front of this man, she became speechless.
 
 Monica thought.
 
-It was truly strange.
+It was really strange.
 
 "Shall we go?"
 
-"Yeah, where do you want to start?"
+"Sure, where to first?"
 
-"Let's go over there first."
+"Let's start over there."
 
-The conversation stopped again.
+Again, the conversation stopped.
 
-They walked around the city, browsing clothing stores.
+Walking around the city, they looked at clothing stores.
 
-Monica personally picked out outfits for Park Minho that were comfortable yet wouldn't earn him the title of a fashion terrorist.
+Monica personally coordinated outfits for Park Minho that were comfortable yet wouldn't earn him the title of a fashion terrorist.
 
-"If you wear it like this, you'll at least look decent. Well... it would be better if you dressed up more, but honestly, Minho, you're not the type to dress up."
+"If you just wear these basics, you'll at least give off a decent vibe. Well... it would be better to dress up more, but honestly, Minho, you're not the type to dress up much."
 
-"That's right."
+"That's true."
 
-"Then, this top should be good."
+"Then, this would be good for the top."
 
-Monica picked out long sleeves, hoodies, and sweatshirts that could be worn casually and moved to another store to buy bottoms.
+Monica packed long sleeves, hoodies, and sweatshirts that were easy to wear, and then moved to another store to buy bottoms.
 
-Of course, Park Minho's hands started to fill with shopping bags.
+Naturally, Park Minho's hands started to fill up with shopping bags.
 
-"Do I need this much?"
+"Do we need this much?"
 
-"This is the basic. If you wear these clothes properly, you'll at least avoid being the worst-dressed in Serie B."
+"This is the basics. If you just put on the clothes we bought, you can at least avoid being the worst-dressed in Serie B."
 
 "I see."
 
 Park Minho nodded briefly.
 
-Monica found that look very attractive.
+Monica found that very charming.
 
-Thinking that his face was really handsome, they moved to the next store.
+Thinking his face was really handsome, she moved to the next store.
 
-Unlike Italian men who would gesture and talk to any woman, Park Minho was quiet.
+Unlike Italian men who would gesture and talk to every woman, Park Minho was quiet.
 
-No, he was too quiet.
+No, he was too silent.
 
-But Monica didn't mind that.
+But Monica didn't find that bad.
 
-Moreover, the subtle consideration that came from his quiet personality was even more attractive.
+On top of that, the subtle consideration that came from his quiet personality made him even more attractive.
 
 Park Minho gently grabbed Monica's shoulder and pulled her into his arms.
 
-At the same time, an old man riding a bicycle zoomed past Monica.
+At the same time, an old man on a bicycle zoomed past Monica.
 
 "Are you okay?"
 
-This was why she couldn't help but like him.
+This is why she couldn't help but like him.
 
-Monica thought, smiling.
+Monica thought that as she smiled.
 
-"Yeah, I'm fine."
+"Yeah, I'm okay."
 
----
+* * *
 
-### In the Past, Our Platoon Leader Said
+In the past, our company commander said.
 
-First loves are hard to forget.
+First love is not easily forgotten.
 
-Even after getting married, he still remembered.
+He said he still remembered it even though he was married.
 
 I agree with that.
 
-Seeing my unrequited love and first love, Monica, made my heart race again.
+Seeing my crush and first love Monica made my heart pound again.
 
-But I couldn't show it, so I quietly followed Monica around and enjoyed shopping.
+But I couldn't show it, so I quietly followed Monica around while enjoying shopping.
 
-Honestly, I was a bit tired.
+Honestly, it was a bit tiring.
 
-But seeing Monica's smiling face wasn't so bad.
+But seeing Monica's smiling face wasn't bad.
 
-- Roberto: So, did you have dinner together?
+-Roberto: So, did you have dinner together?
 
-- Park Minho: No? We just parted ways after shopping.
+-Park Minho: No? We just parted ways after shopping.
 
-- Roberto: You son of a...
+-Roberto: You damned fool.
 
-- Park Minho: Why are you suddenly cursing?
+-Park Minho: Why are you suddenly swearing?
 
-Sometimes I couldn't understand Roberto.
+Sometimes I can't understand Roberto.
 
-Whenever it came to Monica, he made me out to be some dull, clueless guy.
+When it comes to Monica, he always makes me out to be some clueless and dense guy.
 
-- Park Minho: Honestly, if Monica had any interest in me, wouldn't she have suggested having dinner first?
+-Park Minho: Honestly, if Monica had any interest in me, wouldn't she have suggested dinner first?
 
-- Roberto: Have you ever thought that maybe Monica is waiting for you to confess?
+-Roberto: Have you ever thought that maybe Monica is waiting for your confession?
 
-- Park Minho: That's not it. Why would Monica, who isn't lacking anything, wait for a confession from a guy like me?
+-Park Minho: No way. Why would Monica, who has everything, be waiting for a confession from someone like me?
 
-- Roberto: You really are a son of a... I think you'll live alone forever.
+-Roberto: You're really a damned fool. I think you'll live alone forever.
 
-- Park Minho: Isn't that a curse?
+-Park Minho: Isn't that a curse?
 
-- Roberto: Yep, it's a curse, you son of a...
+-Roberto: Yes, it's a curse. You damned fool.
 
-There weren't any such signs.
+I didn't notice any such signs.
 
-Besides, I thought Monica, being a model, would avoid dating anyone.
+Besides, since Monica is a model, she might avoid dating someone.
 
 Anyway.
 
-Wearing the clothes Monica picked, I went to the training ground the next day, and some players looked surprised.
+When I wore the clothes Monica picked out and went to the training ground the next day, some players had surprised expressions.
 
 "Minho... is wearing normal clothes!"
 
-"Alright! Pay up 3 euros each, 3 euros each!"
+"Alright! Hand over 3 euros each. 3 euros each!"
 
-"Why do I always lose when I bet on the obvious? I can't understand, I just can't!"
+"Why is it that whenever I bet on the obvious choice, this happens? I can't understand. I just can't!"
 
-I felt a bit upset.
+I felt a bit annoyed.
 
-Betting on my outfit.
+Betting on what I wear.
 
-"What was the obvious bet?"
+"What was the obvious choice?"
 
-"Surely, 'he's wearing something weird today' was the low odds bet. Only Giovanni and Gennaro bet on 'he's wearing normal clothes' this time."
+"Surely, 'Today, he will wear something weird again' had the lowest odds. Only Giovanni and Gennaro bet on 'He will wear normal clothes today,' right?"
 
 "..."
 
-I would go rogue.
+I'm going to rebel.
 
-Tomorrow, I would wear a hoodie with Nicolas Cage's face printed large on it.
+Tomorrow, I'll wear a hoodie with a huge print of American actor Nicolas Cage on it.
 
-Darn teammates.
+Damn teammates.
 
-Santiago, were you in on the obvious bet too?
+Santiago, were you also betting on the obvious choice?
 
-Darn slacker.
+Damn lazy guy.
 
-Just you wait.
+Just wait and see.
 
-I'll see if I pass the ball to you in the Serie B opener in a few days.
+A few days later, at the Serie B opener, let's see if I pass the ball to you.
 
----
+* * *
 
-### Whoa!
+Wooooo!
 
 Serie B debut match.
 
-The opponent was 'Como 1907,' a team that got promoted like Ternana.
+The opponent was 'Como 1907,' a promoted team like Ternana.
 
 They were the champions of Serie C Group A.
 
-Group B's champions were Perugia.
+The champions of Group B were Perugia.
 
-AC Perugia was dissolved and reformed as Perugia Calcio in 2005, and they were promoted to Serie B this season.
+AC Perugia was dissolved and reestablished as Perugia Calcio in 2005, and they were promoted to Serie B this time.
 
-Group C was our Italy Cup first-round opponent, Ternana.
+The champions of Group C were our first-round Coppa Italia opponents, Ternana.
 
 Anyway.
 
 This team came out with a 4-2-3-1 formation.
 
-We, as always, used a 3-3-1-3 formation.
+We used our usual 3-3-1-3 formation.
 
-As I had resolved, I couldn't pass the ball to Santiago.
+As I resolved, I couldn't pass the ball to Santiago.
 
 Because I wasn't a starter.
 
-I started on the bench this time.
+This time, I started on the bench.
 
 Santiago was placed in the center.
 
-On the sides were Valentin Mihaila and Yann Karamoh, making it a more aggressive lineup.
+On both sides were Valentin Mihaila and Yann Karamoh, making it a more attacking lineup.
 
-The common point among the three players placed in the second line was that they were excellent on-the-ball players.
+The common trait of the three players positioned in the second line was that they were all excellent on-the-ball players.
 
-With these three high-activity players matching up with the highly collaborative Gianluca, the score came out quickly.
+These three players had a lot of activity and excellent connection skills, making it easy to get points early when matched with Gianluca.
 
-- Goooooal!
+-Gooooooal!
 
-- Gianluca! He scores the opening goal!
+-Gianluca! He gets the opening goal!
 
-- Santiago dragged two defenders and made a cutback, creating a great chance for Gianluca.
+-Santiago pulled two defenders and made a cutback pass, giving Gianluca a great chance.
 
-- No matter how lacking Gianluca's finishing skills are, he wouldn't miss such a chance.
+-No matter how much Gianluca lacks finishing skills as a striker, he wouldn't miss such a chance, right?
 
-- That's right!
+-Exactly!
 
-With the opening goal.
+After the opening goal.
 
-Parma, pressing continuously, secured a 3-0 score in the first half, sealing the victory early.
+Parma, who continued to press, confirmed the victory early with a 3-0 score in the first half.
 
-And in the 41st minute of the second half, I was substituted in for Santiago and stepped onto the field.
+And at the 41st minute of the second half, I stepped onto the field, substituting for Santiago.
 
-Although the time was too short to rack up any attacking points.
+Although I didn't have enough time to get any attack points.
 
 The team won 4-1.
 
 It was a good start.
 
-After the opener ended.
+After the match.
 
-Coach Alain Lavin called me over.
+Coach Alain Levagne called me.
 
-He said I'd be starting in the next match.
+He said I'd start in the next game.
 
-And,
+And.
 
-He said I'd be playing on the left side.
+He said I'd be playing on the left.
 
-The left side.
+On the left.
 
-It was my first time playing on the flank.
+I've never played on the wing before.
 
-Having only played in the center, I was worried about playing on the wing.
+I've always played in the center.
 
-So, I went to the club's analysis team.
+I was a bit worried.
 
-And asked.
+So I went to the scouting department within the club.
 
-"Is there a player whose play I can learn from on the flank?"
+And I asked.
 
-After a moment of thought, Analyst Thomas brought up some video footage.
+"Are there any players on the wing that I could learn from?"
 
-"How about this guy? If you can play like him, I believe you can grow even more."
+After a moment of thought, Thomas, the analyst, brought someone’s video.
+
+"What about this guy? If you can play like him, I’m sure Minho will grow even more."
 
 "His name is... Ethan Michael Hazard..."
 
 "No, you read it wrong."
 
-"Oh! Eden Hazard. Right? The one at Real Madrid now, who used to play at Chelsea."
+"Oh! Eden Hazard. Right? The one who used to play for Chelsea and is now at Real Madrid."
 
-"Yes, it's footage of Eden Hazard from his Chelsea days, not Real Madrid. I didn't capture much... but I collected a lot of data on Hazard when I worked at Fulham."
+"Yes, it's the data of Eden Hazard during his Chelsea days. Although I couldn't gather much... While I was at Fulham, I collected a lot of data on Hazard."
 
-It was a 4-hour video.
+It was a total of 4 hours of footage.
 
-According to Thomas, he had added his own analysis as subtitles in the video.
+Thomas said he had annotated the footage with his analysis.
 
-"Minho, you play like a traditional number 10 in the center... But if you can move like Eden Hazard on the left, I guarantee you'll be a player whose name goes down in history."
+"Minho, you play more like a traditional number 10 in the center... If you can move like Eden Hazard on the left, I guarantee you'll be a player whose name will go down in history."
 
-"Oh... It's not that much. Anyway, I'll take a good look. Thanks, Thomas."
+"Come on... that's too much. Anyway, I'll watch it. Thanks, Thomas."
 
-"Well, it may not help much, but you'll at least learn how to move on the flank."
+"I'm not sure how helpful it will be. But at the very least, you'll understand how to move on the wing."
 
-Thomas's lip service was too sweet.
+Thomas's sweet words were comforting.
 
-Anyway, I took the video home.
+Anyway, I took the footage home.
 
-- Eden Hazard is fast!
+-Eden Hazard is fast!
 
-- Hazard moves up. Hazard! Higuain! 1-2 pass with Higuain! Then breaks through and shoots!
+-Hazard is moving up. Hazard! Higuain! One-two pass with Higuain! Breakthrough and shoot!
 
-- Goooooal Hazard! Hazard!
+-Gooooooal Hazard! Haaaaazard!
 
-"Wow... So you can move like that too."
+"Wow... he can move like that."
 
-Not just the left wing, but he moved freely to the center and right, switching positions.
+Not only on the left wing but also moving freely to the center and the right, switching positions.
 
-Quick pace and delicate ball control.
+Fast pace and delicate ball control.
 
 Agile movements and excellent passing ability.
 
-A left winger with great playmaking skills.
+A left-winger with great playmaking skills.
 
-But beyond those strengths, Hazard's biggest advantage that made him world-class was his overwhelming 'dribbling.'
+But more than those traits, what made Hazard world-class was his overwhelming 'dribbling.'
 
-"In the past, I just thought he was good when watching on TV... Seeing it analyzed like this, it's on another level."
+"When I watched him on TV in the past, I just thought he was good... Watching the analyzed footage, it's on another level."
 
 Is this what a true genius is?
 
 I felt a bit intimidated.
 
-"Still, let's try to learn slowly."
+"Still, let's learn slowly."
 
 First, that dribbling.
 
-If I could somehow mimic that dribbling.
+Let's try to mimic that dribbling somehow.
 
-Then at least I wouldn't be a burden on the left side.
+Then, at least I won't be a burden on the left wing.
 
-I spent the whole day watching the Hazard analysis video.
+I watched Hazard's analysis footage all day.
 
-Then started practicing those dribbles and movements at the training ground two days later.
+And two days later, I started practicing that dribbling and movement at the training ground.
 
 "It's not easy."
 
-World-class indeed felt different.
+Indeed, world-class players are different.
 
-"This crazy guy. Can he really move like that on the flank?"
+"Crazy... can he really move like that on the wing?"
 
-"This is what real talent is."
+"This is real talent."
 
-"This is driving me nuts. I thought our coach had a delusion of grandeur by putting Minho on the flank, but..."
+"This is driving me nuts. I thought the coach had lost his mind sending Minho to the wing...”
 
-"Maybe our coach is not delusional but a real genius?"
+“Actually... isn't our coach a real genius, not just having a genius complex?"
 
-"If Minho ends up playing as a defender, should I pack up and transfer?"
+"If he says Minho will play as a defender later, should I pack my bags and transfer?"
 
-"Don't worry. As the defensive midfielder, I'd be the first to get kicked out."
+"Don't worry. I, the defensive midfielder, will be the first to be kicked out."
 
-But Gianluca and a few other players looked at me in shock.
+But Gianluca and some players were looking at me in shock.
 
-I hadn't even managed to imitate half of Eden Hazard.
+I couldn't even mimic half of Eden Hazard.
 
 Why were they so surprised?
 
 I couldn't understand.
 
-Then August 25th arrived.
+And then, August 25th arrived.
 
 The second round of Serie B.
 

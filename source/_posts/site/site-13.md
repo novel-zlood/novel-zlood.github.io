@@ -7,321 +7,325 @@ tags:
 
 ## 5. You Can Follow Along in a Day? (2)
 
-The upcoming Serie B Round 2 match against S.P.A.L was quite an important game.
+The upcoming Serie B Round 2 match against S.P.A.L was a rather important game.
 
-Honestly, every league game was important, but this one was especially so.
+Honestly, there wasn't a single league match that wasn't important... Especially this match was crucial.
 
-S.P.A.L was a team relegated from Serie A in the 19-20 season and had shown a poor performance by finishing 9th in the league during the 20-21 season.
+S.P.A.L was a team relegated from Serie A in the 19-20 season and showed a poor performance by finishing 9th in the league last season, 20-21.
 
 But this season was different.
 
-From the preseason, they had made some significant transfers that were unexpected for a Serie B club, raising people's expectations.
+From the preseason, they achieved quite significant transfers that were unexpected for a Serie B club, raising people's expectations.
 
-[S.P.A.L's big signing! Alessio Crociata from Lyon! The whale of this Serie B season is S.P.A.L!]
+[S.P.A.L's Big Signing! Alessio Crociata from Lyon! S.P.A.L is the whale of this Serie B season!]
 
 [Daniele Colombo! From Bournemouth to S.P.A.L!]
 
-[Super team of Serie B? Serie B clubs are nervous over S.P.A.L’s shocking transfer market moves]
+[A Super Team in Serie B? S.P.A.L's shocking transfer market moves have Serie B clubs on edge]
 
-[Pep Clotet fired! S.P.A.L’s new manager is Martinho Casas! The excellent manager who led Royal Antwerp to 3rd place in the Belgian league last season!]
+[Pep Clotet sacked! S.P.A.L's new coach is Martinho Casas! An excellent coach who led Royal Antwerp to 3rd place in the Belgian league last season!]
 
 [S.P.A.L aims for promotion to Serie A this season!]
 
-Despite not being a big club, their new owner invested a considerable amount of money, leading to many changes.
+Even though it wasn't a big club, the new owner invested a considerable amount of money, changing many aspects.
 
-Not just the manager and coaches.
+Not only the coach and staff.
 
-They had completed the renovation of facilities and the stadium.
+The facilities and stadium renovations were completed as well.
 
-And even brought in new players to form the team.
+And they even recruited new players to form the team.
 
-The S.P.A.L that finished 9th in Serie B last season was no more.
+The S.P.A.L of last season, which finished 9th in Serie B, was no more.
 
 This season, they were the team closest to promotion.
 
 That was S.P.A.L.
 
-As if to back their bold claims, S.P.A.L won all their preseason friendly matches.
+As if to back up their bold claims, S.P.A.L won all their preseason friendly matches.
 
-In some ways, the team that could pose the biggest threat to Parma’s promotion was this S.P.A.L.
+In some ways, the team that could be the biggest obstacle to Parma's promotion was this S.P.A.L.
 
--Roberto: S.P.A.L's form is no joke these days. I watched the first round of the league, and they won 3-1 against Pordenone, you know?
+-Roberto: S.P.A.L's form is no joke these days. I watched the first round, and they won 3-1 against Pordenone.
 
 -Park Minho: Really?
 
--Roberto: So please win this game and bring good vibes to Parma from the start of the season. There are too many strong teams this season, like Benevento!
+-Roberto: So, I really hope we win this match so Parma can get off to a good start this season. There are too many strong teams this season, like Benevento!
 
-Roberto, a die-hard Parma fan, was quite worried.
+Roberto, a die-hard Parma fan, was also very worried.
 
-Moreover, this game was an away match.
+Moreover, this match was an away game.
 
 Unlike at home, it could be a very tough away game.
 
-I heard that mentally weak friends get really stressed, so I was a bit worried.
+I heard that players with weak mentalities get extremely nervous, which made me a bit worried.
 
-I'm quite a scaredy cat.
+I tend to get scared easily.
 
-But I really hope we win the game.
+But I really hope we win the match.
 
-If we win, Roberto promised to buy me dinner.
+If we win, Roberto promised to buy me a meal.
 
 * * *
 
 The players enter the field.
 
-S.P.A.L’s home ground.
+S.P.A.L's home ground.
 
-The roar of the crowd filling Stadio Paolo Mazza fiercely hits the ears.
+The roar of the crowd filling Stadio Paolo Mazza fiercely hits my ears.
 
-"Will it work?"
+“Will it work?”
 
-Head coach Alain Laban muttered, and Parma’s assistant coach Matteo Vitiello shook his head.
+At the murmuring of Coach Alain Levagne, Parma's head coach Matteo Vitiello shook his head.
 
-"If you’re that worried, why not place Minho in the center?"
+“If you're so worried, why don't you place Minho in the center?”
 
-"No. For the future, Minho must be able to play on the wing. We can’t rely on Franco and Santiago alone for the whole season."
+“No. For the future, Minho must be able to play on the flank. We can't rely on Franco and Santiago alone for the whole season.”
 
-"You know that, so..."
+“You know that, yet...”
 
-He couldn’t say more.
+He couldn't say more.
 
-Because he saw head coach Alain Laban's trembling foot.
+He saw Coach Alain Levagne's trembling foot.
 
 He was quite nervous too.
 
-Whether this decision was right or not.
+Whether this decision was right.
 
-That’s why he was more deeply troubled.
+That's why he was more troubled.
 
 Should he change it even now?
 
-In the last game, Park Minho shone in the center, but this time he was placed on the left wing.
+In the last match, Park Minho played in the center, but this time he was placed on the left flank.
 
 In some ways, it was a tactical experiment.
 
-There was considerable risk if this experiment failed.
+There was quite a risk if this experiment failed.
 
-The only relief was that Franco, who returned for today’s game, could play on the wing, so if it became too concerning, Park Minho could be moved back to the center.
+The only consolation was that Franco, who returned for today's match, could play on the flank, so if it was too uneasy, Minho could be moved back to the center.
 
-"Still, it’s a relief."
+“Still, it's a relief.”
 
-"Hmm?"
+“Hmm?”
 
-"That the opponent is S.P.A.L."
+“Because the opponent is S.P.A.L.”
 
-They were a strong team.
+They are a strong team.
 
-Since they had overhauled half their squad this season, they were showing a formidable presence.
+They showed a strong performance as they replaced nearly half of their squad.
 
-Conversely, they didn’t only have strengths.
+On the other hand, they didn't only have strengths.
 
 Their still shaky defensive organization was noticeable.
 
-"Yeah, we’re facing a team that, despite being strong, has a defense as fragile as sand grains. In some ways, it’s fortunate."
+“Yeah, considering they're a strong team, it's kind of a relief to face a team with a defense as shaky as sand.”
 
-Early in the game.
+Early in the match.
 
-The performance of both teams was evenly matched.
+Both teams showed equal performance.
 
-Lacking defensive organization, S.P.A.L gradually increased their possession and attacked.
+S.P.A.L, with its still lacking defensive organization, gradually increased possession and attacked.
 
-In contrast, Parma, centered around Franco, who had just returned from injury, showed a defensive-first and counter-attack style of play.
+On the other hand, Parma, with Franco just returning from injury, showed a defensive-first, counter-attacking game.
 
-"Will Minho be able to perform in the actual game as well as he did in training?"
+“Can Minho show the level of play he exhibited in training in an actual match?”
 
-Head coach Alain Laban cautiously rubbed his chin.
+Coach Alain Levagne cautiously stroked his chin.
 
-Assistant coach Matteo, observing him, smiled.
+Head Coach Matteo Vitiello looked at the coach and smiled.
 
-"He will definitely show it. He’s a player who’s more talented and harder working than anyone."
+“He can definitely show it. He's a talented and hardworking player.”
 
-Just then, the ball headed towards Park Minho on the left wing.
+Just then, the ball headed toward Park Minho on the left flank.
 
-Head coach Alain Laban and assistant coach Matteo's eyes focused on Park Minho.
+Coach Alain Levagne and Head Coach Matteo Vitiello.
+
+Both of their gazes fixed on Park Minho.
 
 * * *
 
-Until the 10th minute of the first half, the ball didn’t come to me.
+Until the 10th minute of the first half, the ball didn't come to me.
 
-In other words, I hadn’t touched the ball even once.
+So, I hadn't touched the ball once.
 
-I thought I couldn’t chat on the field.
+I thought I couldn't chat on the field.
 
-The S.P.A.L defender sticking close to me.
+The S.P.A.L defender stuck to me.
 
-In other words, S.P.A.L’s right wing-back, Carlito Del Prato, and I exchanged a few words.
-
-Saying S.P.A.L sounded like swearing.
+So, I had a brief conversation with Carlito Del Prato, S.P.A.L's right-back, who was often next to me.
 
 S.P.A.L.
 
-Oh, it’s not a curse.
+It sounds like a curse word.
 
-It’s the team name.
+S.P.A.L.
 
-Anyway, we had a decent conversation.
+Oh, it's not a curse.
 
-Of course, it wasn’t a long one.
+It's the team name.
 
-"First time on the wing?"
+Anyway, we had a good conversation.
 
-"Yeah."
+Of course, it wasn't a long conversation.
 
-Since the ball hadn’t come to the wing as much as I expected, I had only short exchanges with Carlito who was often close to me.
+“First time on the flank?”
 
-"Is it tough? The wing is originally like that."
+“Yeah.”
 
-"So I practiced by watching videos of famous players."
+The ball didn't come to the flank as much as I thought, so I had a brief chat with Carlito while passing by.
 
-"Who?"
+“Is it tough? The flank is always like this.”
 
-"Hazard."
+“So, I practiced by watching videos of famous players.”
 
-He smirked.
+“Who?”
+
+“Hazard.”
+
+He snickered.
 
 Why laugh at Hazard?
 
-Shaking his head, he said,
+Shaking his head, Carlito said.
 
-"You really think you can follow him?"
+“Can you follow him well?”
 
-I couldn’t answer.
+I couldn't answer that question.
 
 Because the ball finally came to me for the first time today.
 
-Carlito also closed his mouth and moved as the ball came to me.
+Carlito closed his mouth and moved as the ball came to me.
 
-Boo Boo Boo Boo Boo!
+Booing!
 
-The loud booing of the home fans could be heard.
+The harsh booing of the home fans could be heard.
 
-Though Parma’s away fans were singing a cheer song from afar.
+From afar, the away fans of Parma were singing a cheer song.
 
-The booing was so loud that the cheer song was drowned out.
+But the booing was so loud that it drowned out the cheer song.
 
-At the same time, the home fans cheered loudly as Carlito, S.P.A.L’s defender, blocked my path.
+At the same time, they cheered loudly as Carlito, S.P.A.L's defender, blocked in front of me.
 
-Early in the first half, S.P.A.L, who had gained the initiative, was riding the momentum with three or four effective shots.
+S.P.A.L, which had gained momentum by recording three or four effective shots early in the first half, was taking the lead.
 
-Moreover, with the team’s expectations rising due to the unprecedented investment, the home fans' voices were even louder.
+Moreover, the expectations for the team were high due to the unprecedented investment, and the voices of the home fans grew louder.
 
-If it weren’t for Parma’s legend Giovanni Buffon's fantastic saves, we would have already been trailing 2-0.
+If it weren't for the fantastic saves of Gianluigi Buffon, Parma's legend, we would have already been down 2-0.
 
-Thump! Thump!
+Tap! Tap!
 
-Slowly dragging the ball, I advanced gradually.
+I slowly dribbled the ball forward.
 
-Carlito’s eyes were fixed on my legs.
+Carlito's eyes were fixed on my legs.
 
-So, what should I do now?
+Now, how should I proceed?
 
 How did Hazard do it?
 
 Like this...
 
-With a light move, I broke through.
+If I lightly move and break through?
 
 Wow!
 
-A huge cheer erupted from the away stands.
+A huge cheer erupted from the away section.
 
-Because I broke through Carlito, who was blocking my path, with just two touches and penetrated the empty left wing.
+I broke through Carlito, who was blocking in front of me, with just two touches and penetrated the empty left flank.
 
-Gennaro Tatis cutting into the center.
+Gennaro Tatis was cutting in towards the center.
 
-Seeing him, I crossed the ball without hesitation.
+Seeing him, I confidently sent a cross.
 
 -A high cross!
 
--Gennaro Tatis heads it down! And shoots directly!
+-Gennaro Tatis heads it down to the field! And he shoots!
 
--Gooooooal! When did he come up? Center back Lautaro Valencia scores!
+-Gooooaaal! When did he come up? Central defender Lautaro Valencia scores!
 
--Hahaha! It’s amazing! Center back Lautaro ran almost 50 meters to handle the ball Gennaro Tatis headed down!
+-Haha! This is amazing! Central defender Lautaro ran almost 50 meters to handle the ball Gennaro Tatis headed down!
 
-Wow... his stamina is really great.
+Wow... He has great stamina.
 
-Honestly, I can’t do that.
+Honestly, I can't do that.
 
-"Nice goal!"
+“Nice goal!”
 
-After high-fiving Lautaro who scored, I lightly patted Gennaro Tatis’s butt.
+After high-fiving Lautaro, who scored, I lightly patted Gennaro Tatis's butt.
 
-I was satisfied with creating one key play.
+I'm satisfied since I contributed to the goal.
 
-Also, we scored the opening goal.
+Having created the first goal for the team.
 
-As I slowly returned to my position, I saw Carlito, who mocked me earlier, with a scrunched-up face.
+Slowly returning to my position, I saw Carlito's face, who had laughed at me, all scrunched up.
 
-Crying over just one breakthrough...
+Getting sulky from just one breakthrough...
 
-There were still about 30 minutes left in the first half.
+There are still about 30 minutes left in the first half.
 
 * * *
 
-"Ca**o!"
+“Cazzo!”
 
-A slang term for male genitals.
+A vulgar word meaning male genitalia.
 
-Translated literally in Korean, it means "f***ing".
+In our language, it directly translates to f**k.
 
 That’s what Carlito, in front of me, was muttering.
 
-So... was it three times already?
+So... have I beaten him 3 times already?
 
-This guy was rumored to be a good defender, but he seemed to be struggling against wingers like Hazard.
+This guy was rumored to be good at defense, but he seems to be struggling against a winger like Hazard.
 
-"Minho!"
+“Minho!”
 
 Franco passed the ball to me.
 
-I quickly ran to get the ball.
+I quickly dashed to catch the ball.
 
-I lightly dodged Carlito, who tried to push me to the side, with an upper-body feint and just ran.
+After lightly tricking Carlito, who tried to push me to the sidelines, with a body feint, I just ran.
 
-Was my acceleration great?
+I must have some great acceleration.
 
-Carlito was getting farther away from me.
+Carlito gradually fell behind.
 
-Eventually, another player in the center left his position to block me and occupied the left wing ahead of me.
+In the end, another player from the center came out to block me, leaving his position and occupying the left flank in front of me.
 
-Thump! Thump! Thump! Thump!
+Tap! Tap! Tap! Tap!
 
 Well, I just ran.
 
-I was accelerating.
+I had already accelerated.
 
-At the same time, I understood that the opponent couldn't easily push me away.
+At the same time, I realized the opponent couldn’t easily push me back.
 
-I just pushed through with my body and penetrated the center, seeing the defender’s face filled with bewilderment.
+Just pushing my way through and cutting into the center, the opponent’s defender looked bewildered.
 
-I guess he didn’t expect me to push through so decisively.
+They probably didn’t expect me to charge in so decisively.
 
 In the end.
 
-The opponent used his last resort.
+The opponent used the last resort.
 
-"Ugh!"
+“Uh!”
 
-Beep!
+Tweet!
 
-He grabbed my uniform and pulled me down.
+Pulling my uniform to make me fall.
 
-The referee quickly pulled out a card for the opponent.
+The referee quickly drew a card.
 
-The center-back who received a yellow card roughly brushed his hair back and returned to his position.
+The central defender who received a yellow card roughly brushed his hair and returned to his position.
 
-"Stop running around, you damn kid."
+“Stop running around so much, you damned kid.”
 
-Carlito, who had been tormented by me throughout the first half, growled.
+Carlito, who had been swayed by me throughout the first half, growled at me.
 
-Stop running around.
+He told me to stop running.
 
-But my mission today was to run and mess up their left side for 60 minutes, both in the first and second half.
+But my task today was to play for exactly 60 minutes and mess up the left side of the opponent.
 
-Thanks to that, I was running without worrying about conserving my stamina.
+Thanks to that, I was running without worrying about conserving my energy.
 
-"Hoo..."
+“Phew...”
 
 It was a free-kick chance.
 
@@ -329,177 +333,183 @@ Franco approached me.
 
 His condition wasn’t too bad today.
 
-But it seemed he wasn’t completely in perfect shape.
+But he didn’t seem to be in perfect shape yet.
 
-His passes were slightly fast or slow.
+His passes were either slightly fast or slow.
 
 Well, it was a 3-week injury.
 
-Franco, who returned in just 2 weeks with the help of the medical team.
+Franco, who returned in 2 weeks with the help of the medical team.
 
-Even if his physical condition was normal, his body rhythm might not be perfect.
+Even if the body was normal, the physical rhythm might not be perfect yet.
 
-Franco offered me the free-kick.
+Franco handed the free-kick to me.
 
 Though it was a bit close.
 
-I felt I could create a good chance with my left foot, so I agreed.
+I thought I could create a good opportunity with my left foot, so I agreed.
 
-"Hoo..."
+“Phew...”
 
 Raising my hand, Gennaro's eyes sparkled.
 
-Feeling like I was going to curve it deeply.
+Kicking it with a long curve.
 
-Beep!
+Tweet!
 
-With the referee’s whistle, I ran towards the ball.
+With the referee’s whistle, I ran toward the ball.
 
-Boom!
+Thwack!
 
-The ball drew a graceful curve.
+A ball drawing a graceful curve.
 
 At the same time, Gennaro Tatis jumped high.
 
 -Minho’s free-kick!
 
--The slightly curved ball directly to! Directly to Gennaro Tatis! A header! Ah! Saved by keeper Andrea! The ball comes out!
+-The slightly curved ball goes directly! Directly!
 
--Gooooooooooooal! Lautaro Valencia! He pushes the ball in!
+-To Gennaro Tatis! Header! Ah! Saved by goalkeeper Andrea! The ball comes out...!
 
-Today seemed to be the day for Parma’s key defender, Lautaro Valencia.
+-Gooooooal! Lautaro Valencia! He puts in the deflected ball!
 
-Like a piece of cake, he easily scored.
+Today seemed to be the day for Lautaro Valencia, Parma's key defender.
 
-I was involved in the play again.
+He scored the goal as easily as eating cake.
 
-Two key plays today.
+I contributed to this goal too.
 
-Not bad, but... still a bit disappointing.
+Two contributions in today’s match.
 
-"Nice kick!"
+Not bad... But a bit disappointing.
 
-"It feels good, right? Two goals already."
+“Nice kick!”
 
-"Let’s keep it up! Just like this."
+“Feels good, right? Two goals already.”
+
+“Let’s keep it up! Just like this.”
 
 Parma leading 2-0.
 
-Today’s game felt good.
+Today’s match.
+
+It felt good.
 
 * * *
 
-It’s halftime.
+It was halftime.
 
-"Franco, well done. Santiago and Gianluca will be brought in the second half for the center."
+“Great job, Franco. Santiago and Gianluca will be substituted in the center for the second half.”
 
-Due to COVID-19, Serie B could substitute up to 5 players until 2022, so head coach Alain Laban replaced the two players who had consumed quite a bit of stamina in the first half.
+Due to COVID-19, Serie B can make up to 5 substitutions until 2022, so Coach Alain Levagne substituted the two players who used a lot of energy in the first half.
 
-"Minho, let’s play for another 15 minutes in the second half."
+“Minho, you’ll play for 15 more minutes in the second half.”
 
-"Yes."
+“Yes.”
 
-Of course, I would play for about 15 more minutes.
+Of course, I’ll play for about 15 more minutes.
 
 There were no tactical changes.
 
-Unless S.P.A.L changed their tactics first, there was no need to change anything.
+There was no need to change unless the opponent, S.P.A.L, made tactical changes first.
 
 And the second half began.
 
-Carlito, who had been tormented by me throughout the first half, came close and muttered when the ball wasn't coming.
+Carlito, who had a hard time with me throughout the first half, muttered to me when the ball wasn’t coming.
 
-"How many months?"
+“How many months did it take?”
 
-"Huh?"
+“What?”
 
-"How many months did it take to study Hazard? You must have studied for quite some time, huh? I really struggled in the first half."
+“How many months did you study Hazard? You seem to have studied for quite a while? I definitely struggled throughout the first half.”
 
-"Really?"
+“Really?”
 
-"But now it’s different. In the second half, I’ll show you what real pressure is."
+“But now it’s different. In the second half, I’ll show you what real pressure is.”
 
 He seemed quite confident.
 
-He definitely had the right to say that.
+He had the right to say such things.
 
-His concentration was much higher in the second half, making him a much tougher opponent to break through.
+He was definitely more focused than in the first half, making it harder to get past him.
 
-"But... it’s just difficult, not impossible, right?"
+“But... It’s just harder, not impossible.”
 
-Swoosh!
+Whoosh!
 
-Carlito, who slid excessively.
+Carlito slid excessively.
 
-I ran fast, leaving him behind.
+Leaving him behind, I ran quickly.
 
-He had a face as if he didn’t know what hit him.
+He looked as if he didn’t know what hit him.
 
-Hey, I have my killer move too.
+Hey, I have a special move too.
 
-You’re not the only one who can awaken or something, right?
+You’re not the only one who can awaken or whatever.
 
--Minho! Minho! A Marseille turn to break through Carlito and a direct sprint down the wing!
+-Minho! Minho! A Marseille turn to bypass Carlito and break through the flank!
 
 -Fast! Fast! Fast!
 
-After a graceful Marseille turn, a sprint.
+After a graceful Marseille turn, a dash.
 
-Like before, someone from the center ran out to occupy the space in front of me.
+The opponent dashed out from the center to occupy the space in front of me.
 
-But I won’t let it happen again.
+But I won’t be fooled like last time.
 
-Thump!
+Tap!
 
 A pass to Santiago in the center.
 
 And received it back.
 
--Breaks through with a 1-2 pass with Santiago! There’s no one ahead! Just the goalkeeper!
+-Minho bypasses with a one-two pass with Santiago! No one ahead! Only the goalkeeper!
 
 -Minho! Minho! Minho! Minho!
 
--Andrea, the goalkeeper, rushes out quickly!
+-The goalkeeper Andrea rushes out!
 
-The opposing goalkeeper rushed out in a hurry as if his butt was on fire.
+He must have been in a hurry.
+
+Rushing out like that.
 
 Thanks to that, I could finish cleanly.
 
-Thump!
+Tap!
 
 A clean lob shot.
 
-After confirming the ball going into the goal, I quickly ran towards the away stands and slid.
+After confirming the ball went into the goal, I ran quickly and slid toward the away section.
 
 Minooooooo!
 
 Parma fans chanting my name.
 
-Smiling brightly at them, I returned to my position.
+I smiled brightly at them and returned to my position.
 
-Carlito, with a dazed expression.
+Carlito, with a blank expression.
 
 Looking at him, I answered his earlier question.
 
-"You asked how long it took earlier, right?"
+“You asked how long it took?”
 
-"....."
+“...”
 
-"I could follow it after watching for a day."
+“I could follow after watching for a day.”
 
-"What?"
+“What?”
 
-"You can follow this much after watching for a day, right?"
+“You can follow this much after watching for a day?”
 
-At my response, Carlito frowned.
+Carlito frowned at my answer.
 
 He looked at me as if I was annoying.
 
-"Screw off."
+“Get lost.”
 
-Earlier, he was mocking cheerfully.
+He was laughing so much earlier.
 
-I don't get why.
+I don’t get it.
 
 I’m not even half as good as Hazard yet.
 

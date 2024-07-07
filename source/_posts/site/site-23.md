@@ -7,233 +7,233 @@ tags:
 
 ## 9. Never Underestimate South Korea Again! (3)
 
-I had decided to showcase senior Shin Junseo's 80-meter dribble.
+I was determined to show off Sunbae Shin Jun-seo's 80-meter dribble.
 
-To be honest, I thought it would be extremely difficult to replicate unless a good opportunity presented itself.
+Honestly, I thought it would be very difficult to recreate it if a good opportunity didn't arise.
 
-The reason being that his 80-meter dribble was an extraordinary play that won the Puskás Award.
+That's because that 80-meter dribble was such an amazing play that it won the Puskás Award.
 
-As Lecce tied the score to 2-2, the atmosphere changed drastically.
+The atmosphere of Lecce, who had caught up to 2-2, rapidly changed.
 
 It was too disappointing to just sit back.
 
-The opponent had one player sent off.
+Their opponent had one player sent off.
 
-In the first half, they were leading 2-0, but suddenly it was tied 2-2.
+From a situation where they were winning 2-0 in the first half, they were suddenly caught up to 2-2.
 
-They couldn't just sit back and defend the line.
+They absolutely couldn't just sit back and lower their line.
 
-Lecce pushed their line forward.
+Lecce pushed their line up.
 
 At the same time, I was looking for an opportunity.
 
-If I had the chance to sprint at full speed...
+If there was a chance to run at full speed.
 
-I was genuinely thinking of replicating that incredible run.
+I was really planning to recreate that incredible run.
 
 But it wasn't easy.
 
 "Push the line! Slowly! Slowly!"
 
-Lecce, having pushed their line forward, was fierce.
+Sure enough, Lecce, who had pushed their line up, was fierce.
 
-It was tough for us, who were one man down, to defend.
+It was tough for us, who were one player short, to block them.
 
-However, our defensive line wasn't completely messed up.
+But that didn't mean our line was a mess.
 
-Unlike in the first half, Parma's defense was forming a tighter line than expected.
+Unlike the first half, our Parma defense was forming a surprisingly tight line.
 
 The team's atmosphere was strangely better than in the first half.
 
-It might be because the score, which had been 2-0, was now 2-2.
+It might be because the score, which had been trailing 2-0, was now 2-2.
 
-But more than that, it seemed we had finally adapted to playing with 10 men.
+But more than that, it seemed more appropriate to say that we had finally properly adapted to the formation of playing with 10 men.
 
-In fact, the team coordination was better with 10 men than with 11.
+Our coordination was actually better than when we were playing with 11 men.
 
-Of course, playing with 10 men consumed more energy.
+Of course, because we had only 10 players, we were expending more energy.
 
-But because of that, our concentration was heightened.
+But because we were running a lot, our concentration had greatly increased.
 
-Hmm... rather than saying our concentration was heightened...
+Hmm... Rather than saying our concentration had greatly increased,
 
-Maybe it's better to say that running around so frantically left no room for idle thoughts?
+Maybe it would be better to say that running around frantically had cleared our minds of any distractions?
 
 Anyway.
 
-As the game dragged on, Lecce's players started committing more frequent fouls.
+As the game dragged on, the frequency of rough fouls by Lecce players increased.
 
-Already their fourth yellow card.
+Already the fourth yellow card.
 
 Three of those cards were on Lecce's defenders.
 
-"This is an opportunity."
+"This is a chance."
 
-Yes, it's an opportunity.
+Yeah, it's a chance.
 
-A little past the 30th minute of the second half.
+A little over 30 minutes into the second half.
 
-I believed that if we waited a bit longer, we would definitely get a chance to counterattack.
+I believed that if we held out a little longer, a counterattack opportunity would definitely come to us.
 
-So I conserved my energy.
+I conserved my stamina for that.
 
-And as if reading my mind, Valentin Mihaila was substituted on the opposite wing.
+And as if reading my mind, Valentin Mihăilă was substituted in on the opposite side of my flank.
 
-With fresh energy, Valentin Mihaila drew all of Lecce's attention in the remaining time.
+The energetic Valentin Mihăilă attracted all of Lecce's attention for the remaining time.
 
-- The ball to Valentin!
+- Ball goes to Valentin!
 
-- He's fast! Valentin Mihaila, with full energy, swiftly breaks through the opponent's side!
+- He's fast! The fully energized Valentin Mihăilă breaks through the opponent's flank in an instant!
 
-Valentin Mihaila, running like a red hare, drew at least two defenders before crossing, forcing the opponent to run again to block Gennaro Tatis's header.
+Valentin Mihăilă, who ran like a red horse, drew at least two defenders before crossing, forcing the opponent to run again to block Gennaro Tatis's header.
 
-Continuously depleting energy.
+Continuously expending energy.
 
-The players of both Lecce and Parma were getting exhausted.
+The exhausted Lecce and Parma players.
 
-Amidst this, I was gradually being forgotten.
+In the midst of that, I was gradually being forgotten.
 
-“You f***ing bastard, running around like a mad foal.”
+"Damn bastard. Running around like a crazy colt."
 
-Antonio, Lecce's left fullback, who had covered for Valentin and Gennaro’s counterattacks multiple times, came back to my side and grumbled.
+Valentin and Gennaro.
 
-Now, to this guy’s eyes, I was invisible.
+Lecce's left fullback Antonio, who had run to the center multiple times to cover the two's counterattacks, came back to my side and grumbled.
 
-Even during counterattacks, I seemed exhausted.
+Now, in this guy's eyes, I was invisible.
 
-I was just jogging around.
+Even during counterattacks, I was running leisurely as if out of energy.
 
-Even if the ball came to me.
+Even when the ball came to me.
 
-I would just pass it long to the opposite side.
+I just connected it long to the other side.
 
 I didn't move at all.
 
-To Lecce’s defense, I was just a scarecrow, completely drained and only distributing passes.
+To Lecce's defenders, I would look like a scarecrow completely drained, just distributing passes.
 
-It felt like an opportunity was coming.
+It seemed like an opportunity was coming.
 
-It was now the 35th minute of the second half.
+Now it was the 35th minute of the second half.
 
-There were still 10 minutes left.
+There was still 10 minutes left.
 
-Generously speaking, there were about 15 minutes left.
+Generously speaking, there were 15 minutes left.
 
-The coach took out the third substitution card.
+The coach used the third substitution card.
 
-He took out Marjan, who had been running crazily in the center, and sent in Simon Sophie, strengthening the defense.
+Replacing the crazily running Marian in the center with Simon Soph to reinforce the defense.
 
-To anyone watching, it would look like we were settling for a 2-2 draw.
+To anyone watching, it might seem like we were now settling for a 2-2 draw.
 
 But I knew.
 
-This was a trick by coach Alain Lavan.
+This was Coach Alain Levagne's trick.
 
-Well, I didn't know the details, but...
+Well, I didn't know the details.
 
-This substitution would confuse Lecce.
+But this substitution would confuse Lecce.
 
-Their strategy from the first half, which worked so well, was starting to get blocked by the opponent as time went on.
+The soccer that had worked so well for them in the first half was starting to be blocked by the opponent as time went on.
 
-And in such a situation, the opponent starts to settle.
+And in such a situation, the opponent was settling.
 
-Could they run as fast as before, having spent so much energy after the score turned 2-2?
+After expending a lot of energy since it became 2-2, if they saw the current situation, could they run as fast as before?
 
 No.
 
 I was sure.
 
-You can learn this flow even in amateur football.
+This is a flow you can learn even in amateur soccer.
 
 The same goes for other sports.
 
-Even in online games.
+Even online games.
 
-When things that were going well start getting blocked and the flow gets disrupted.
+When the play that had been going well gets blocked and the flow starts to break.
 
-The idle thoughts start to dominate the brain.
+The moment the distractions that arise from that begin to dominate the brain.
 
 They think.
 
-It's tiring.
+It's hard.
 
-Yes, what starts to dominate their brains, having spent so much energy, is not adrenaline but accumulated fatigue.
+Yeah, what starts to dominate their brains, which had been pouring out energy, is not adrenaline but accumulated fatigue.
 
-Yes, their bodies and minds become dominated by fatigue.
+Yeah, their bodies and minds are dominated by fatigue.
 
-No, domination isn't the right word.
+No, it's not domination.
 
-Engulfed might be a better fit.
+The word 'engulfed' might be more fitting.
 
-It would feel like being stuck in a swamp.
+It would feel like being trapped in a swamp.
 
-When such a moment comes.
+If such a moment comes.
 
-Can this friend Antonio, who is frowning in front of me, overcome the monster called fatigue and stop my run?
+Can the friend Antonio, who is frowning in front of me, overcome the monster called fatigue and block my run?
 
-I'm a bit curious.
+I'm a little curious.
 
-And soon, the opportunity to answer that curiosity came.
+And soon, the opportunity to resolve that curiosity came.
 
-Yes, right now.
+Yeah, right now.
 
-“Minho!”
+"Mino!"
 
-A little past the 45th minute of the second half.
+A little over 45 minutes into the second half.
 
-Three minutes of added time.
+3 minutes of added time.
 
-Not 80 meters.
+It's not even 80 meters.
 
-Not even close to 70 meters.
+A distance slightly less than 70 meters.
 
-The opponent’s tired defenders.
+The opponent's exhausted defenders.
 
-And I had just enough energy left for one perfect sprint.
+And I had just enough energy left to show a perfect run once.
 
 * * *
 
-It started with a light left-foot touch.
+It started with a light left-footed touch.
 
-Antonio in front of me glanced at me.
+Antonio, who was in front of me, glanced at me.
 
-He probably thought I would pass and play it out.
+Maybe he thought I would pass and play it out.
 
-So he did not close in.
+He didn't even close in, thinking that way.
 
-Yes, he was complacent.
+Yeah, it's too complacent.
 
-Too complacent.
+Way too complacent.
 
 Thud!
 
 I attempted a breakthrough by pushing the ball with my right foot.
 
-Antonio in front of me was momentarily surprised and threw his body to block my breakthrough.
+Antonio, who was in front of me, was momentarily flustered and tried to block my breakthrough by pushing his body.
 
-But with enough space, I kicked the ball far forward and started to speed up.
+But with enough space, I kicked the ball long and started to gain speed.
 
-Gradually picking up speed.
+The speed that started to build up gradually.
 
-I only felt Antonio's fingers brush against my uniform for a moment.
+I only felt Antonio's fingers brushing against my uniform for a moment.
 
-I quickly broke through between two Lecce midfielders trying to surround me, kicking the ball far forward again.
+I kicked the ball long again between the two Lecce midfielders who were quickly surrounding me from the side.
 
-And I pushed through that space.
+And I broke through that space.
 
-This time, a rough tackle came in from the side.
+This time a rough tackle came in from the side.
 
-It seemed impossible to run straight for 80 meters like senior Shin Junseo.
+It seemed impossible to run straight for 80 meters like Sunbae Shin Jun-seo.
 
-I didn't have that kind of running power.
+Because I didn't have that kind of sprinting ability.
 
 So I turned my body.
 
-- Minho! Minho! Avoids Alexis Tablin’s tackle with a fantastic Marseille turn and returns to the side!
+-Mino! Mino! Avoids Alexis Tablín's tackle with a fantastic Marseille turn and goes back to the flank!
 
-- He’s fast! Minho, who slowed down with the Marseille turn, faces Morten Holmant ahead!
+-He's fast! Mino's speed has slowed down after the Marseille turn, and Morten Hjulmand is blocking his way!
 
-By doing a Marseille turn to avoid the opponent, Lecce’s players had some time to block my way.
+After dodging the opponent with a Marseille turn, some Lecce players had enough time to block my way.
 
 I had also slowed down a bit.
 
@@ -243,27 +243,27 @@ The opponent's arm touched my body.
 
 But I pushed him away with my arm and kept running.
 
-And with strength, I pushed him away.
+And I pushed him away with strength.
 
-Even though the opponent was a bit bulkier than me, he was too exhausted physically, so it wasn't a problem.
+Even though the opponent was a bit bulkier than me, it wasn't a problem because he was exhausted.
 
 The opponent slipped and fell.
 
-I ran past him.
+I ran, leaving him behind.
 
-Now, only three players were in front of me.
+Now there were only three players in front of me.
 
-I sped up even more.
+I increased my speed further.
 
-- Minho! Minho! Minho!
+-Mino! Mino! Mino!
 
-- Whoa! Avoids one more! He’s fast!
+-Wow! He dodges another player! He's fast!
 
-- He’s covered nearly 50 meters!
+-He covers almost 50 meters!
 
-After avoiding one more, the opponent acknowledged me and tried to take my timing with a sliding tackle.
+After dodging another player, the opponent acknowledged me and tried to steal my timing with a sliding tackle.
 
-It meant they didn’t care if they got a card.
+It meant they didn't care even if they got a card.
 
 But my instincts told me.
 
@@ -271,277 +271,279 @@ I could avoid this.
 
 Thud!
 
-Lightly lifting the ball.
+I lightly lifted the ball.
 
-At the same time, jumping over the opponent's sliding tackle, I kicked the ball short and broke into the danger zone.
+At the same time, I jumped to avoid the opponent's sliding tackle and kicked the ball short, breaking into the opponent's danger area.
 
-Anyone watching would have thought I jumped with the ball.
+To anyone watching, it might have seemed like I jumped with the ball.
 
-- Minho! Minho! Minho!
+-Mino! Mino! Mino!
 
-- He’s close! He’s close! Only two players left in front!
+-It's close! It's close! There are only two left in front!
 
-Now, only two players were in front of me.
+Now there were only two players in front of me.
 
 One defender and the goalkeeper.
 
-As I got closer to the goal.
+The moment getting closer to the goal.
 
-The remaining defender charged at me.
+The remaining defender rushed at me.
 
-Pretending to shoot, then pulling back, the last remaining defender lost his balance and fell.
+I pretended to shoot and then cut the ball, causing the last remaining defender to lose his balance and fall.
 
-But even while losing his balance, he touched my foot with his hand, interfering with my shot.
+But even while losing his balance, he touched my foot with his hand, trying to disrupt my shot.
 
-This would definitely be a penalty kick.
+This would definitely be a penalty kick, but.
 
-But wouldn't it be better if I scored?
+Wouldn't it be better if I scored?
 
-Well, if I miss, they’ll give the penalty kick.
+Well, if I couldn't score, they would give a penalty kick.
 
-The ball rose at an awkward angle.
+The ball floated at a tricky timing.
 
 And I lost my balance too.
 
 But I saw a perfect shooting angle.
 
-I hurriedly swung my free right foot.
+I quickly swung my free right foot.
 
-Bang!
+Wham!
 
-The ball, which hit slightly lower, was surely going to rise.
+The ball hit at a slightly low angle.
 
-And the ball, which rose high, went over the goalkeeper and hit the top of the goal post, then fell down.
+I thought it would definitely be a high ball.
 
-Ding!
+And the ball that flew high passed over the goalkeeper, hit the top of the goalpost, and then fell downwards.
 
-Quickly turning around, the goalkeeper stretched out his hand.
+Daang!
 
-Although not certain, the ball, which fell just in front of his hand, slowly bounced and crossed the goal line slightly.
+The goalkeeper hurriedly turned around and reached out with his hand.
 
-A defender ran and kicked the ball away.
+It wasn't certain, but the ball that fell right in front of his hand slowly bounced over the goal line.
+
+The defender ran up and cleared the ball.
 
 But I was sure.
 
 The ball had completely crossed the line.
 
-The referee hesitated for a moment, then communicated with the VAR assistant and made a gesture.
+The referee hesitated for a moment, then talked with the VAR assistant referee and made a gesture.
 
-Yes, the gesture shown when a goal is recognized.
+Yeah, the gesture shown when a goal is recognized.
 
-Seeing that, I quickly ran toward the away fans' section.
+The moment I saw that, I ran quickly towards the direction of the away stands.
 
-"Whoa! You f***er!"
+"Wooaaahhh! You damn bastard!"
 
-"Insane! Insane, Minhoooooooo!"
+"He's crazy! Crazy! Minooo!!!"
 
 "He ran almost 70 meters! 70 meters!"
 
 My teammates closely following behind me.
 
-But this time, I had no intention of being the bottom bun in the celebratory pile.
+But this time I wasn't planning to be the bottom bun in the burger.
 
-I did a knee slide in front of the three Koreans waving the Korean flag at me.
+I knee-slid in front of the three Koreans who were waving the Taegeukgi.
 
-And with my left hand, I pounded my heart and the emblem.
+And with my left hand, I pounded my chest and the emblem.
 
-With my right index finger, I pointed at the Korean flag.
+With my right index finger, I pointed to the Taegeukgi.
 
-Are you watching, Parma?
+Are you watching? Parma.
 
-Are you watching, South Korea?
+Are you watching? Korea.
 
 And.
 
-“Boo louder, Lecce!”
+"Keep booing. Lecce!"
 
 * * *
 
-Kim Minshik.
+Kim Min-sik.
 
-Park Changgyu.
+Park Chan-gyu.
 
-Lee Juseong.
+Lee Joo-sung.
 
-These three were YouTubers who loved soccer.
+The three of them are MiTubers who love soccer.
 
-They traveled the world, visiting soccer stadiums, capturing the atmosphere, and sharing stories, becoming famous as travel YouTubers.
+They travel around the world visiting soccer stadiums, capturing the atmosphere or telling stories, and became famous as travel MiTubers.
 
-This time, they visited Parma, Italy.
+This time they visited Parma, Italy.
 
-Upon hearing about the match against Lecce a few days later, they managed to get tickets for the away game and headed to Lecce.
+A few days later, upon hearing that there was a match against Lecce, they managed to get tickets for the away game and visited Lecce.
 
 When they first arrived.
 
-They were worried about the hostile stares they felt, but luckily, nothing major happened until they reached the stadium.
+They were worried about the hostile looks they were getting, but fortunately, nothing major happened before they reached the stadium.
 
 On the day of the match.
 
-They headed to the stadium to shoot their YouTube video.
+They headed to the stadium to film for MiTube.
 
-“Wow... It feels like we’re watching a derby.”
+"Wow... It looks as intense as a derby."
 
-“Considering the incidents a few days ago, it’s not surprising.”
+"Well, there were several incidents a few days ago."
 
-“Do you think we’ll make it out safely?”
+"Will we be able to leave safely?"
 
-“We probably won’t die. But we might have to brace ourselves for a punch or two.”
+"We won't die. But we might have to be prepared to take a few punches."
 
-Fortunately, the Parma Ultras who had followed them displayed goodwill, seeing them with the Korean flag.
+Luckily, Parma's Ultras, who also came for the away game, showed goodwill towards them when they saw the Taegeukgi (Korean flag) they were holding.
 
-Conversely, the Lecce fans on the other side of the fence hurled all sorts of abuse at them for holding up the Korean flag.
+Conversely, Lecce's home fans beyond the iron bars hurled all sorts of insults at them when they saw the Taegeukgi.
 
-“This is really intense.”
+"It's really intense."
 
-“Well, given the various issues recently.”
+"Well, there were several issues."
 
-“Do you think Park Minho will play well?”
+"Do you think Park Minho will play well?"
 
-“I don’t know, but I hope he does.”
+"I don't know, but I hope he does well."
 
-And the match began.
+And then the match began.
 
-Lecce dominated the early stages.
+Lecce dominated the early part of the game.
 
-No, Lecce had taken complete control.
+No, Lecce completely seized the upper hand.
 
-“Oh no! He got sent off.”
+"Ah! He's been sent off."
 
 One of the central defenders was sent off.
 
 Unable to overcome the numerical disadvantage, they conceded two goals.
 
-As a result, the Parma away section was downcast, while the nearby Lecce home fans mocked the dejected Parma fans.
+As a result, the atmosphere in Parma's away section was gloomy, while Lecce's home fans nearby were mocking Parma's away fans.
 
 But.
 
 When the second half started.
 
-Whatever they had heard during halftime, Parma began their counterattack.
+Not sure what they heard during halftime, but Parma started their counterattack.
 
-The first goal came, assisted by Park Minho.
+The first goal came from Park Minho's assist.
 
-Then a header from Gennaro Tatis brought them level at 2-2.
+Then, Gennaro Tatis scored another goal with a header, making it 2-2.
 
-Whoa, whoa, whoa, whoa, whoa, whoa!
+Wooaaahhh!
 
 Parma! Parma! Parma! Parma!
 
-The previously despondent Parma away fans now raised their voices with renewed energy.
+The Parma away fans, who had been despondent earlier, now raised their voices with renewed energy.
 
-The three Koreans joined in, loudly cheering for Parma.
+The three Koreans joined in, chanting and cheering loudly for Parma.
 
-And as the atmosphere gradually cooled down.
+And as the atmosphere started to cool down.
 
-The match between the two teams seemed to be heading for a draw.
+The match seemed like it would end as it was.
 
-Soon.
+Eventually.
 
 The regular time ended.
 
-Only three minutes of added time remained.
+Now only 3 minutes of added time remained.
 
-And just as the added time began.
+And just as the added time was given.
 
-Park Minho, the reason they came to the stadium, suddenly started dribbling the ball and sprinting.
+The reason they came to this stadium, Park Minho, suddenly started dribbling and sprinting with the ball.
 
 One player.
 
 Then another.
 
-With his quick pace, he bypassed the defenders and skillfully avoided a sliding tackle with a Marseille turn, accelerating further.
+Dodging the players blocking his path with his quick speed, he cleanly evaded the opponent's tackle with a Marseille turn and accelerated even faster.
 
-“Whoa!”
+"Wooaaahhh!"
 
-“Minho! Minho! Run!”
+"Mino! Mino! Run!"
 
-“Minhoooooooo!”
+"Minooo!"
 
 The Parma away fans roared like beasts.
 
 Among them, the three Koreans also loudly cheered for Park Minho.
 
-Overcoming the physical battles.
+Winning the physical battles.
 
-Breaking into the danger zone, Park Minho skillfully dodged a sliding tackle alongside the ball, then penetrated the penalty area’s side.
+As Park Minho entered the danger area, he leaped over a sliding tackle with the ball and broke into the penalty area from the side.
 
-The last remaining defender fell for his feint and lost balance, interfering with his shot.
+The last remaining defender was tricked by his feint and fell, disrupting his shot.
 
-Even while falling, Park Minho managed a precise shot, narrowly hitting the top of the goalpost.
+Even while losing his balance, Park Minho managed to shoot, narrowly hitting the top of the goalpost.
 
-The ball, hitting the top post, fell near the goal line.
+The ball that hit the top fell near the goal line.
 
-A defender hurriedly came and cleared the ball.
+The defender quickly came to clear the ball.
 
-“Oh! Did that not go in?”
+"Ah! Did that not go in?"
 
-“Ref! Penalty! Penalty!”
+"Referee! Penalty! Penalty!"
 
-When everyone was about to claim a penalty.
+Just as everyone was about to argue for a penalty.
 
-The referee, contrary to their expectations, signaled that the goal had been scored.
+Contrary to their expectations, the referee made a gesture indicating that the goal had been scored.
 
-The scoreboard showed that Park Minho's shot had crossed the goal line, and cheers erupted loudly.
+It was only after the scoreboard showed that Park Minho's shot had crossed the goal line that a loud cheer erupted.
 
-Whoaaaaa!
+Woooaaahhh!
 
-A buzzer-beater goal with 3 minutes of added time left.
+A buzzer-beater with 3 minutes of added time left.
 
-Park Minho, who scored the goal, ran towards them and did a knee slide.
+At that moment, Park Minho ran towards them, knee-sliding.
 
-Pounding the emblem with his left hand.
+With his left hand, he pounded the emblem.
 
-Pointing to the Korean flag with his right hand, the three Koreans felt immense joy and fell into a frenzy.
+With his right hand, he pointed to the Taegeukgi, making the three Koreans feel an immense sense of joy and ecstasy.
 
-“Whoaaaaa!”
+"Wooaaahhh!"
 
-“Minhooooooo!”
+"Minhooo!"
 
-“Whoa! The Korean flag! The Korean flag!”
+"Wooaaah! Taegeukgi! Taegeukgi!"
 
-“South Korea! South Korea! Whoaaaaa!”
+"Korea! Korea! Wooaaahhh!"
 
-“Bartender!”
+"Cheers!"
 
-Soon.
+Eventually.
 
-All the added time had passed, and the match ended with a score of 3-2, known as the Pele score.
+With the remaining added time over, the game ended with the score 3-2, known as the Pelé score.
 
 The winner was Parma.
 
-Lecce's home fans, having suffered a comeback defeat to 10 men, immediately caused a disturbance by lighting flares.
+Frustrated by the comeback loss to a team with 10 players, Lecce's home fans caused a commotion with flares as soon as the game ended.
 
-The three hurriedly followed the Parma away fans to exit the stadium, packed their things, and quickly moved to a nearby hotel in Lecce.
+The three quickly followed Parma's away fans to leave the stadium, packed their belongings, and swiftly moved to a nearby hotel.
 
-Arriving at the hotel, the three, with dazed expressions, sat on the bed and sofa, edited the video they shot today, and fell into a small dilemma.
+Sitting on the bed and sofa with dazed expressions, they edited the footage they filmed today and pondered a bit.
 
-“What should be the title?”
+"What should the title be?"
 
-“Ugh... Something really catchy... Oh? Something like! You’ll die if you miss this?”
+"Damn... Something really attention-grabbing... Uh? Like! A title that makes you feel like you'll die if you don't watch it?"
 
 While the two were pondering.
 
-The oldest, Lee Juseong, quickly wrote the title and started encoding.
+The oldest, Lee Joo-sung, quickly wrote the title and started encoding.
 
-“Hey! Hyung!”
+"Ah! Hyung!"
 
-“What are you doing!”
+"What are you doing!"
 
-But seeing the title written by Lee Juseong, the two nodded with a peculiar expression.
+But when they saw the title Lee Joo-sung wrote, the two could only nod with a peculiar expression.
 
-The thumbnail, showing Park Minho's nearly 70-meter sprint, had bold Korean fonts.
+A thumbnail showing Park Minho running almost 70 meters with the bold Korean font.
 
-The title was very provocative.
+The text was very provocative.
 
 [Channel Name: SoccerTrip]
 
-[Title: Never Underestimate South Korea Again!]
+[Title: Never Underestimate Korea Again!]
 
 The three thought.
 
 This feels good.
 
-It might rake in views.
+It seemed like it would rake in views.
 
 ----
 

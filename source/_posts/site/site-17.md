@@ -5,191 +5,187 @@ tags:
 ---
 
 
-## 7. Simple Things and Things You Can't Stop Even When You Know (1)
+## 7. Simple Things and Unstoppable Things (1)
 
-"His movements are so predictable."
+"His movements are predictable."
 
 "Right?"
 
-After the end of the A-match period.
+After the end of the international match period.
 
-The league schedule resumed.
+The league schedule restarted.
 
-Coach Alain Lavin stared intently at a player's gameplay with a stern expression.
+Coach Alain Levagne watched a player's game with a stern expression.
 
-"This could definitely be a weakness, right?"
+"This can definitely be a weakness, right?"
 
-"The chances are high."
+"Highly likely."
 
-Just like Assistant Coach Matteo said.
+As Chief Coach Matteo said.
 
-The player on the screen repeatedly performed predictable movements.
+The player on the screen was making predictable movements.
 
-However, he had so many strengths that he could penetrate the opponents and create opportunities with those strengths.
+But he managed to break through the opponents and create opportunities with his many strengths.
 
 Park Minho.
 
-He's an outstanding player.
+An incredible player.
 
-Especially, his ability to learn something is as fast as a computer reading data.
+Especially, his ability to learn was as fast as a computer reading data.
 
-He learned other players' movements just by watching highlight videos and analysis videos available within the club.
+Just by watching highlight videos or analysis videos available within the club, he learned other players' movements.
 
-But that wasn't always an advantage.
+That wasn't always a strength.
 
-Park Minho lacked creative movements.
+Park Minho lacked creative movements and the ability to apply basic skills.
 
-And he lacked the ability to apply basic skills in creative ways.
+Some might wonder.
 
-Some might question this.
-
-How can a playmaker who produces sharp passes every game lack creativity?
+A playmaker who delivers sharp passes in every game lacks creativity?
 
 But.
 
-Good passes and creative movements are different things.
+Good passes and creative movements are different.
 
-Park Minho is a player who can make good passes.
+Park Minho was a player who could deliver good passes.
 
-But on the contrary, he couldn't create creative movements that could change the game.
+However, he was the type who could not create game-changing creative movements.
 
-Additionally, there were still unproven aspects.
+Moreover, there was still an unproven aspect.
 
-So far, he had played against teams of similar or lower levels, so it was tough for opponents to track his movements and passes.
+So far, he has played against teams of similar or lower levels, and the opponents struggled to keep up with Park Minho's movements and passes.
 
-But what if he faced a strong team?
+But if he faces a strong team?
 
-Would they really not be able to target Park Minho, who shows similar patterns of passes and movements?
+Will they really be unable to target Park Minho, who shows similar patterns of passes and movements?
 
 "Absolutely not."
 
-No matter how well Park Minho could mimic other players' movements, if his patterns were consistent, they would definitely be read.
+No matter how well Park Minho can mimic various players' movements, if the pattern is consistent, it will definitely be read.
 
-"As you can see in this scene, he moved to the same position and made the same passes in all five games."
+"If you look at this scene, he moves to the same position and makes the same pass in all five games."
 
-"It will definitely be read eventually."
+"It will definitely be read later."
 
-"He has playmaking skills, but... there are too many predictable movements and passes."
+"He has playmaking ability, but... there are too many predictable movements and passes."
 
-Therefore, until he promoted to Serie A.
+Therefore, until he was promoted to Serie A.
 
-Coach Alain Lavin planned to change Park Minho.
+Coach Alain Levagne planned to change Park Minho.
 
 Of course, he didn't plan to change him immediately.
 
-First, he planned to further enhance Park Minho's strengths.
+For now, he planned to further enhance Park Minho's strengths.
 
-In his opinion, not all 11 players on the field needed to have outstanding creativity or application skills.
+In his opinion, not all 11 players on the field needed outstanding creativity or adaptability.
 
-Was there a reason to demand creative passes and movements from Park Minho?
+Is there a reason to demand creative passes and movements from Park Minho?
 
-He was convinced.
+He was sure.
 
 With Park Minho's strengths.
 
-Even simple play would be sufficient.
+Even simple plays would be enough.
 
-"A play they can't stop even when they know."
+"Plays that can't be stopped even if you know them."
 
-Some football fans even mocked it as 'macro.'
+Some soccer fans even mocked him as 'macro.'
 
-Surprisingly, a right winger who rose to world-class with just that one pattern.
+Surprisingly, that one pattern elevated him to the world-class level as a right winger.
 
 "Just like Arjen Robben..."
 
-To the extent that there was a saying, "You can't stop Robben's play even if you know it."
+No wonder the saying "You can't stop Robben's play even if you know it" went around.
 
-Of course, even Robben mixed in patterns of connecting passes to Philipp Lahm turning behind him when Pep Guardiola took over Bayern Munich.
+Of course, even Robben mixed in a pattern of passing to Philipp Lahm coming around behind him during Pep Guardiola's tenure at Bayern.
 
 Anyway.
 
-The immediate way to develop Park Minho was to polish his strengths.
+For now, the way to develop Park Minho was to sharpen his strengths.
 
-"Did you see that?"
+"Did you see it?"
 
-"Yes, I saw it. Mino's debut as a striker."
+"Yes, Minho's debut at the front line."
 
-"He's really amazing at learning things."
+"His learning ability is truly amazing."
 
-"Yes, he's truly an outstanding player."
+"Yes, he's a truly amazing player."
 
-The more he thought about it, the deeper Coach Alain Lavin's smile grew at Park Minho's boundless potential.
+The more he thought about it, the deeper Coach Alain Levagne's smile grew, impressed by Park Minho's limitless potential.
 
 * * *
 
 A few days after returning to Parma.
 
-Santiago said to me, "Mino! Aren't you playing on the right wing now?"
+Santiago said to me, "Minho! Aren't you playing on the right flank now?"
 
-And that word became reality.
+And that word became a seed.
 
-Recently, in practice, Coach Alain Lavin often placed me on the right wing.
+Recently, in practice, Coach Alain Levagne had been placing me on the right flank more often.
 
-Moreover, the training was simple.
+Moreover, the training was quite simple.
 
-Either crossing the ball.
-
-Or cutting inside to shoot.
+Either crossing the ball or cutting inside for a shot.
 
 So it felt a bit awkward.
 
 I definitely felt more comfortable in the center.
 
-But that didn't mean I was terrible on the wing.
+Not that I'm terrible on the flank.
 
-It was just a matter of preference.
+It's just a matter of preference.
 
-That lazy guy said he was full while watching me.
+The lazybones said he was satisfied seeing me like that.
 
-Yeah, I don't need to hear that from an idiot who had to pay a 50 euro fine for being late.
+Yeah, like I'd listen to a fool who got fined 50 euros for being late.
 
 Anyway.
 
-That lazy guy always tried to skip training and fool around whenever he had a bit of free time.
+This lazybones clearly wants to skip training and play around whenever he has some free time.
 
-But he wasn't lazy to the point of neglecting training.
+But he's not lazy to that extent.
 
-He matched the nickname 'lazy guy' perfectly.
+He matches his nickname 'lazybones' just right.
 
-And he trained properly when it was time, so it was hard to criticize him entirely.
+He trains properly when he does, so it's hard to criticize him outright.
 
 He's an adult now.
 
-Well, he can manage on his own, right?
+He can figure it out himself, right?
 
-Besides, I've been feeling physically stronger recently.
+More than that, I definitely feel my stamina improving recently.
 
 I think I can gradually increase my playing time now.
 
-When I subtly conveyed my opinion, Coach Alain Lavin nodded and agreed.
+When I subtly conveyed my opinion, Coach Alain Levagne nodded in agreement.
 
-"Alright, Mino! Let's play a bit more than 60 minutes in the match against Cremonese."
+"Alright, Minho! Let's play a bit more than 60 minutes in the match against Cremonese."
 
 Great.
 
-I want to play a full match too.
+I should try playing full-time once.
 
-I can't always play only 60 minutes, right?
+I can't keep playing only 60 minutes all the time, can I?
 
 * * *
 
 Serie B Round 4.
 
-The match against US Cremonese.
+Match against US Cremonese.
 
-A team that has been maintaining a mid-table position in Serie B for three years straight.
+A team that has maintained a mid-table position in Serie B for three years straight.
 
-With our team's strength, we could easily win with our 1.5 team.
+With our team's strength, even a 1.5-tier squad should be enough to beat them.
 
-But Coach Alain Lavin didn't let his guard down.
+But Coach Alain Levagne didn't let his guard down.
 
 He placed Franco in the center.
 
-And I was placed on the right.
+And I was positioned on the right.
 
-Though it was a different position than usual, I wasn't too worried.
+Although it was a different position from usual, I wasn't too worried.
 
-I just had to do what I usually did on the left.
+I just needed to play the same way I did on the left.
 
 (Parma! Parma! Parma! Parma!)
 
@@ -197,293 +193,285 @@ I just had to do what I usually did on the left.
 
 (Son del Parma i prodi calciatori!)
 
-I could hear the home fans' cheering song.
+The home fans' chants echoed in my ears.
 
-Standing on the field, we took the lead from the beginning by constantly attacking Cremonese.
+Standing on the field, we took control of the game from the start, pressing Cremonese hard.
 
--The ball is quickly connected to the side.
+-The ball is quickly connected to the flank.
 
--Parma Calcio is carrying the ball to the right unusually often today.
+-Parma Calcio is unusually transporting the ball to the right today.
 
--So far, Mino's use on the right wing seems to be successful.
+-This indicates that Minho's deployment on the right flank has been successful so far.
 
 The right side wasn't much different from the left.
 
-However, I slightly changed my playing style.
+I just slightly changed my playing style.
 
-Coach Alain Lavin told me.
+Coach Alain Levagne told me to try it his way.
 
-To try playing as he instructed.
+-A long pass connected!
 
--A long ball is connected!
-
--To Mino, who is breaking through on the right wing!
+-To Minho, penetrating the right flank!
 
 -Fast! Really fast!
 
-Beoooong!
+Whirr!
 
-The long pass flew.
+A long pass flew towards the space behind the opposing defense.
 
-I lightly caught the pass that flew into the space behind the opposing defense, pushed back the fullback, and turned to cross the ball.
+I ran to catch it lightly while shielding the defender with my back.
 
-Or cut inside to shoot.
+Then I either crossed the ball or cut inside for a shot.
 
-That was the movement the coach required from me.
+This was the movement the coach asked of me.
 
 This time, I cut inside.
 
--Mino! Quickly to the center! To the center!
+-Minho! Quickly to the center! To the center!
 
 -The defense is momentarily shaken!
 
 "Stop him! Stop him!"
 
-Two defenders trying to block my way.
+Two defenders tried to block my way.
 
-But since I had found the angle.
+But once I had the angle, I intended to shoot no matter what.
 
-I was ready to shoot even if they blocked me.
+As I swiftly passed by the two defenders, an open space and a narrow angle appeared.
 
-As I quickly brushed past the two defenders, an open space and a narrow angle finally appeared.
-
-Kwoang!
+Bang!
 
 The ball hit perfectly with my left foot.
 
-The ball, which was cleanly curved, beautifully curled into a position the goalkeeper couldn't reach.
+The beautifully curved ball flew into the spot where the goalkeeper couldn't reach.
 
--Goooooooal! The first goal of the match is scored!
+-Gooooooooooal! The opening goal of the match!
 
--Minooooo! The rising star of Parma scores his second league goal! And his fourth goal of the season!
+-Minhooooooooo! The rising star of Parma scores his second league goal! And his fourth goal of the season!
 
--Amazing! He beat two defenders with unstoppable speed and immediately shot at that narrow angle!
+-Amazing! He swiftly dribbled past two defenders and immediately took a shot at that narrow angle!
 
--It was a perfect curved shot.
+-It was a perfect curling shot.
 
-Chwaaak!
+Shooosh!
 
-I slid into the corner and laid back.
+I ran to the corner and slid, lying back.
 
-Soon after, other Parma players rushed to me.
+Soon, other Parma players rushed towards me.
 
-"You crazy guy! That was awesome!"
+"You crazy guy! That was amazing!"
 
-"That was really a devil's left foot!"
+"That was truly a devil's left foot!"
 
-"You're truly amazing! Uwaaah!"
+"You're really something! Aaaah!"
 
-I understood why my friends were happy.
+I understand why these guys are happy.
 
 Because I scored a goal.
 
-The problem was they were praising me too much.
+The problem is they lift me up too much.
 
-It felt like I was flying in the air.
+I feel like I'm flying.
 
-This kind of play is something anyone can do.
+This is a play anyone can make.
 
-Besides, the pattern was too simple.
+Moreover, it's a very simple pattern.
 
-The pattern was highly likely to be read soon.
+This pattern is highly likely to be read soon.
 
-Moreover, I didn't understand the coach's instructions.
+I also didn't understand the coach's instructions.
 
-To do this pattern for the entire 90 minutes?
+To keep doing this pattern for 90 minutes?
 
 Am I a decoy in today's match?
 
-Well, the coach must have a plan.
+Well, the coach must have his reasons.
 
-As I stirred up the right side, the center and left side found breathing space and many shots were made.
+As I shook the right side, the center and left got breathing room and many shots came out.
 
-Thinking about that, it didn't seem like a completely wrong instruction.
+Thinking about that, it wasn't entirely wrong instructions.
 
 But.
 
-It felt so strange.
+It was too strange.
 
 Until the end of the first half.
 
-The opponent kept allowing crosses and shots from the right side, struggling.
+The opponent kept allowing my crosses and shots from the right.
 
 "Why on earth?"
 
-Feeling so strange, I asked the opposing fullback.
+It was so strange that I asked the opposing fullback.
 
-If he wasn't in good condition today.
+Is your condition not good today?
 
-The opposing fullback, who heard my words, told me.
+The opposing fullback told me.
 
-"Fuck off."
-
-He told me to fuck off.
+"F*** off."
 
 * * *
 
-"It's too dreadful."
+"It's too scary."
 
-Assistant Coach Matteo thought it was starting again.
+Chief Coach Matteo thought it was starting again.
 
-Although his boss was undoubtedly a good person.
+His boss was definitely a good person.
 
-Sometimes, his strange mindset was a problem.
+But sometimes that weird mentality was the problem.
 
-"Maybe I'm witnessing the birth of a monster that will destroy the football world."
+"I might be witnessing the birth of a monster that will destroy the football world."
 
-"......"
+"......."
 
-"And the reputation of Alain Lavin, the world's greatest manager who raised such a monster, will spread."
+"And the reputation of the world's best coach, Alain Levagne, who nurtured such a monster, will spread."
 
 Matteo thought.
 
-If his boss hadn't become a football manager, he would have surely become a famous writer.
+If his boss hadn't become a football coach, he would have definitely become a famous writer.
 
-"It's dreadful. So dreadful. The football that Mino's talent and my talent will show."
+"It's scary. So very scary. The football that Minho's talent and my talent will show."
 
-This far.
+That's enough.
 
-If he let him indulge in his delusions any further, it would be unstoppable.
+If he let him indulge in his delusions any longer, he couldn't stop him.
 
-Matteo quickly interrupted his delusion.
+Matteo urgently cut off his delusion.
 
-"Are you planning to keep Mino on the field in the second half?"
+"Are you planning to keep Minho on in the second half?"
 
-"Prepare to substitute Franco with Santiago at the 15th minute of the second half. And keep Mino on the right."
+"Prepare to substitute Santiago for Franco at the 15-minute mark in the second half. And keep Minho on the right."
 
-"Santiago in the center, then."
+"Santiago in the center then."
 
-Coach Alain Lavin nodded and rubbed his chin while looking at Cremonese's bench.
+Coach Alain Levagne nodded and stroked his chin as he looked at Cremonese's bench.
 
-"More than that, the opponent's response is lukewarm."
+"More than that, their response is lukewarm."
 
 "Indeed."
 
-Of course, the two might think that the opponent's response was too slow.
+Of course, both of them might think the opponent's response was too slow.
 
-But Cremonese's coach, Alberto Pecci, was already responding to Park Minho's simple pattern.
+But Cremonese coach Alberto Pecci was already responding to Park Minho's simple pattern.
 
-He had already figured out the left-footed shot after Park Minho cut inside.
+He had already figured out the left-foot shot that cut inside after dribbling to the center.
 
-So he marked Park Minho.
+So he marked Park Minho and placed an additional defender in the shooting angle to perfectly counter it.
 
-He placed another defender at the angle where Park Minho could shoot, responding perfectly.
+Yet they were still being shaken.
 
-Despite that, they were being shaken.
+"Stop him! Even if you have to foul!"
 
-"Stop him! Even if you have to grab him!"
+At the coach's shout, Cremonese's fullback hurriedly tackled Park Minho, who was cutting inside.
 
-At the coach's shout, a Cremonese fullback hurriedly tackled Park Minho, who was cutting inside.
+Park Minho easily avoided the tackle.
 
-Park Minho easily dodged the tackle.
+In full speed, he kicked the ball further and cut inside.
 
-Then, with speed, he kicked the ball long and cut inside.
+At the same time, he glanced at the goalpost from a similar position as before.
 
-While doing so, he glanced at the goalpost from the same position as before.
+Everyone thought it was a shot and moved to block the angle.
 
-Naturally, the defenders thought he was going to shoot and threw themselves to block the angle.
-
-But Alain Lavin's instructed pattern for Park Minho wasn't just about crossing and shooting.
+But Coach Alain Levagne's instructions to Park Minho included not only crosses and shots.
 
 Tuk!
 
-A pass instead of a shot.
+It wasn't a shot, but a pass.
 
-Cremonese's defender was startled at the sight.
+Cremonese's defender was shocked.
 
-At the end of the pass awaited Parma Calcio's playmaker.
+At the end of the pass was Parma Calcio's playmaker.
 
-Franco Vazquez.
+Franco Vázquez was waiting.
 
-Kwaaang!
+Bang!
 
-Splash!
+Thud!
 
-Uaaahhhhhh!
+Wooooooo!
 
-A clinching goal that extended the score to 2-0.
+A decisive goal to make it 2-0.
 
-Parma Calcio's home stadium.
+Parma Calcio's home ground.
 
-Ennio Tardini was engulfed in a thunderous roar.
+Ennio Tardini was filled with roaring cheers.
 
 * * *
 
-What are my strengths?
+What is my strength?
 
 Decent speed and ball touch.
 
 And good passing ability and positioning.
 
-On top of that, a sense of shooting with both feet.
+Moreover, a good sense of shooting with both feet.
 
-But my most confident strength recently was definitely dribbling.
+But the strength I'm most confident in recently is undoubtedly my dribbling.
 
-And in today's match, I particularly showed off that dribbling, shaking the opponent's left side.
+And in today's match, I especially showed off my dribbling, shaking the opponent's left flank.
 
 Tuk!
 
-When I kicked the ball long and ran quickly, the Cremonese fullback hurriedly followed.
+After kicking the ball forward, I ran quickly, and Cremonese's fullback hurriedly followed.
 
-Was his name... Leonardo?
+His name was... Leonardo?
 
-He sure followed well.
+He was definitely keeping up well.
 
-As I ran faster after crossing the center circle, the gap started to widen.
+As I ran faster past the center circle, the gap started to widen.
 
-I could hear cursing from behind.
+I heard curses from behind.
 
-If he has time to curse, he should run more.
+If you have time to curse, run faster.
 
-Franco Vazquez, cutting into the opposite half-space, raised his hand and called for the ball.
+Franco Vázquez, cutting into the opposite half-space, raised his hand, requesting the ball.
 
-For now, let's push in deeper and then think.
+Let's dive deeper and think about it.
 
-There are only two players in front of me.
+There were only 2 players ahead of me.
 
 Tuk! Tuk!
 
-With two touches, I cut deeper and dragged Cremonese's central defender while cutting inside.
+With two touches, I cut deeper, dragging Cremonese's central defender with me as I cut sharply to the center.
 
-I could sense the look of "Again? The same trick?" but.
+I could feel the look that said, "Again? The same thing?"
 
-This time it was different.
+But this time, it was different.
 
-As I cut deeper and lightly flicked the ball with my heel, the Cremonese defense was momentarily shaken.
+As I cut deeper, I lightly flicked the ball forward with my heel, momentarily shaking Cremonese's defense.
 
-Elia Cobbaut, who overlapped, received my pass and sent a short cross to the center.
+The overlapping Elias Cobbaut received my pass and sent a short cross to the center.
 
-And the header from Dennis Man, who quickly cut in.
+And a quick header by Dennis Man.
 
-Splash!
+Thud!
 
-Uaaahhhhhh!
+Wooooooo!
 
-The score quickly widened to 3-0.
+In an instant, the score widened to 3-0.
 
-The players rushed to Dennis Man, who scored the goal.
+Players rushed to Dennis Man, who scored the goal.
 
-Watching that, I smiled brightly.
+Seeing that, I also smiled brightly.
 
-But I still couldn't understand.
+More than that, I really don't get it.
 
-"Why can't they stop something this obvious?"
+"Why can't they stop something so predictable?"
 
 Did they hear my mumbling?
 
-The Cremonese central defender glared at me fiercely.
+Cremonese's central defender glared at me fiercely.
 
-Looking at his face, he looked like a mafia member.
+He looked like a mafia member.
 
-Oh, I was planning to play a full match today...
+Ah, I planned to play full-time today...
 
-Let's just play 60 minutes again today.
+Let's stick to 60 minutes today as well.
 
-I spared you, Cremonese!
+I'm just being kind to Cremonese!
 
-......
+...
 
-It's definitely not because I was scared.
+Definitely not because I'm scared.
 
 ----
 

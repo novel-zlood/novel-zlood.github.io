@@ -7,121 +7,123 @@ tags:
 
 ## 3. A Genius Doesn't Know They're a Genius (2)
 
-A cleanly executed goal completely changed the mood of the first half.
+A cleanly executed goal completely changed the atmosphere of the first half.
 
 "Confidently shoot forward!"
 
 "Press harder! Go deeper!"
 
-The Genoa coach was fervently trying to regain control of the game that Franco had turned around, sticking close to the technical zone and rallying his players.
+The Genoa coach clung to the technical zone, passionately trying to rally the Genoa players to regain the momentum that Franco had overturned.
 
-"We lost to Lazio and AS Roma in the last friendlies... They must be desperate to win this one."
+"We lost to Lazio and AS Roma in the previous friendlies... They will want to win this match by any means."
 
-I nodded in agreement with Gianluca, who was sitting in front of me.
+I nodded involuntarily at Gianluca's words, who was sitting in front of me.
 
-Even though they were just friendlies, losing two games in a row is never good news.
+No matter how friendly the match, losing two consecutive games is never good news.
 
-So, they must win this game.
+So, they must win this match.
 
 More than that, Franco's movements in the center were definitely worth learning from.
 
 How does he move like that?
 
-As I was pondering this.
+While I was pondering.
 
-Genoa started their counterattack.
+This time, Genoa launched a counterattack.
 
-Waaah!
+Waaaah!
 
-A huge cheer erupted from the Genoa fans.
+A huge cheer erupted from the Genoa crowd.
 
-Through strong pressing, they had stolen the ball and brought it right up to Parma's goal line.
+They pressed hard and stole the ball, quickly bringing it to the edge of Parma's penalty area.
 
 Boom!
 
-Deeeeng!
+Thud!
 
-The ball flew over Buffon's head, shaking the goalpost.
+The ball shook the goalpost, flying over Buffon's head.
 
-A fight for the second ball began, and Genoa, having regained possession, repeatedly targeted Parma's net.
+A battle for the second ball ensued, and Genoa, who regained possession, repeatedly targeted Parma's net.
 
 "Gasp!"
 
-But their shots were blocked by Buffon.
+However, their shots were blocked by Buffon.
 
-Parma's fans cheered at Giovanni Buffon's fantastic save.
+Parma fans cheered at Giovanni Buffon's fantastic save.
 
-"If it continues like this, the first half will end smoothly at 1-0, right?"
+"If it continues like this, the first half will smoothly end at 1-0."
 
-Just as Gianluca said, Parma was firmly holding the lead in the first half.
+Just like Gianluca said, Parma was clearly dominating the first half.
 
-It would probably end at 1-0 unless something major happened.
+It would likely end 1-0 unless something major happened.
 
-But life doesn't always go as expected.
+But life doesn't go as predicted.
 
-Dad always said.
+My father used to say.
 
-If Mom hadn't asked him, "Do you want to eat together?" that day, he wouldn't have become a married man.
+If my mother hadn't said, 'Do you want to eat together?' that day, he wouldn't have become a married man.
 
-He always wondered why Mom looked so beautiful to him at that moment.
+He used to wonder why she looked so pretty at that moment.
 
 Anyway.
 
-A small incident can completely change the atmosphere of the first half.
+A small trigger can completely change the atmosphere of the first half.
 
-"Aaaagh!"
+"Aaaargh!"
 
-Just like now.
+Yes, just like now.
 
-Looking towards the direction of the scream, I saw Franco, the core of the attack, clutching his thigh and lying on the field.
+Looking towards the source of the scream, I saw Franco, the key player in the attack, clutching his thigh and collapsing on the field.
 
 It looked like a serious injury.
 
-Coach Alain Ravin urgently called Santiago.
+Coach Alain Levagne urgently called for Santiago.
 
-It seemed he chose Santiago, who had more experience than me, as my body was not yet fully developed as a professional.
+It seemed he chose Santiago, who had more experience than me, who had yet to fully develop as a pro.
 
-Santiago, who was substituted in the 20th minute of the first half, had eyes burning with determination to show his worth this time.
+Santiago, who was subbed in around the 20th minute of the first half, had a burning determination in his eyes, ready to show his worth.
 
-As Franco was carried off the field on a stretcher, Santiago quickly took his place as the attacking midfielder.
+As Franco was carried off the field on a stretcher, Santiago quickly took his position as an attacking midfielder.
 
-A chaotic atmosphere.
+The atmosphere was chaotic.
 
-Genoa did not leave Parma alone.
+Genoa didn't let Parma be.
 
 Boom!
 
-Smack!
+Thwack!
 
--Waaah!
+-Waaaah!
 
-Parma, whose concentration was broken after Franco's injury, allowed a header during Genoa's corner kick situation.
+Parma, whose concentration broke after Franco's injury, allowed a header during Genoa's corner kick.
 
-Even the great Giovanni Buffon couldn't stop the perfectly executed header.
+Even the great Giovanni Buffon couldn't block the clean header that came from a perfect situation.
 
-The game was suddenly tied.
+The score was quickly tied.
 
-Santiago, who was suddenly put into this crisis, played like Zhao Yun from the Three Kingdoms.
+Santiago, who was suddenly subbed in, fought fiercely to overcome the crisis.
 
-His dribbling level was different from when he weighed around 90kg, even though he was now only in the mid-80kg range.
+He was like Zhao Yun from the Romance of the Three Kingdoms.
+
+Even though he weighed in the mid-80kg range, his dribbling was different from when he weighed 90kg.
 
 Genoa's defenders couldn't stop him alone.
 
-When Santiago moved with the ball, at least two players had to mark him.
+When Santiago dribbled the ball, at least two players had to mark him.
 
-That's how flashy and lethal Santiago's dribbling was.
+His dribbling was that dazzling and lethal.
 
-Honestly, he looked more like a tank than an Argentinian sausage.
+Honestly, he looked more like a tank than an Argentine sausage.
 
-Santiago, shaking up Genoa with his different strengths from Franco, created continuous good opportunities.
+Santiago, with his different strengths from Franco, repeatedly created good opportunities, shaking Genoa.
 
-Gennaro found space to break through as Santiago drew in two players.
+Gennaro exploited the space created as Santiago drew in two players.
 
-It was a good angle to pass to him.
+If he passed to Gennaro, it would have been a good angle.
 
 But Santiago made a different choice from Franco.
 
-Instead of passing to Gennaro, who had broken through, he chose to drive himself through the shaking Genoa defense.
+After Gennaro's move, he chose to directly push through the shaking Genoa defense.
 
 Boom!
 
@@ -129,345 +131,347 @@ Boom!
 
 The ball soared high.
 
-It was a good opportunity, but Santiago missed it.
+It was a good opportunity, but Santiago missed it regrettably.
 
-But it wasn't disappointing.
+However, it wasn't disappointing.
 
-His play was fundamentally different from previous games.
+His play was clearly grounded, unlike in previous games.
 
-At least his play this time had a solid basis.
+Santiago skillfully used Gennaro's movement to create a scoring chance.
 
-Santiago had cleverly used Gennaro's movements to create a scoring opportunity for himself.
+It wasn't a bad thing.
 
-This wasn't a bad thing.
+Eventually, he created a good opportunity.
 
-After all, he created a good chance.
+The angle of his shot was good too. Santiago demonstrated the textbook play of an 'on-the-ball player.'
 
-The angle of his shot was also good. Santiago showed the textbook play of an "on-the-ball player."
+But.
 
-However.
+Santiago wasn't at the level to change the game's flow like Franco.
 
-Santiago was not at the level where he could change the game's flow like Franco.
+Genoa's defense easily neutralized Santiago, unlike when dealing with Franco.
 
-Genoa's defense easily neutralized Santiago, unlike when facing Franco.
+And Genoa, who gained momentum, managed to reverse the score to 2-1 in the 44th minute of the first half.
 
-With the momentum, Genoa finally turned the score around to 2-1 in the 44th minute of the first half.
+Then, the assistant coach called me.
 
-At that moment, the assistant coach called me.
-
-He told me to get ready to be substituted in the second half.
+He told me to prepare to be subbed in for the second half.
 
 * * *
 
-"Just do what Franco did in the first half. No need to be too nervous."
+"Just do what Franco showed in the first half. There's no need to be too nervous."
 
-The coach emphasized repeatedly.
+He emphasized repeatedly.
 
-I nodded naturally at Coach Alain Ravin's request.
+I nodded involuntarily at Coach Alain Levagne's request.
 
-The coach probably knew.
+The coach probably knew too.
 
-That even if I couldn't do as well as Franco, I could produce similar results.
+That even if I couldn't match Franco's level, I could produce a similar result.
 
-"I'll try my best, even if I can't be as good as Franco."
+"I'll try my best, even if I can't match Franco."
 
-Coach Alain Ravin's expression turned peculiar at my words.
+Coach Alain Levagne's expression turned strange at my words.
 
-I didn't know why he made such a face.
+I didn't know why he made that face.
 
-"Well, do your best."
+"Well, alright... Do your best."
 
 And so, halftime ended.
 
-I entered the field, sufficiently warmed up.
+I stepped onto the field, moderately warmed up.
 
-Seeing me, a few Genoa players started to murmur.
+Some Genoa players whispered among themselves as they looked at me.
 
-"Who's that Asian guy again?"
+"Who's that Asian guy?"
 
-"If we push him, he'll easily bounce off."
+"If we push him with our bodies, he’ll easily bounce off."
 
 They were talking about me.
 
-I didn't care much.
+I didn't pay much attention to it.
 
-My focus was on today's match, which was almost like my professional debut.
+My focus was entirely on today's match, which was practically my pro debut.
 
-Well, the official season debut might feel different.
+Well, the regular season debut might feel different.
 
 Beep!
 
 The referee's whistle signaled the start of the second half.
 
-Unlike the first half, both our team and Genoa made several substitutions.
+Unlike the first half, many players on both our team and Genoa had changed.
 
-Our forward was vice-captain Gianluca Inglese.
+Our frontman was the vice-captain, Gianluca Inglese.
 
-Santiago moved to the left side, instead of the center.
+Santiago moved to the left wing instead of the center.
 
-It meant he was playing alongside me for the first time.
+It meant he would be playing with me for the first time.
 
 Genoa dominated the early part of the second half.
 
-They seemed determined to carry the momentum from the end of the first half into the second.
+It seemed they wanted to carry the momentum from the end of the first half into the second half.
 
-Their pressing was certainly effective.
+Their pressing was effective.
 
-We were on the back foot in the early part of the second half.
+We were being dragged around in the early part of the second half.
 
-I knew better than anyone how crucial my position was.
+I knew how important my position was.
 
-In Coach Alain Ravin's tactics, passes revolve around the attacking midfielder.
+In Coach Alain Levagne's tactics, the play revolved around the attacking midfielder.
 
-The players, knowing that practice and actual games are different, seemed reluctant to burden me.
+The players seemed reluctant to put too much pressure on me, knowing that practice and matches are different.
 
-So, they tried to play through the flanks rather than the center.
+So, they tried to break through from the wings rather than the center.
 
-I think I understood why Santiago wasn't substituted but moved to the flank.
+I also guessed why Santiago wasn't subbed out and moved to the wing.
 
-Seeing this, the Genoa players smirked at me.
+Seeing that, Genoa's players smirked at me.
 
-But it didn't matter to me.
+But it made no difference to me.
 
-Whether practice or actual game.
+Whether practice or a match.
 
-There wasn't much difference, except for being a bit more nervous.
+The only difference was a bit more tension.
 
-Genoa, excited by their good momentum from the end of the first half, pushed up their lines quite a bit.
+Genoa, excited by the good atmosphere from the end of the first half, pushed their lines up.
 
-Even with my inexperience, I could tell they weren't paying attention to me.
+Even with my lack of experience, I could tell they weren't paying attention to me.
 
-So, I'll show them through my actions.
+So, I decided to show them.
 
-That I'm no joke.
+That I wasn't someone to be taken lightly.
 
-As I moved slightly towards the halfway line, Wilan Cyprien, our central midfielder who was passing the ball quickly, noticed me.
+As I moved slightly towards the halfway line, Parma's central midfielder, Wylan Cyprien, noticed me.
 
-He initially sent the ball to the flank and then showed me one finger.
+He sent the ball to the wing first and then showed me a finger.
 
-So... does that mean he's going to pass to the center and cut in?
+So... that signal meant to pass to the center and turn back in, right?
 
-I remembered it as Pattern A among our pattern plays.
+I remembered it as pattern play, pattern A.
 
-Naturally, I moved accordingly.
+Of course, I moved accordingly.
 
-The ball returned from the flank, and Wilan Cyprien sent it straight to me.
+The ball, which had gone to the wing, came back to Wylan Cyprien, who immediately passed it to me.
 
-Tuk!
+Tap!
 
-Finally, I made my first touch in today's match.
+Finally, I got my first touch of the match.
 
 * * *
 
-Seeing the inexperienced Park Minho moving proactively, some people nodded.
+Some nodded at the sight of the inexperienced Park Minho moving proactively.
 
 Not a bad play.
 
-"Even though it's a friendly, it's practically his first match as a professional... He's very composed."
+"Even if it's a friendly, it's practically his first professional match... He's very composed."
 
 "Hmm..."
 
-Just as the assistant coach said, Park Minho was composed.
+Like the assistant coach said, Park Minho was calm.
 
-Coach Alain Ravin also nodded in satisfaction as he watched.
+Coach Alain Levagne also nodded in satisfaction as he watched him.
 
-"There are many promising players who get stiff and make ridiculous mistakes when the team is struggling... But Mino is different."
+"There are many promising players who make ridiculous mistakes in difficult times for the team... But Minho is different."
 
-"Maybe it's because he's a late-blooming prospect at 24?"
+"Well, maybe it's because he's a late bloomer at 24."
 
-"Could be."
+"Perhaps."
 
 It wasn't bad.
 
-Given the news from the team doctor that Franco's injury might sideline him for at least 4 to 6 weeks.
+Considering the news that Franco's injury would sideline him for at least four weeks to a maximum of six weeks.
 
-They had no choice but to rely on Santiago and Park Minho for the early part of the season.
+It was inevitable that the early season would have to be handled by Santiago and Park Minho.
 
 "Good."
 
-Park Minho received the ball lightly, turned, and sent a forward pass.
+Park Minho received the ball lightly, turned his body, and made a forward pass.
 
-Wilan Cyprien, who returned the pass, drove deep.
+Wylan Cyprien, who received the return, penetrated deeply.
 
-It was Parma's first chance in the early part of the second half.
+Parma's first opportunity in the early part of the second half.
 
-But Wilan Cyprien's touch was too long.
+But Wylan Cyprien's touch was too long.
 
-The ball stretched out, and Genoa's defender easily cleared it.
+The ball stretched out, and a Genoa defender easily cleared it.
 
 Or so he thought.
 
-Whack!
+Smack!
 
 "Ugh!"
 
-The poorly cleared ball was captured by Park Minho.
+Park Minho intercepted the poorly cleared ball.
 
 "He's fast!"
 
-Just as the assistant coach exclaimed.
+As the assistant coach exclaimed.
 
-Park Minho quickly penetrated Genoa's defense as soon as he got the ball.
+Park Minho quickly started to break through Genoa's defense upon receiving the ball.
 
-His dribbling was clumsier than Santiago's.
+Compared to Santiago, his dribbling was rough.
 
 But his speed was exceptional.
 
-"Ooh! He’s fast! He’s fast!"
+"Oooooh! He's fast! He's fast!"
 
-"Who's number 27?"
+"Who's that number 27?"
 
 "Run! Run!"
 
-The eyes of Parma's fans were fixed on Park Minho.
+Parma fans' eyes were on Park Minho.
 
-At that moment, Park Minho, with explosive acceleration, dodged another player and tore through Genoa's defense.
+At that moment, Park Minho accelerated explosively, cutting through Genoa's defense by dodging another player.
 
-Genoa's players, flustered, hurriedly responded.
+Genoa's players, who were taken aback, responded hastily.
 
-But Park Minho's eyes were already on the open space behind Genoa's defense.
+But Park Minho's gaze was already fixed on the empty space behind Genoa.
 
 * * *
 
-During my middle school years.
+In my middle school days.
 
-There was a friend named Baek Seunghoon in our football club, who was nicknamed the Korean Messi.
+There was a friend in our football team named Baek Seunghoon, who was nicknamed the Korean Messi.
 
-Then there was Lee Jinsu, the greatest genius striker in the middle school league, scoring three goals every match.
+And Jinsu Lee, the middle school league's top genius striker, who scored three goals every match.
 
-Hwang Junchan, who was set to become a future national team fullback.
+Hwang Junchan, who was expected to be a future national team fullback.
 
-And Kim Siwon, the heir to the Spider Hand.
+And Kim Siwon, the heir of the Spider Hand.
 
-Our middle school boasted incredible talents.
+Our middle school had incredible geniuses.
 
 I couldn't catch up with them.
 
-When I achieved one thing, they absorbed at least three to ten things.
+When I achieved one thing, they learned at least three or as many as ten.
 
-But there were even greater geniuses in high school.
+But there were even more incredible geniuses in high school.
 
-Baek Seunghoon, who was called the Korean Messi in middle school, became just a small backup winger in high school.
+Baek Seunghoon, who was called the Korean Messi in middle school, became a backup winger due to his short height in high school.
 
-Lee Jinsu, who scored three goals every match, scored only one goal in two years.
+Jinsu Lee, who used to score three goals every match, only scored one goal in two years.
 
-Hwang Junchan, who was said to be the future national team fullback, realized the gap in talent and quit football.
+Hwang Junchan, who was expected to be a future national team fullback, realized the gap in talent and quit football.
 
-Kim Siwon, the heir to the Spider Hand, became the third-choice goalkeeper.
+Kim Siwon, the heir of the Spider Hand, was pushed to become the third-choice goalkeeper.
 
-Seeing this, I thought.
+Seeing that, I thought.
 
 We were frogs in a well.
 
-High school was even more impressive.
+High school was more impressive.
 
-There were real geniuses like senior Lee Myungsoo, who was called up to U-19 and even U-23.
+There was a genuine genius like Myungsoo Lee, who was called up for U-19 and U-23.
 
-There was also Kim Woojin, a junior who easily caught balls, making the Spider Hand look trivial.
+There was Kim Woojin, a junior who caught the ball effortlessly, putting Spider Hand to shame.
 
-Lastly, there was senior Shin Junseo, the best output of our high school.
+And lastly, there was Junseo Shin, the highest output of our high school.
 
-When they took three to five steps forward at once, I could only take one step.
+When they took three to five steps at a time, I could only take one step.
 
-So I gave up.
+So, I gave up.
 
-I felt the difference in talent was too great.
+I felt the gap in talent too much.
 
-Since I was good at studying, I decided to take up football as a hobby.
+Since I was fairly good at studying, I decided to keep football as a hobby.
 
-But looking back now, I don't think I was entirely without talent.
+But now that I think about it, maybe I wasn't entirely lacking in talent.
 
 When Baek Seunghoon, who was called the Korean Messi in middle school, became a backup winger for three years in high school.
 
-I gradually increased my playing time and, by my senior year, I was alternating between starting and rotating.
+I gradually increased my playtime and became a regular rotation player by the time I was a senior.
 
-Moreover, before entering university, a few K2 League scouts contacted me...
+Moreover, before entering college, a few K2 League scouts approached me...
 
-I don't think I lacked talent.
+It seems I wasn't entirely devoid of talent.
 
-If I hadn't heard the news later, I might not have given up on football and gone to the military.
+If it weren't for the news I heard after entering university, I might not have given up on football and gone to the army.
 
-I heard that all those impressive seniors and juniors failed to join professional clubs except for senior Shin Junseo and senior Lee Myungsoo.
+I might have seriously reconsidered playing football.
+
+Hearing that those supposedly great seniors and juniors, except for Junseo Shin and Myungsoo Lee, all failed to join pro teams...
+
+Maybe I got scared too soon.
 
 Honestly, I still can't believe it.
 
-That those extraordinary people failed.
+The failure of those great people.
 
-Well... because of that news, I was able to cleanly let go of my lingering attachment to football as a university student.
+Well... Because of that news, I was able to completely let go of any lingering feelings as a university student.
 
-Since even those great geniuses failed like that.
+Even those great geniuses failed.
 
-I thought there was no way a slow-growing turtle like me could survive in the pros.
+I thought I couldn't survive in the pros, growing at a turtle's pace.
 
-So, I decided to keep football as a hobby.
+I decided to keep football as a hobby.
 
-I made up my mind.
+I made that resolution.
 
-Still, when I heard that senior Shin Junseo, our high school's best output, joined Tottenham after I returned from the military, I felt a bit restless.
+But after coming back from the army, hearing that our high school's top output, Junseo Shin, joined Tottenham made me feel a bit restless.
 
-That tiny bit of regret tugged at my heart.
+A tiny bit of regret tugged at my heart.
 
 "Huff! Huff!"
 
-"Mino! Left!"
+"Minho! Left!"
 
-But it's okay now.
+But now it's okay.
 
-A late opportunity has come my way.
+A late opportunity has come to me again.
 
-And I'm determined to give my all to this opportunity.
+And I plan to give it my all.
 
-Of course, I still have doubts about my talent.
+Of course, I'm still not confident in my talent.
 
-Even in this Parma club, there are more talented players.
+There are friends in this Parma team who have more talent than me.
 
-When I barely learn one thing, they quickly learn two or three.
+When I barely master one thing, they quickly learn two to three things.
 
 But.
 
-I'll try to challenge myself.
+Just a little...
 
-Just a little bit more.
+I'll take on the challenge, just a little.
 
-Tuk!
+Tap!
 
-"Block him!"
+"Stop him!"
 
-Yeah.
+Yes.
 
-I don't think I'm completely without talent.
+It seems I'm not entirely talentless.
 
-Smack!
+Thud!
 
-"Woohoo! Crazy! That's insane! Insane!"
+"Wooaaah! Crazy! That's insane!"
 
-"Perfect timing, Mino!"
+"The timing was perfect! Minho!"
 
-Gianluca Inglese, who scored from my pass, ran over and hugged me tightly.
+Gianluca Inglese, who scored from my pass, ran towards me and hugged me tightly.
 
-"Hahaha! Mino! You're the best! The best!"
+"Ha ha ha! Minho! You're the best! The best!"
 
-"Really? I'm glad. I tried to imitate Franco, but it wasn't easy."
+"Really? That's a relief. I tried to mimic Franco, but it's not easy."
 
-"What? Is that something you can just imitate?"
+"What? Is that something you can just mimic?"
 
-"It's not perfect... but I managed somewhat. Still, I think I'm lacking a lot. I need to work harder."
+"It's not perfect... But I managed somehow. I still lack a lot. I need to work harder."
 
-Huh? Why are they looking at me like I'm a monster?
+What's this? Why are they looking at me like I'm a monster?
 
-Gianluca shook his head after hearing my response.
+Gianluca shook his head after hearing my answer.
 
 "That's why geniuses are..."
 
-"Sometimes this guy is really annoying, you know?"
+"Sometimes this guy is annoyingly smug, you know?"
 
 "All geniuses are like that."
 
-"At least he's on our team. If he was on the opposing team and kept hitting our goal like that and said those things? I'd punch him immediately."
+"Well, he's on our team, so we can tolerate him. If he were on the opposing team and said something like that after pounding our goalpost, I would've punched him."
 
-The team members shook their heads while looking at me.
+My teammates shook their heads as they looked at me.
 
-I didn't perfectly imitate Franco...
+I didn't perfectly mimic Franco...
 
 Why are they calling me a genius here?
 

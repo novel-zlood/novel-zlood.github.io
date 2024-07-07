@@ -7,347 +7,351 @@ tags:
 
 ## 9. Never Underestimate South Korea Again! (2)
 
-South Korea.
+Korea.
 
 A country that once had the fastest internet in the world.
 
-Although it has lost its top spot due to the foolish actions of some companies, South Korea is still known as an internet powerhouse.
+Although it has lost its position as the world leader in average internet speed due to some foolish actions by a few companies,
 
-And.
+Korea is still known as an internet powerhouse.
 
-In this internet powerhouse, countless Korean internet warriors have been born...
+And,
+
+In this internet powerhouse, numerous Korean internet warriors are born...
 
 We call them 'keyboard warriors.'
 
-Anyway.
+Anyway,
 
-The fan page of Lecce, which became the target of these Korean keyboard warriors, was in utter chaos.
+The Lecce fan page targeted by these Korean keyboard warriors was in utter chaos.
 
 [If Lecce continues like this...]
 
-- Comment: Rider Kiiiiiiik!
+- Comment: Rider Kiiiiiiiiiiiiiiiick!
 
-[Does Lecce have any sense?]
+[Lecce idiots can't get their act together?]
 
-- Comment: Not yet! This is just the beginning, lol.
+- Comment: Not yet! That's what I'm saying! LOL
 
-[What's happening to our fan page?]
+[What's happening on our fan page right now?]
 
-- Comment: I don't know. It looks like Korean. They suddenly came and started this.
+- Comment: I don't know. It looks like Korean, but they suddenly came and started this.
 
-└ You don't know? lol They started it first and now they are playing dumb, lol.
+└ You don't know? LOL They started it first and now play dumb LOL
 
-└ These Italian guys, seriously, lol.
+└ Seriously, these Italian idiots LOL
 
-[Tactician Tamura is ready.]
+[Tactical Weapon Tamura loaded.]
 
-- Comment: You're all set?
+- Comment: Are you stocked up?
 
-└ You damn idiot! Ahhhh damn! I'm on your side! I'm on your side, you damn idiot!
+└ You son of a b****! Ugh! F***! I'm on your side! I'm on your side, you son of a b****!
 
-And it wasn't just the fan page.
+It wasn't just the fan page.
 
-Lecce's ace player, Gabriel Strontech's SNS was flooded with all sorts of Korean curses, creating utter chaos.
+Lecce's ace,
 
-On top of that, fans of Parma joined in, turning it into a complete mess.
+Gabriel Strontezza's SNS was flooded with all sorts of Korean curses, turning it into pure chaos.
 
-Thanks to this, even before the game started, the looks from Lecce's home fans were anything but friendly.
+Additionally, with Parma fans joining in, it became a complete mess.
+
+Because of this, even before the game started,
+
+The looks from Lecce's home fans were quite intense.
 
 "We might get shot at this rate."
 
 "It's not that bad."
 
-Even if Italians are known to be the most hot-tempered in Europe, they wouldn't think so extremely when it comes to football.
+No matter how hot-tempered Italians are known to be in Europe,
 
-"Well... we might have to brace for some punches."
+They wouldn't think so extremely about football.
 
-At Buffon's words, Santiago closed his mouth.
+"Well... we should at least be prepared for some fistfights."
 
-The opponent's starting lineup revealed before the match was indeed close to their best 11.
+At Buffon's words, Santiago shut his mouth tightly.
+
+The opponent's starting lineup revealed before the match was close to their best 11.
 
 We also matched them with our best members.
 
-We had been watching analysis videos of Lecce for a few days before the match, and it was clear that they were a team with much better strength than other Serie B teams.
+We had been watching their analysis videos for a few days before the Lecce match, and it was clear that they were a much stronger team than other Serie B teams.
 
-Their organization was slightly better than S.P.A.L.
+They were slightly more organized than S.P.A.L.
 
-Their defensive capabilities were not at the Serie B level either.
+Their defense was above Serie B level.
 
-Yet, the reason this team was in 5th place in the league was obviously due to their lack of scoring power.
+The reason this team is in 5th place in the league is obviously due to their poor scoring ability.
 
-"Phew..."
+"Hoo..."
 
-For some reason, I felt tired.
+I felt strangely tired.
 
-The game hadn't even started yet.
+The game hasn't even started yet.
 
-Seeing me like this, Santiago remarked, ‘Even Minho is nervous?’ but...
+Santiago looked at me curiously, thinking, 'Is Minho also nervous?' but
 
-This wasn't nervousness; it was fatigue.
+This wasn't nervousness, it was exhaustion.
 
-I don't know if it's because of the ongoing 'World War' on Lecce's fan page, but it was strangely bothering me.
+I was oddly bothered, perhaps because the 'World War' was still ongoing on the Lecce fan page.
 
-So I sneaked in quietly.
+So, I sneaked in to take a look.
 
 [From now on, this is our Manchester United fan page!]
 
-- Comment: (A picture of a frustrated-looking Man U player)
+- Comment: (A picture of a pissed-off Man U fan)
 
 └ (A picture of a doomed beast)
 
 └ (A picture of Wayne Rooney)
 
-The top post on the fan page was a female character with cat ears and the Manchester United squad.
+At the top of the fan page was a female character with strange cat ears and the Manchester United squad.
 
 Just looking at this incomprehensible internet meme made me feel dizzy again.
 
-Before entering the stadium.
+Before entering the stadium,
 
-I think I understood why the looks from Lecce's home fans were so sharp.
+I understood why the looks from the Lecce home fans were so sharp.
 
-“Whatever.”
+"Smack."
 
-Still, what can be done?
+But what can I do?
 
-I have to get ready for the match and prepare to step onto the field.
+I have to prepare for the game and get ready to enter the field.
 
-Yes, I'm a professional.
+Right, I'm a pro.
 
-Even in this chaotic situation, if I show my skills properly, this issue will soon be buried.
+Even in this chaotic situation, if I just show my skills properly, this issue will soon be buried.
 
-In that deep, deep sea called the internet.
+Deep, deep in the sea of the internet.
 
 * * *
 
 Booooo!
 
-A tremendous amount of booing poured out.
+A tremendous amount of booing was pouring in.
 
-Police were stationed between the away and home stands, separating the ultras of both teams with tense expressions.
+Police were stationed between the away and home stands, nervously separating the two teams' ultras.
 
-Flutter!
+Flap!
 
-And among the ultras of Parma, three young-looking Koreans were enthusiastically waving the Korean flag.
+And among Parma's ultras, three young-looking Koreans were enthusiastically waving the Korean flag.
 
-Seeing this, some Lecce fans hurled insults and raised their middle fingers.
+Seeing this, some Lecce fans were swearing and showing the middle finger.
 
-The ultras of Parma were protecting these three Koreans and were shouting strange chants together.
+Parma's ultras were protecting these three Koreans, shouting insults and strange chants together.
 
-(Deyan! Deyan Kulusevski of Parma!)
+(Dejan! Dejan Kulusevski of Parma!)
 
-(Deyan! Deyan Kulusevski of Parma!)
+(Dejan! Dejan Kulusevski of Parma!)
 
-(Deyan! Deyan Kulusevski of Parma!)
+(Dejan! Dejan Kulusevski of Parma!)
 
-“Deyan?”
+"Dejan?"
 
-“Oh, Deyan? He’s the player who scored the winning goal that relegated Lecce to Serie B in the 19-20 season.”
+"Oh, Dejan? He was our player who scored the decisive goal that relegated Lecce to Serie B in the 2019-20 season."
 
-“...”
+"..."
 
-“He’s now with Juventus... but he was on loan with our team two seasons ago.”
+"He's with Juventus now, but he played for our team on loan two seasons ago."
 
-Such provocation.
+What a provocation.
 
-If this match is this chaotic and rough, I wonder how much rougher the Istanbul derby or the Milan derby would be?
+If a non-derby match is this chaotic and rough, how much rougher would the Istanbul or Milan derbies be?
 
-“The Milan derby isn’t that rough. Matches between Milan’s two clubs and Juventus are much rougher.”
+"The Milan derby isn't that rough. Matches between the two Milan clubs and Juventus are much rougher."
 
-At Buffon’s explanation, I naturally nodded.
+I nodded at Buffon's explanation.
 
 (Fabio! Fabio! Fabio!)
 
 (Thank you, Parma!)
 
-(For taking that idiot Fabio!)
+(For taking the stupid Fabio!)
 
-(For relegating with us to Serie B!)
+(And getting relegated to Serie B with us!)
 
 (Fabio! Fabio! Fabio!)
 
-This time, Lecce fans sang a strange chant using someone’s name to mock Parma.
+This time, Lecce's fans were using someone's name in a strange chant to mock Parma.
 
-Marlan, who was next to me, explained.
+Marjan, who was next to me, explained.
 
 The name Fabio.
 
-The owner of that name was the coach who relegated Parma in the 20-21 season.
+He told me that Fabio was the coach who relegated Parma in the 2020-21 season and had previously relegated Lecce to Serie B in the 2019-20 season.
 
-Before that, he was also the coach who relegated Lecce to Serie B in the 19-20 season.
-
-So, he’s a relegation specialist who relegated both teams.
+So, he's an expert in relegation, huh?
 
 A bit scary.
 
-Parma didn’t like it either, so they loudly chanted Deyan’s name.
+Parma didn't like that part either, so they loudly chanted the name of player Dejan.
 
-On the other hand, Lecce chanted Fabio’s name.
+Conversely, Lecce chanted the name of coach Fabio.
 
-“They’re like kids.”
+"They're like kids."
 
-At Santiago’s words, Buffon chuckled.
+Santiago's words made Buffon chuckle.
 
-It wasn’t entirely wrong.
+He wasn't entirely wrong.
 
-“Anyway, you understand why we absolutely can’t lose today’s match, right? I can’t stand seeing those damn Lecce guys getting cocky.”
+"Anyway, you understand why we absolutely can't lose today's match, right? I can't stand the thought of these damn Lecce fans getting even more arrogant."
 
-Everyone nodded at the words of our captain, Buffon.
+Everyone nodded at the captain Buffon's words.
 
-It’s not a derby, but.
+It's not a derby, but
 
-Since the opponent started the fight first.
+Since the opponent picked a fight first,
 
-I’m going to go all out too.
+I might as well go all out.
 
-But.
+But,
 
 Why am I so determined?
 
-I got slightly pissed off seeing the opponent’s ace pass by without even shaking hands earlier.
+I got slightly annoyed when I saw their ace pass by without shaking hands earlier.
 
-I’m kind of a guy who holds grudges.
+I'm originally a bit petty.
 
 * * *
 
 Beep!
 
-As soon as the referee blew the whistle, the midfielders of both teams started what could be described as a fight.
+As soon as the referee blew the whistle, the midfielders of both teams practically started a fight.
 
-Of course, they weren’t actually fighting.
+Of course, they weren't actually fighting.
 
-It meant that the physical battles and tackles between the two teams were so rough that it looked almost like a derby match.
+It meant that the physical battles and tackles between the two teams were as intense as a derby match.
 
-However, unfortunately, the side that took the initiative first was the home team, Lecce.
+But unfortunately, the side that took the initiative first was the home team, Lecce.
 
-The booing from the extremely angry home fans.
+The boos from the highly agitated home fans.
 
-And the home team that was well-prepared at home.
+And the home team, well-prepared on their home ground.
 
-Honestly, the early part of the first half was inevitably unfavorable for us, and knowing this well, Coach Alain Laban instructed the players to drop back for about 20 minutes in the first half.
+Honestly, the early first half was bound to be disadvantageous for us, and coach Alain Levagne instructed the players to drop back around the 20th minute of the first half.
 
-“Block it!”
+"Block it!"
 
-“They’re coming up the flank again!”
+"They're coming up the flanks again!"
 
-Parma’s defense was under pressure.
+Parma's defense had no time to relax.
 
-Lecce’s attack was unusually sharp, and conversely, Parma’s defense was flustered by their momentum.
+Lecce's attackers were sharper than usual, and Parma's defense was flustered and struggling under the onslaught.
 
-Lecce’s well-crafted attack patterns.
+Lecce's well-executed attacking patterns.
 
-Their ace, Gabriel Strontech, was charging with the ball at a terrifying speed.
+Gabriel Strontezza, the ace, was sprinting with the ball at an insane speed.
 
-- He’s fast! Gabriel!
+- He's fast! Gabriel!
 
-- The Brazilian winger is shaking Parma’s defense like crazy.
+- The Brazilian winger is wreaking havoc in Parma's territory.
 
-To block Gabriel, two of our midfielders cooperated but.
+Two of our midfielders had no choice but to double up on Gabriel to stop him.
 
-Gabriel, with his unique ball touch, slowly advanced while surveying the surroundings.
+Gabriel, with his unique ball touch, slowly advanced while scanning the surroundings.
 
-Then, he suddenly accelerated.
+Then, with a sudden burst of speed,
 
-After stopping, he made a clean and beautiful pass between the two disorganized midfielders.
+He stopped and threaded a clean, beautiful pass between the two disrupted midfielders.
 
-“High!”
+"High!"
 
-“Hold your position!”
+"Hold your positions!"
 
-The slightly high pass curved enough to be called a cross and landed perfectly on the left foot of Lecce’s forward.
+The slightly high pass curved enough to be considered a cross and landed perfectly at Lecce's forward's left foot.
 
-The Lecce forward, with his back to the goal, slowly pushed forward and managed to break through into the danger zone.
+The Lecce forward, holding the ball with his back to the goal, slowly pushed his way into a dangerous area.
 
-Waaaaaa!
+Waaaaaaaah!
 
-The thunderous cheers of the home fans were heard.
+The thunderous cheers of the home fans echoed.
 
 Another pass to the flank.
 
-Gabriel, who had moved deep, received the ball.
+Gabriel, who had penetrated deep, received the ball.
 
-As he used his speed to break through.
+As he used his speed to break through,
 
-A fatal mistake by Parma occurred.
+A critical mistake from Parma followed.
 
 Beep!
 
-Yeeeess!
+Yeeeeeeeeeeees!
 
-- Penalty! It’s a penalty!
+- Penalty! It's a penalty!
 
-- The referee pointed to the spot! And it’s a red card! Ah! Parma’s players are protesting.
+- The referee has pointed to the spot! And it's a red card! Oh! The Parma players are protesting.
 
-- They’re saying it was a Hollywood action... but we need to look at VAR closely.
+- They seem to be claiming it's a dive... We need to look at the VAR closely.
 
-The referee had a brief conversation with the VAR assistant and then headed to check the VAR.
+The referee had a brief conversation with the VAR assistant and then headed to review the VAR.
 
-But it didn’t feel good.
+But it didn't feel good.
 
-It felt like the decision wouldn’t change.
+It felt like the decision wouldn't be overturned.
 
-Soon, the referee returned after watching VAR and upheld his decision.
+Soon, the referee reviewed the VAR and continued with the decision.
 
 Stanko appealed that it was a mistake.
 
-That it was too harsh a judgment.
+He claimed it was too harsh a call.
 
-But the referee seemed to have decided that Stanko intentionally prevented a scoring chance, hence the red card.
+But the referee seemed to have judged that Stanko deliberately prevented a scoring chance, thus giving a red card.
 
-Whether that tackle was a mistake or intentional.
+Only Stanko would know if that tackle was a mistake or intentional.
 
-Only Stanko would know.
+Stanko's tackle was rough and dirty enough.
 
-His tackle was that rough and dirty.
+In the end, Stanko Toric, who received a red card, held his head and left the field.
 
-In the end, Stanko Torric, who received the red card, left the field holding his head.
-
-Yeeeess!
+Yeeeeeeeeeeees!
 
 The cheers of the home fans grew louder.
 
 A red card and a penalty kick in the 13th minute of the first half.
 
-Gabriel Strontech quickly took the PK.
+Gabriel Strontezza quickly took the PK.
 
-Thud!
+Thump!
 
-- Goooooooal!
+- Gooooooal!
 
-- Gabriel Strontech easily converts the PK, putting Lecce 1-0 ahead.
+- Gabriel Strontezza easily converts the PK, putting Lecce ahead 1-0.
 
-- Lecce, in a very advantageous position! This is an unwanted situation for Parma, happening just 13 minutes into the first half.
+- Lecce has secured a significant advantage! An unwanted situation for Parma came just 13 minutes into the first half.
 
 This is the worst.
 
 A defender.
 
-And a central defender at that, got sent off.
+And the central defender at that, got sent off.
 
-Coach Alain Laban, with a reddened face, quickly moved defensive midfielder Wylan Cyprien to the defender’s position.
+Coach Alain Levagne urgently moved defensive midfielder Wylan Cyprien to the defender position, and his face was visibly red.
 
-We, being one man down, adjusted our formation to resemble a 3-4-2.
+We had to adjust to a 3-4-2 formation due to being one man down.
 
-But Parma’s crisis wasn’t over yet.
+But Parma's crisis was not over yet.
 
-The first half seemed to drag on endlessly.
+The first half seemed to drag on.
 
-Lecce’s second goal came.
+Lecce scored their second goal.
 
-A fantastic header in the 31st minute of the first half filled Lecce’s home stadium, Via del Mare, with cheers.
+In the 31st minute of the first half, a fantastic header colored Lecce's home ground, Via del Mare, with cheers.
 
-Waaaaaa!
+Waaaaaah!
 
 Lecce! Lecce! Lecce! Lecce!
 
-Now, trailing 2-0, the players’ expressions were much more grim than before.
+Now trailing 2-0, the players' expressions were much more serious.
 
-Bang!
+Dang!
 
-- Another shot hits the goalpost and goes over!
+- Another shot hits the goalpost and goes out!
 
-- Lecce’s relentless pressure continues!
+- Lecce continues to apply intense pressure!
 
-- Parma is getting hit left and right!
+- Parma is just taking a beating!
 
 How much time had passed?
 
@@ -355,205 +359,203 @@ Finally, the referee blew the whistle.
 
 The first half was over.
 
-The players sighed in relief.
+The players sighed with relief.
 
-Maybe because it was my first crisis since debuting as a professional, I felt oddly calm.
+Maybe because it was my first crisis since debuting as a pro, I felt strangely calm.
 
-Isn’t it just a matter of scoring 3 goals and turning the game around?
+Can't we just score three goals and turn it around?
 
 * * *
 
-Entering the locker room, Coach Alain Laban welcomed the players with a reddened face.
+Entering the locker room, coach Alain Levagne greeted the players with a red face.
 
-“Focus! Focus!”
+"Focus! Focus!"
 
-He gathered the players’ attention.
+He gathered the players' attention.
 
 He quickly explained how Parma should move in the second half.
 
-“A 2-0 score is certainly a desperate number for us, being one man down. But positively thinking, we managed to limit their eleven shots on target to just 2 goals.”
+"A 2-0 score is certainly a desperate number for us, being one man down. But thinking positively, we can say we held off 11 shots on target from the opponent to just 2 goals."
 
-“Lecce expended quite a bit of energy in the first half. Being the team with the 9th least activity in Serie B, they ran 3km more than us in the first half... they’re likely to drop back in the second half.”
+"Lecce spent quite a bit of energy in the first half. The team with the ninth-lowest activity in Serie B ran 3 km more than us in the first half... They are likely to drop back in the second half."
 
 Indeed.
 
-Lecce isn’t a team with high activity.
+Lecce isn't a highly active team.
 
-On the other hand, Parma is the team with the highest activity in the league.
+But on the other hand, Parma is the team with the highest activity in the league.
 
-In individual records, the top 4 players with the most activity over 90 minutes are all Parma players.
+In individual records, the top four players in terms of activity over 90 minutes all belong to Parma.
 
 1st is Yann Karamoh.
 
 2nd is Dennis Man.
 
-3rd is Franco Vázquez.
+3rd is Franco Vazquez.
 
 4th is Gennaro Tutino.
 
-All four players cover about 14km, enjoying strong pressing in the second line.
+All four players cover around 14 km, enjoying strong pressing in the second line.
 
-Park Minho’s activity has also increased from 10km to 12km recently, showing considerable improvement.
+Park Minho has also recently increased his activity from 10 km to 12 km, seeing quite a bit of success.
 
-“Our strength lies in our strong stamina and the organized forward pressing of our second line.”
+"Our strength is our strong stamina and the organized forward pressing of the second line."
 
-“We conserved energy while sitting back in the first half, so in the second half, press hard to take control and score as much as possible.”
+"We saved our energy while crouching in the first half, so start pressing hard in the second half to take control and score as many goals as possible."
 
-“Conceding goals? Don’t be afraid. Whether it’s 2-0, 3-0, or 5-0, a loss is a loss.”
+"Conceding? Don't be afraid. Whether it's 2-0, 3-0, or 5-0, it's the same loss."
 
-Saying this, he comforted Stanko Torric, who had been sent off with a red card in the first half.
+After saying that, he comforted Stanko Toric, who was sent off with a red card in the first half.
 
-Thanks to Coach Alain Laban’s speech?
+Was it thanks to coach Alain Levagne's speech?
 
-The tension disappeared from the players’ faces.
+The tension disappeared from the players' faces.
 
-This time, our captain Buffon stepped up to rally the players and prepare for the second half.
+This time, captain Buffon stepped up to gather the players' morale and prepare for the second half.
 
-Of course, Coach Alain Laban, despite his calm expression, was very flustered inside.
+Of course, coach Alain Levagne, who had a calm expression, was very flustered inside.
 
-Only Assistant Coach Matteo knew that.
+Only assistant coach Matteo knew that.
 
-So halftime ended.
+With that, halftime ended.
 
-Parma’s players exited the locker room.
+Parma's players left the locker room.
 
 Their expressions were different from the first half.
 
 * * *
 
-Being one man short.
+Being one man short,
 
-Parma’s players had to cover much more ground in the second half than Lecce to make up for the missing player.
+Parma's players had to cover the field much more than Lecce in the second half to fill the gap.
 
-But fortunately, Parma was a team with high stamina and a lot of activity.
+But fortunately, Parma was a team with high stamina and activity.
 
-They had enough ability to perplex the Lecce players, who entered the field with a light-hearted attitude.
+They had enough ability to bewilder Lecce, who entered the field with a carefree attitude.
 
-- Parma looks different from the first half.
+- It's a different Parma compared to the first half.
 
-- It feels like we’re watching a completely different team, right?
+- It feels like we're watching a completely different team, right?
 
-- They’re moving a lot more.
+- They're moving a lot more.
 
-It was the same for me.
+That included me as well.
 
-My stamina had increased, and so had my activity.
+My stamina had also increased significantly, and my activity had risen.
 
-Thanks to that, I was creating more chances and grabbing them to score more often.
+Thanks to that, I was able to create more chances or capitalize on them to score.
 
-So, even in this game where we were trailing 2-0, I was sure that if I moved diligently, I could create or seize several opportunities.
+So even in this game where we were trailing 2-0, I was confident that if I moved diligently, I could create or seize a few opportunities.
 
-Just like now.
+Like now.
 
-“Hey! Let’s take it easy.”
+"Hey! Take it easy."
 
-They had mocked us as T-shirt sellers, and now they wanted to go easy?
+They mocked us as T-shirt sellers, and now they want us to take it easy.
 
-Honestly, if I had a worse personality, I might have cursed at their faces right away.
+Honestly, if I had a worse personality, I might have cursed at that face right away.
 
-Well, I’m a professional.
+Well, I'm a pro.
 
-I should show it with my skills.
+I have to let my skills speak.
 
-Just like now.
+Like now.
 
-As I caught my breath, the ball flew towards me.
+As I caught my breath, the ball flew in.
 
-The left-back of Lecce, who had been harassing me, quickly closed in to steal the ball.
+The Lecce left-back who had been pestering me quickly came next to me, trying to steal the ball.
 
 But what did I say earlier?
 
-I said my activity had increased.
+I said my activity had increased compared to before.
 
-Didn’t I?
+Didn't I say that?
 
-Thump!
+Thunk!
 
-I pushed the ball far and ran, ignoring the left-back trying to catch up and dashed forward.
+When I pushed the ball far and ran, I ignored the fullback who hurriedly tried to catch up and sprinted forward.
 
-The gap widened instantly.
+The gap widened quickly.
 
-I could hear the left-back cursing.
+I heard the Lecce fullback cursing.
 
 He must be flustered.
 
-Suddenly running like this.
+Because I suddenly sprinted like this.
 
-But it’s not over yet.
+But it's not over yet.
 
-- Minho! Minho! He quickly breaks through on the flank and then cuts inside, looking for a shooting angle!
+- Minho! Minho! He quickly breaks through the flank and cuts into the center, looking for a shooting angle!
 
-- He’s fast! Two Lecce defenders are closing in!
+- He's fast! Two Lecce defenders are closing in!
 
-I saw the two defenders moving quickly to block me.
+I saw the two defenders moving quickly to block my path.
 
-Sorry, but I’m just a decoy.
+Sorry, but I'm just a decoy.
 
-I passed the ball forward and Santiago, who found the open space, took a clear shot.
+As I sent the ball far forward, Santiago, who found the open space, took a clean shot.
 
-Thud!
-
-- Gooooooal!
-
-- Santiago scores a magnificent goal!
-
-- Parma catches up, 2-1! Just 6 minutes into the second half, they pull one back!
-
-The Lecce defense was caught off guard by the quick goal.
-
-They shouted at the midfielders, who had left the space open, to get their heads straight.
-
-Santiago grabbed the ball from the net and approached the center line with a fist pump.
-
-“Nice goal.”
-
-“Nice pass.”
-
-So I extended my hand for a handshake.
-
-Santiago had a mysterious expression.
-
-Why? Weren’t we going to play Rock-Paper-Scissors?
-
-Now, the score is 2-1.
-
-As we poured our energy into the second half and pressed the opponent hard, they couldn’t get their bearings.
-
-Lecce, which had been so dominant in the first half, now pulled their line back.
-
-Against just 10 men.
-
-But even with their line back, they conceded the equalizing goal in the 21st minute of the second half.
+Thump!
 
 - Gooooooal!
 
-- Gennaro Tutino’s perfect header! Parma ties the score in the 21st minute of the second half!
+- Santiago's clean shot hits the net!
+
+- Parma pulls one back in the 6th minute of the second half!
+
+The suddenly conceded goal.
+
+The Lecce defense was visibly flustered.
+
+At the same time, I heard them shouting at their midfielders to wake up.
+
+Santiago grabbed the ball from the net and brought it to the center line, raising his fist.
+
+"Nice goal."
+
+"Nice pass."
+
+So I held out my fist.
+
+Santiago made a puzzled expression.
+
+What? Weren't we supposed to play rock-paper-scissors?
+
+Alright, the score is now 2-1.
+
+By pouring our stamina into the second half and pressing them hard, Lecce couldn't regain their composure.
+
+Despite dropping their line, Lecce conceded an equalizer in the 21st minute of the second half.
+
+- Gooooooal!
+
+- Gennaro Tutino's perfect header! Parma finally equalizes in the 21st minute of the second half!
 
 - Amazing! Parma!
 
 Boooooo!
 
-The Lecce home fans, who had been cheering and mocking in the first half, were now booing and cursing.
+The Lecce home fans, who had been jeering and cheering in the first half, were now booing and cursing.
 
 About 25 minutes left.
 
 And the score is 2-2.
 
-Parma had plenty of time and opportunity to turn the game around.
+Parma had enough time and opportunity to turn the game around.
 
 And I still had some energy left to run wild.
 
-Suddenly, an amazing goal by a player I knew well came to mind.
+Suddenly, an incredible goal from a player I know well popped into my head.
 
-If I replicate that, it would be killer.
+If I mimic that, it would be awesome.
 
-Turning my head slightly, I saw the fluttering Korean flag.
+I glanced at the fluttering Korean flag.
 
-“Did Senior Shin Joon-seo dribble for 80 meters?”
+"Did Sun Joon-seo sunbae say he dribbled 80 meters?"
 
-For the three Koreans who followed us to this away game.
+For the three Koreans who followed us to the away game.
 
-Shall I fill them with some national pride?
+Shall I give them a dose of national pride?
 
 ----
 

@@ -7,195 +7,195 @@ tags:
 
 ## 9. Never Underestimate South Korea Again! (1)
 
-Embarrassingly.
+It's embarrassing.
 
-Recently in Korea, people have started calling me ‘Nael-lum-jwa’ because I was caught by the broadcast camera sticking out my tongue at Fabrizio, who was following me around in the Ascoli match and eventually got sent off.
+Recently, people in Korea started calling me ‘Nellumjwa,’ because a broadcast camera caught me secretly sticking my tongue out at Fabrizio, who was trailing me the entire match against Ascoli and ended up getting sent off.
 
-Well, having a nickname is good, but.
+Well, having a nickname is nice.
 
-With the nickname, I also felt that the expectations and interest towards me had deepened considerably.
+Along with the nickname, I can feel the growing expectations and interest towards me.
 
 My mother finally received a call from a distant relative asking to borrow money.
 
-When she told me the news, my mother exclaimed, "You've finally become a star!" with admiration.
+When she told me the news, my mother exclaimed, "You've finally become an overnight star!"
 
 Anyway.
 
-In the next match against Crotone, I played as a left winger again and scored multiple goals.
+In the next match against Crotone, I played as the left winger again and scored multiple goals.
 
-Thanks to that, I was awarded MVP again.
+Thanks to that, I was awarded MVP once more.
 
-Having already received the MVP four times, I became the player leading Parma's charge to the top.
+It was already my fourth MVP award, making me the player leading Parma's charge to the top.
 
-And then I flew back to Korea again.
+And then, I flew back to Korea.
 
-I was called up to the national team again.
+I was called up for the national team again.
 
-Honestly, I thought I wouldn’t be called up again after the last time, but our coach Pedro seems to like me more than I thought.
+Honestly, I thought I wouldn't be called up after the last time... but it turns out that our coach Pedro really likes me.
 
-I don't know if he saw me playing in the third line in the last match, but he played me in the friendly match against Syria and the last World Cup Asian qualifier against Iran.
+I'm not sure if he saw me playing as a holding midfielder in the last match, but he put me in for the friendly against Syria and the final World Cup Asian qualifiers match against Iran.
 
-Honestly, I didn’t score any points in both matches, and this time all the main players were playing, so I didn’t really have to play in the second line.
+Honestly, I didn't record any attacking points in either match, and since all the main players were playing, I might not have had a reason to be in the attacking midfield.
 
-Still, some experts praised me for carrying the ball well in the third line, so...
+But some experts praised me a lot for carrying the ball well as a holding midfielder...
 
-Well, I am satisfied with that.
+Well, I'm satisfied with that.
 
-Moreover, I was satisfied to be the protagonist of Korea's first away victory against Iran in the history of the A national team.
+Moreover, I was pleased to be the hero of Korea's first-ever away victory against Iran with the A national team.
 
-Although I didn’t play badly.
+I didn't perform too badly myself.
 
-Indeed, the organic movements of senior Shin Junseo and the other second-line players were on another level.
+But for sure, the organic movements of Sunbae-nim Shin Junseo and the other attacking midfielders were on another level.
 
-- Shin Junseo! Shin Junseo goooal!
+-Shin Junseo! Shin Junseo GOOOOOAAL!
 
-- And as we speak, the match ends!
+-Right at that moment, the match ends!
 
-- Finally! Korea achieves the great feat of winning their first away match against Iran!
+-Finally! Korea achieves its first victory against Iran in an away match!
 
-Indeed, Shin Junseo is Shin Junseo.
+Shin Junseo is definitely Shin Junseo.
 
-There’s a reason he plays for Tottenham.
+There's a reason he's playing for Tottenham.
 
-When I see his ability to dribble and run with the ball, I honestly doubt if this senior is even human.
+Seeing his dribbling and running skills, I honestly doubted whether he was even human.
 
-Honestly, I couldn’t talk to him much during training.
+Honestly, I couldn't talk much during training.
 
-But after all the matches ended and before returning to Italy, I could have a light dinner with the senior.
+But after all the matches ended and before heading back to Italy, I got to have a light dinner with Sunbae.
 
 He said he was really happy to hear that I was playing football again.
 
-Of course... it must be lip service, right?
+Of course... was it just lip service?
 
-Holding the Tottenham uniform that senior Shin Junseo gifted me, we took a photo together with big smiles.
+I took a picture with Sunbae, holding the Tottenham jersey he gave me, and we smiled brightly.
 
-Two hours after the photo was posted on senior Shin Junseo's SNS, I received a terrifying message from Monica.
+Two hours after the picture was posted on Shin Junseo's SNS, I received a chilling text from Monika.
 
-- Monica: Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham?
+-Monika: Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham? Tottenham?
 
-That damn North London is the problem.
+There's something wrong with North London.
 
-There must be some bad energy flowing in London, I am sure of it.
+I'm sure there's some bad energy flow in London.
 
-- Monica: Answer the phone. Answer the phone. Answer the phone. Answer the phone. Answer the phone. Answer the phone. Answer the phone. Answer the phone. Answer the phone. Answer the phone. Answer the phone. Answer the phone.
+I'm convinced.
 
-Or there must be some cosmic horror in the London sewers that drives people mad.
+-Monika: Answer the phone. Answer the phone. Answer the phone. Answer the phone. Answer the phone. Answer the phone. Answer the phone. Answer the phone. Answer the phone. Answer the phone. Answer the phone. Answer the phone.
 
-“Forco Dio!”
+Or maybe there's some cosmic horror in the London sewers that drives people mad.
 
-Monica is too scary.
+"Porco Dio!"
 
-I hope Arsenal wins so Monica doesn’t have such outbursts.
+Monika is terrifying.
+
+I hope Arsenal wins so Monika doesn't throw such fits.
 
 Please...
 
 * * *
 
-Even though the good atmosphere continues, nothing significant has changed in my life.
+Even though I kept up the good atmosphere, there wasn't much change in my life.
 
-Although some Korean reporters came to Parma and caused a bit of trouble.
+Although a few Korean journalists came to Parma and caused a bit of a nuisance.
 
-Well, that wasn’t a big problem.
+Well, that wasn't a big problem.
 
-On the contrary, Santiago.
+Rather, Santiago.
 
-It was evident that he slacked off during training during the international break.
+It was evident that he had slacked off in training during the international match week.
 
-“Like this! Do it like this.”
+"Like this! Do it like this."
 
-“No, that's something only Minho can do.”
+"No, that's something only Mino can do."
 
 This lazy guy grumbles again.
 
-Why is this difficult?
+How is this difficult?
 
-Tap! I catch the ball.
+You catch the ball with a flick!
 
-Swish! I turn my body.
+Turn your body swiftly!
 
-Bang! I kick with an out-front shot.
+Shoot with an out-front kick, and...
 
-Quaresma special complete.
+You complete the Quaresma special.
 
-Is this difficult?
+Is this hard?
 
-“Oh, it’s f*cking hard.”
+"Yeah, it's damn hard."
 
-But Santiago’s eyes are full of complaints.
+But his eyes are filled with dissatisfaction.
 
 You chose Quaresma.
 
-Endure it with guts and perseverance.
+Endure it with grit.
 
-“Ah! I don’t know! I don’t know! I’ll just practice what I’m good at! I don’t need this!”
+"Ah! I don't care! I'll just practice what I'm good at! I don't need this!"
 
-In the end, he gave up and ran off somewhere to dribble excitedly.
+In the end, he gave up and ran off somewhere to practice his dribbling enthusiastically again.
 
-But seeing that, I couldn’t help but admire Santiago’s talent.
+But seeing that, I couldn't help but be amazed at Santiago's talent.
 
-How can he move like that there?
+How does he move like that?
 
 And make such decisions?
 
-I heard that many clubs are showing interest in Parma recently.
+I've heard that many clubs are interested in Parma lately.
 
-I heard that scouts from several first-division teams came to our stadium in the last match.
+I heard that scouts from several Serie A teams visited our stadium in the last match.
 
 Their targets were me and Santiago.
 
 Anyway.
 
-Lately, I’ve been putting a lot of effort into out-front shots, which I’m not very skilled at.
+Lately, I've been focusing on improving my out-front skills in training.
 
-I worked hard to make my shooting and crossing smooth with both my right and left foot using out-front shots.
+I've put a lot of effort into making my shots and crosses with both my right and left foot more fluid using the out-front technique.
 
-Thanks to that, I’ve somewhat adapted with my left foot.
+Thanks to that, I've somewhat adapted with my left foot.
 
-But honestly, I still feel my right foot is lacking.
+But honestly, my right foot still feels lacking.
 
-"Minho! Shall we take a break?"
+"Mino! Shall we take a break?"
 
-Having run around like a dog.
+After running around like a dog.
 
-Santiago comes to me, thinking it might be time to sneak in some rest.
+Santiago comes up to me, suggesting to rest since it seems like a good time to slack off.
 
-But we can’t rest.
+But we can't rest.
 
-And this lazy guy shouldn’t rest either.
+And I can't let this lazy guy rest either.
 
-“Uh, we still have stamina training left.”
+"Uh, we still have stamina training left."
 
-“Ah...”
+"Oh..."
 
-Lately, Santiago’s concentration seems to drop in the latter part of the game, causing him to miss good passes frequently.
+Lately, Santiago's concentration has been dropping in the latter part of the matches, often missing good passes during the final moments.
 
-From what I feel, his stamina is somewhat similar to mine, which improved through consistent stamina training.
+From what I feel, he's at a similar level to me in terms of stamina, which has improved through consistent stamina training.
 
-After all, he once ballooned up to 90kg in the off-season.
+Probably because of the mistake he made in the past when he gained weight up to 90kg during the off-season.
 
-Because of the mistakes he made in the past.
+That's why I pushed him harder.
 
-So I pushed him harder.
+I also honed my free kicks and passes under the strict guidance of Sunbae-nim Shin Junseo during my high school days.
 
-I also honed my free kicks and passes under the strict guidance of senior Shin Junseo during my high school years.
+Thanks to that, I rotated between being a starter and a reserve in my senior year of high school.
 
-Thanks to that, I alternated between being a starter and a rotation player in my senior year.
+"Alright! Fun stamina training time!"
 
-“Alright! Time for fun stamina training!”
+"No, it's absolutely not fun."
 
-“No, it’s absolutely not fun.”
+The lazy guy grumbles with a sullen face.
 
-The lazy guy grumbles with a sulky face.
+But what else can he do?
 
-But what can he do?
+Behind me stands Parma's legend.
 
-Behind me stands Parma’s legend.
-
-Giovanni Buffon, staring sharply, makes the lazy guy whimper and eventually stand beside me to start running together.
+Giovanni Buffon, glaring fiercely, made the lazy guy whimper and eventually stand beside me to start running together.
 
 Kid.
 
-I told you to do it properly when you need to, didn’t I?
+I told you to do it right when you have to.
 
 * * *
 
@@ -203,203 +203,187 @@ US Lecce.
 
 A professional football team based in Lecce, Apulia, Italy, and our next opponent.
 
-We have a peculiar connection with this team.
+We have a strange bad connection with this team.
 
-Well, it's an emotion they hold towards us.
+Well, it's their feelings towards us.
 
 In the 2019-20 season.
 
-Lecce, who was in Serie A, could have stayed in 17th place if they won the final match against us, Parma.
+Lecce, who were in Serie A, could have stayed in 17th place if they won the final match against Parma.
 
-But they were miserably defeated by Parma, finishing 18th in the league.
+But they suffered a crushing defeat to Parma, finished 18th, and were relegated to Serie B.
 
-And thus, they were relegated to Serie B.
-
-Of course, Parma also did terribly the next season and got relegated cleanly...
+Of course, Parma also spectacularly messed up the following season and got relegated...
 
 Anyway.
 
-Perhaps because of this.
-
-Lecce harbors bad feelings towards us.
+Maybe that's why Lecce has bad feelings towards us.
 
 Not to the level of a derby.
 
-But enough to occasionally curse at us when they think of us?
+But enough to curse us occasionally when they think of us?
 
-In such a situation, the match between us, the league leaders, and Lecce, the fifth in the league, became quite a hot topic in Serie B.
+In such a situation, the match between us, the league leaders, and Lecce, the 5th place team, has become quite a hot topic in Serie B.
 
-But I found the next match against Benevento, the second in the league, more interesting.
+But I find the next match against Benevento, the 2nd place team, more interesting.
 
-Well... Different people have different opinions.
-
-So I didn’t see the need to argue here.
+Well... everyone has different thoughts, so I didn't think there was a need to argue about it here.
 
 But these guys are crossing the line a bit.
 
-[Parma’s rise? It’s because they haven’t faced us.]
+[Parma's surge? It's because they haven't faced us.]
 
 [Lecce will definitely get promoted this season.]
 
-[If Parma’s Asian player played for our team, he would have ended up as a T-shirt seller.]
+[If Parma's Asian player played for our team, he would have been reduced to selling T-shirts.]
 
-Hmm... They hit a sore spot.
+Hmm... they hit a sore spot.
 
-To be honest, when I first joined, I really thought I was just an event player at the level of a T-shirt seller.
+Honestly, when I first joined, I did think I was just an event player at the level of selling T-shirts.
 
-But now, it’s different.
+Of course, now it's different.
 
-I am confident that I have enough competitiveness in the professional league.
+I have confidence that I am competitive enough in the professional league.
 
-“Well... Thinking of real monsters, I still have a long way to go.”
+"Well... thinking about real monsters, I still have a long way to go."
 
 Anyway.
 
-Their public opinion campaign is quite effective.
+Their public opinion campaign was quite effective.
 
-Because it hurt my delicate soul.
+It hurt my fragile soul.
 
-“What? Delicate? You?”
+"What? Fragile? You?"
 
-The lazy guy looks at me with suspicious eyes.
+The lazy guy looks at me with doubtful eyes.
 
-But I am really hurt.
+I was really hurt.
 
 Sob sob.
 
-“Crazy guy.”
+"Crazy guy."
 
-Santiago looks at me like I’m a weirdo.
+Santiago looks at me like I'm a weirdo.
 
 I think this lazy guy is weirder.
 
-But I can’t argue against it.
+But I can't refute.
 
-Giovanni too.
+Giovanni and Gianluca also looked at me with peculiar eyes.
 
-Gianluca too.
+"Lately, seeing Mino, I think... wasn't that originally Mino's personality?"
 
-They all look at me with strange eyes.
+"Maybe."
 
-“Watching Minho these days... I wonder if this was Minho’s original personality.”
+"I think Mino might be like this because he served in the military. My friend in the US military said the PTSD from military service was intense."
 
-“Maybe so.”
-
-“I think Minho might be like this because he served in the military. My American friend said that the PTSD he suffered during military service was immense.”
-
-“Well, Minho also served in the military in Korea... So he might have a lot of psychological wounds.”
+"Well, Mino also served in the military in Korea... he might have a lot of psychological scars."
 
 These people.
 
 They instantly make me a patient.
 
-But I can’t help but think, “What if?”
+But strangely, I also think 'maybe?'
 
-I’ve seen many people who developed illnesses after suffering for 1 year and 9 months in the Korean military.
+I've seen many people develop illnesses after suffering for 1 year and 9 months in the Korean military.
 
-All... Military veterans can relate.
+The... military veterans all empathize, right?
 
 The military. That damn place.
 
-I tried to explain to the players that conscription wasn’t that hard.
+I explained to the players that it wasn't that hard because of conscription.
 
-But in their eyes, I looked like a veteran who suffered from PTSD after two years on the battlefield and is challenging football again.
+In their eyes, I looked like a retired soldier with PTSD who rolled in a war zone for 2 years and then returned to football.
 
-Oh, it’s frustrating.
+Ah, it's frustrating.
 
-My military life was just being cooped up in the admin office.
-
-Or playing football happily as an administrative soldier.
+My military life was just being stuck in the admin office or playing soccer as an administrative soldier.
 
 Anyway.
 
-Something happened.
+An incident happened.
 
-It started because of the words ‘Porco Dio.’
+It was caused by the phrase ‘Porco Dio.’
 
-Porco Dio.
+‘Porco Dio’ means ‘Pig God’ in English.
 
-In English, it means ‘Pig God.’
+It doesn't sound like much of a curse, and in northern Italy, it's used to mean ‘Damn!’
 
-It doesn’t sound much like a curse, and in northern Italy, it’s used to say ‘Damn!’
+But in southern Italy, it's a very severe curse.
 
-However.
+This ‘Porco Dio’ is a severe curse because Italy is a very strict Catholic country, and in the past, blaspheming God was considered a serious crime.
 
-In the south, this word is a very severe curse.
+Some people even paid fines of 50 to 300 euros for cursing in public with this phrase.
 
-The reason why Porco Dio is a heavy curse is that Italy is a very devout Catholic country among European nations, and in the past, blasphemy was considered a severe crime in Italy.
-
-This word ‘Porco Dio’ is a blasphemous word, so some people were fined between 50 and 300 euros for using this curse in public places.
-
-The reason why I’m bringing this up now is that.
+The reason I'm bringing this up is...
 
 Parma is in the northern region.
 
-Lecce is a team in the southern region.
+Lecce is in the southern region.
 
-Santiago, while staying at a hotel for an away game, dropped a sports drink and said ‘Porco Dio!’, which spread on SNS.
+Santiago dropped a sports drink at the hotel where we were staying for the away match and said ‘Porco Dio!’ which spread on SNS.
 
-Parma doesn’t take ‘Porco Dio’ very seriously since it's a northern region.
+In the northern region of Parma, ‘Porco Dio’ isn't taken very seriously.
 
-But Lecce is different.
+But in Lecce, it's different.
 
-The home fans of southern Lecce were furious.
+The home fans of southern Lecce went mad.
 
-Starting from blasphemy.
+Starting with the blasphemy against God.
 
-Some even said that the damn Argentine mocked all of Lecce.
+Some even said that the damn Argentine guy mocked the entire Lecce.
 
-They fiercely attacked us.
+They were fiercely biting.
 
-Thanks to that, there was an uproar on SNS.
+Thanks to that, SNS was in chaos.
 
-Parma reacted by saying, “It’s not a good word, but it’s commonly used in the north. What’s the problem?”
+Parma responded by saying, "It's not a good phrase, but it's commonly used in the north. What's the problem?"
 
-Lecce responded angrily, “Even if it’s common in the north, the hotel he is staying at is in the south. So the curse insulted the entire south and Lecce.”
+Lecce retorted, "If it was in the north, we would understand, but he said it in a hotel in the south. So, it's an insult to the entire south and Lecce."
 
-This incident somehow escalated.
+Was this the start?
 
-Lecce fans started to hurl strong curses and malicious comments not only at Santiago but also at me.
+Lecce fans began to hurl insults and leave malicious comments about Santiago and even me.
 
-I didn’t care much since I rarely use SNS.
+I didn't care much since I don't use SNS often.
 
-But Santiago’s SNS was a mess, and he was on the verge of tears.
+But Santiago's SNS was a mess, and he was sulking.
 
 But that was it.
 
-The lazy guy, who was whining about his ruined SNS, soon turned his attention away from this incident.
+The lazy guy, who was whining about his messed-up SNS, soon got distracted from this incident.
 
-Seeing him foolishly grinning about having a rare chance to relax from hard training yesterday, I thought there was no problem.
+Seeing him foolishly smiling yesterday, relieved to be free from tough training for a while, it seemed there were no problems.
 
-However.
+But.
 
-This incident didn’t end there.
+This wasn't the end of the incident.
 
-An incident that should have calmed down by now suddenly became lively again due to unexpected participants.
+An incident that should have subsided by now suddenly erupted with unexpected participants.
 
 [Comments]
 
-- These bastards! How dare they mess with our Minho? Do you want to taste Korean kimchi?
+-These damn bastards! How dare they bully our Minho? Want to taste some Korean Kimchi?
 
-- Damn bastards, what? A T-shirt seller from Korea? Those Lecce bastards act like they are Manchester United even though they're in Serie B?
+-These damn bastards, what? A T-shirt seller from Korea? Lecce bastards think they're Manchester United or something?
 
-- Fucking Lecce! Fucking Lecce!
+-F***ing F***ing F***ing Lecce! F***ing F***ing F***ing Lecce!
 
-- A crazy player scoring 8 goals and 4 assists in 8 league matches, what? A T-shirt seller? If Lecce were in the K League, they’d even lose to a hodu-gwaja (walnut cookie) seller, okay?
+-A crazy player with 8 goals and 4 assists in 8 league matches, what? A T-shirt seller? Lecce, you'd lose to a Korean K-League player selling hotteok, okay?
 
-- If Lecce comes to the K League, they'd be in the relegation zone. Agree?
+-Lecce would be in the relegation zone in the K-League. Agree?
 
-- Totally agree, comrade.
+-Agree 100%. Comrade.
 
-Suddenly, Korean fans joined in.
+The sudden participation of Korean fans.
 
-The fans of Lecce were greatly bewildered as their fan page was quickly filled with incomprehensible words.
+Lecce fans were greatly bewildered to see their fan page filled with incomprehensible words at a rapid pace.
 
 The unexpectedly strong firepower.
 
-I was also taken aback while looking at Lecce's fan page.
+I, too, was bewildered looking at Lecce's fan page that I had briefly checked.
 
-“Why are Koreans here?”
+"Why are Koreans showing up here?"
 
 ----
 
