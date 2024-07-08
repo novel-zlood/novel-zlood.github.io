@@ -137,9 +137,9 @@ He was a small boy with a buzz cut like a chestnut, but his speech and attitude 
 
 She couldn't not know that her daughter liked such a Youngguk. However,
 
-‘She thinks of him as a younger brother.’
+‘He thinks of her as a younger sister.’
 
-It was clear how Youngguk thought of Yeonsu. Her first love in childhood should have ended well, but seeing her daughter liking him so much made her feel conflicted.
+It was clear how Youngguk thought of Yeonsu. As a mother, she want her daughter's first love to have ended well, but seeing her daughter liking him so much made her feel conflicted.
 
 On the other hand, she also felt proud seeing Youngguk on the screen.
 
