@@ -43,6 +43,21 @@ date: 2024-07-06 09:44:44
 [Chapter 33](/taghe/taghe-33/)
 [Chapter 34](/taghe/taghe-34/)
 [Chapter 35](/taghe/taghe-35/)
+[Chapter 36](/taghe/taghe-36/)
+[Chapter 37](/taghe/taghe-37/)
+[Chapter 38](/taghe/taghe-38/)
+[Chapter 39](/taghe/taghe-39/)
+[Chapter 40](/taghe/taghe-40/)
+[Chapter 41](/taghe/taghe-41/)
+[Chapter 42](/taghe/taghe-42/)
+[Chapter 43](/taghe/taghe-43/)
+[Chapter 44](/taghe/taghe-44/)
+[Chapter 45](/taghe/taghe-45/)
+[Chapter 46](/taghe/taghe-46/)
+[Chapter 47](/taghe/taghe-47/)
+[Chapter 48](/taghe/taghe-48/)
+[Chapter 49](/taghe/taghe-49/)
+[Chapter 50](/taghe/taghe-50/)
 
 
 <!-- for i in {26..35}; do echo "[Chapter $i](/taghe/taghe-$i/)"; done -->
