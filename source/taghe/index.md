@@ -33,9 +33,19 @@ date: 2024-07-06 09:44:44
 [Chapter 23](/taghe/taghe-23/)
 [Chapter 24](/taghe/taghe-24/)
 [Chapter 25](/taghe/taghe-25/)
+[Chapter 26](/taghe/taghe-26/)
+[Chapter 27](/taghe/taghe-27/)
+[Chapter 28](/taghe/taghe-28/)
+[Chapter 29](/taghe/taghe-29/)
+[Chapter 30](/taghe/taghe-30/)
+[Chapter 31](/taghe/taghe-31/)
+[Chapter 32](/taghe/taghe-32/)
+[Chapter 33](/taghe/taghe-33/)
+[Chapter 34](/taghe/taghe-34/)
+[Chapter 35](/taghe/taghe-35/)
 
 
-<!-- for i in {21..25}; do echo "[Chapter $i](/taghe/taghe-$i/)"; done -->
+<!-- for i in {26..35}; do echo "[Chapter $i](/taghe/taghe-$i/)"; done -->
 ----
 
 ## Help continue this series:
