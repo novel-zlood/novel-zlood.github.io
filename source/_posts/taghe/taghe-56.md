@@ -1,3 +1,10 @@
+---
+title: taghe 56
+date: 2024-07-09 23:50:08
+tags:
+---
+
+
 ## Episode 56: Into the Wider World
 
 Gerald finished his class and rushed into Go Haeyoung's lab.
@@ -355,3 +362,7 @@ Ha Baekyeon could only watch as he left the gallery.
 Seeing the broad shoulders of a twenty-year-old student, she wondered how much he could grow in the future.
 
 She felt a bit of regret at not being able to keep such an artist.
+
+----
+
+[Back to Chapter List](/taghe/)
