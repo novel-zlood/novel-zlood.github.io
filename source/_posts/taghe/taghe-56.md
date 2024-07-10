@@ -5,363 +5,363 @@ tags:
 ---
 
 
-## Episode 56: Into the Wider World
+## Episode 56: Into the Wide World
 
-Gerald finished his class and rushed into Go Haeyoung's lab.
+Gerald hurriedly entered Go Haeyoung's lab after finishing his class.
 
-It was time for dinner, but this portfolio was much more important.
+It was time for dinner, but this portfolio was far more important.
 
-He couldn't wait to show Go Haeyoung the portfolio filled with hundreds of drawings submitted by Kang Lim.
+He was eager to show Haeyoung the portfolio containing hundreds of drawings submitted by Kang Lim.
 
-During class, he found Kang Lim's calm demeanor somewhat annoying and tried to hide his surprise...
+Kang Lim, who was always too calm during class, seemed annoyingly composed, and Gerald tried hard to hide his surprise...
 
-But this was beyond his imagination.
+But no matter how he thought about it, it was beyond his imagination.
 
 "Haeyoung! This is huge!"
 
-Gerald's booming voice echoed.
+His voice rang loudly.
 
-Seeing Gerald burst through the door, Go Haeyoung raised an eyebrow.
+Go Haeyoung raised an eyebrow as he looked at Gerald, who had burst through the door.
 
-She was just about to leave, so she looked slightly annoyed.
+He was about to leave for the day, and his expression showed that he found this interruption bothersome.
 
-As she put on the jacket that was draped over her chair, she said,
+As he put on the jacket draped over his chair, Go Haeyoung spoke.
 
-"Are you here because of Junhee? I know he just came back to Korea. I also know he's hosting a seminar with his juniors next week."
+"Did you come because of Junhee? I know he recently returned to Korea. I also know he's holding a seminar with juniors next week."
 
-Gerald shouted in response to Go Haeyoung's incorrect guess.
+Gerald shouted, misunderstanding Haeyoung's assumption.
 
-"No, that's not it! Junhee isn't the problem right now!"
+"No, it's not that! Junhee is not the issue right now!"
 
-"Then what is?"
+"Then what is it?"
 
-"I told the students to bring the drawings they've done so far to class, right?"
+"I told the students to bring the drawings they've been working on during class, right?"
 
-"And?"
+"Yes, you did."
 
-"But Ga... Kang Lim submitted a portfolio with 200 pieces! And he has ten times more at home! Isn't that insane?"
+"But, Kang Lim submitted a portfolio with 200 pieces! And he says he has ten times more at home! Isn't that crazy?"
 
 "...What?"
 
-Go Haeyoung looked as if to ask if it was true.
+Go Haeyoung's expression asked if it was true.
 
-Seeing her disbelief, Gerald shouted even louder.
+Seeing the disbelief in Haeyoung's eyes, Gerald shouted louder.
 
-"I'm telling you! I didn't believe it at first either! Honestly, I thought there would be a few hundred pieces at most, but not this many! And it's not just the quantity, you have to see the quality. Look at this right now!"
+"That's what I'm saying! I couldn't believe it at first either! I honestly thought there would be a few hundred pieces, but not to this extent! And it's not just the quantity; you have to see the quality of the drawings. Look at this right now!"
 
-Gerald shoved four thick binders into Go Haeyoung's chest.
+Gerald thrust four thick binders into Haeyoung's chest.
 
-Caught off guard, she took the binders and sat back down in her chair.
+Taking the binders, Haeyoung sat back down in his chair.
 
-As she cautiously turned the cover, her hands began to tremble.
+As he carefully turned the cover, his hands began to tremble.
 
 * * *
 
-As Go Haeyoung turned the pages for a long time, her eyes sank into darkness.
+Haeyoung's eyes gradually darkened as he turned each page for a long time.
 
-She couldn't help but nod slowly at the endless depth of the drawings.
+He couldn't help but nod slowly at the depth of the drawings, which seemed endless.
 
-Her usually erect posture began to falter.
+His usually upright posture slackened.
 
-Gerald, impatient with her slow perusal, bustled around noisily.
+Gerald was buzzing around, complaining about why Haeyoung was taking so long to look at the works.
 
-He was always talkative, but today he was even more so, and his eyebrows remained raised in excitement.
+Though he was usually talkative, he was noisier than usual, and his eyebrows were raised the whole time.
 
-Finally, unable to bear it any longer, Gerald shouted.
+Eventually, Gerald couldn't take it anymore and shouted.
 
-"Ah! You've seen enough, right? Why are you so slow!"
+"Ugh! You saw it all, right? Why are you so slow!"
 
-"Yes, it's really surprising. There are many pieces better than the ones you bought..."
+"Yeah, it's really astonishing. There are many works that are much better than the ones you bought...”
 
 Gerald nodded vigorously with a bright smile.
 
-"Right? Let's get him exempted from military service first."
+"Right? First, let's get him exempted from the military."
 
-"That's nonsense."
+"What nonsense is that?"
 
-Seeing that Go Haeyoung didn't catch on quickly, Gerald shook his head.
+Seeing Haeyoung not catching on, Gerald shook his head.
 
-"Our country is great, but it's sad that young men have to serve in the military at their prime... If he could hold an exhibition in a famous overseas art museum at such a young age, he'd bring great honor to the country... It's such a waste!"
+"In our country, everything is great except that you have to go to the military during your prime years. It's so sad... If he could hold exhibitions in famous international galleries during his youth, he could bring a lot of attention and national prestige. It's such a waste!"
 
 "It's strange to hear you say 'our country.'"
 
-Gerald's Korean was excessively patched.
+Gerald's Korean was excessively fluent.
 
 "I've lived here too long!"
 
 "Hmm..."
 
-"Anyway! If he wins the grand prize at the Korean Art Contest, he'll be exempt from military service. I'll tell Kang Lim to enter as soon as the announcement is made. You should recommend him for next year's Biennale. He needs to be known to many people; he needs to go out into the wider world."
+"Anyway! If he wins the grand prize at the National Art Competition, he can get exempted from the military. I'll make sure Kang Lim participates when the announcement is out. You should recommend him for next year's Biennale. He needs to be known by more people and go into the wider world."
 
-"...The Biennale is held every two years. Next year's participants are already decided; the earliest he could be recommended for is the one three years from now."
+"...The Biennale is held every two years. The participants for next year must have already been decided. Even if you recommend him, it would be for the Biennale three years from now."
 
 "Damn it!"
 
-"And I believe the military exemption for the Korean Art Contest is only valid until this year; they're planning to abolish it next year."
+"And I believe this is the last year the National Art Competition offers military exemptions. They plan to abolish it next year."
 
 "Why?"
 
-"Because of too much corruption, obviously."
+"Because of too much corruption."
 
-In fields like music, dance, sports, and art, those who demonstrate clear talent are given exemptions according to the Military Service Act.
+In fields like music, dance, sports, and fine arts, those with distinct talents receive exemption benefits under the military service law.
 
-For example, the Yun Isang Competition in Tongyeong sees fierce competition among musicians every year.
+For example, the Yoon Yi-sang Competition held in Tongyeong sees fierce competition among musicians each year.
 
-However, in the field of art, there are few competitions, and it's difficult to quantify scores.
+However, in the visual arts, there are few competitive events, and it's a field where it's difficult to score objectively.
 
-Thus, the country granted an exemption only to the one person who won the grand prize in the Korean Art Contest.
+Thus, the state provided exemption benefits to only one person who won the grand prize in the National Art Competition.
 
-The problem, as expected, was the rampant lobbying.
+The issue was that, as expected, there was significant lobbying.
 
-With only one person in the entire country receiving the exemption, the competition was fierce.
+Since only one person could receive the prize nationwide, the competition was incredibly fierce.
 
-People began offering millions of won to the judges to win the prize.
+People started offering tens of millions of won to the judges to win the award.
 
-Especially since the executives running the Korean Art Contest started sharing the prize among their students, family, and relatives...
+Especially, students, family members, and relatives of officials running the National Art Competition began to share the awards...
 
-Talented artists didn't get the benefits, and many didn't even know such a system existed.
+As a result, genuinely talented artists didn't receive the benefits, and many didn't even know the system existed.
 
-As a result, the quality of winning works declined, and the state decided to abolish this special military service exemption.
+This led to a decline in the quality of the winning entries, and the state decided to abolish this military exemption.
 
-This year is the last.
+This year was the last.
 
-Go Haeyoung clasped her hands together and spoke seriously.
+With his fingers intertwined and a serious expression, Haeyoung spoke.
 
-"Of course, Kang Lim could participate in the Korean Art Contest, but winning the grand prize is impossible. It's already decided; it can't be changed."
+"Of course, Kang Lim can participate in the National Art Competition, but winning the grand prize is impossible. That's already decided; it can't be changed."
 
-"Damn it! That's nonsense! If he doesn't win the grand prize, who does?"
+"Damn it! That's absurd! If he doesn't win the grand prize, then who does?"
 
-"It's true. I didn't win the grand prize either."
+"It's true. Even I didn't win the grand prize."
 
-"No! That's because you were young and not good enough! Kang Lim can do it now."
+"No! That's because you were too young and not good enough! Kang Lim can do it now."
 
-"..."
+"......"
 
-"And Junhee was exempted too! He won the grand prize with his talent. There's no way he offered money, considering his cool personality."
+"And Junhee was exempted too! He won the grand prize with his skills. There's no way he bribed anyone; he's such a cool guy."
 
-"Junhee himself is a kind of lobbying. How many people want to impress Jeil Group?"
+"Junhee himself is a form of lobbying. Think about how many people want to get in the good graces of Jeil Group."
 
-"Argh!"
+"Aargh!"
 
-Ignoring Gerald's frantic outburst, Go Haeyoung turned her body slightly and looked out the window, reminiscing about the past.
+Haeyoung ignored the loud Gerald and turned his upper body to the side.
 
-The early twenties when she enlisted...
+He looked out the window and reminisced about his early twenties when he enlisted...
 
-With eyes closed in deep thought, she said,
+Closing his eyes as if deep in thought, Haeyoung spoke.
 
-"On the contrary, going might be good. It could add depth to his work. There are various human experiences there, and he'll think deeply about the relationship between individuals and groups. And if Kang Lim goes, he'll be loved for his good drawings."
+"Actually, it might be good for him to go. It could add more depth to his work. There, he'll encounter a diverse array of individuals and deeply think about the relationship between individuals and groups. And if he goes, Kang Lim will draw well and be liked by people."
 
 "What nonsense!"
 
-"What do you know, as a foreigner? Every man should serve in the military; it's a noble duty to protect the country."
+"What do you know? As a foreigner, don't meddle. Every man should serve in the military; it's a noble duty to protect the country."
 
-"Old fart!"
+"You old fogey!"
 
-"..."
+"......"
 
 "Get out of my lab!"
 
-"...This is my lab. I wish you'd leave now."
+"...This is my lab. I'd appreciate it if you could leave now."
 
-"Even if you say that, I'll make sure Kang Lim participates in the Korean Art Contest when the announcement is made! Just wait and see."
+"Even if you say that, I'll make sure Kang Lim participates in the National Art Competition once the announcement is out! Just wait and see."
 
-Annoyed by Go Haeyoung's indifferent response, Gerald stomped out of the lab.
+Ignoring Haeyoung’s indifferent reaction, Gerald stormed out.
 
-After Gerald left, Go Haeyoung continued to look through the portfolio Kang Lim had submitted.
+After Gerald left, Haeyoung continued to examine Kang Lim's portfolio.
 
-Savoring each piece of artwork...
+He carefully analyzed each image...
 
-She leaned back and looked up at the ceiling.
+Then leaned back and looked up at the ceiling.
 
-With her eyes closed again, she thought of a new challenge.
+Closing his eyes again, Haeyoung began to think about a new task.
 
-A challenge that could bring out Kang Lim's masterpiece...
+A task to bring out Kang Lim's masterpiece...
 
 * * *
 
 The next day.
 
-Getting off at Gangnam Station, Kang Lim took a deep breath.
+After getting off at Gangnam Station, Kang Lim took a deep breath.
 
-Cars passed by quickly, and tall buildings rose high.
+Speeding cars, tall skyscrapers.
 
-Banks, corporate offices, and college prep academies—this was a place where people of all ages gathered.
+Banks, corporate buildings, and college prep academies made it a prime location to meet people of various ages.
 
-When he recently held an exhibition in Insadong, he hadn't expected to have a solo exhibition so soon...
+When he recently had an exhibition in Insadong, he never thought he'd hold a solo exhibition so soon...
 
-Things went better than expected, and he felt good about it.
+Things had gone better than expected, and he felt good.
 
-Kang Lim quickly passed a large intersection and arrived at the Baekyeon Gallery.
+Kang Lim quickly reached Baekyeon Gallery after passing a large intersection.
 
-The geometric building stood prominently on the main street.
+The geometric building stood prominently on the main road.
 
-Its striking design made it clear that it was an exhibition hall, even without entering.
+Its striking design made it clear it was an exhibition hall without having to go inside.
 
-'It really looks more like a museum than a gallery...'
+'It’s too large to be called a gallery; it feels more like a museum...'
 
-Entering the building, he saw the paintings of the artist currently on exhibit.
+Upon entering, he saw the paintings of the artists currently on exhibition.
 
-A fantastical world painted in cool magenta and ultramarine hues.
+A fantasy world painted in cold magenta and ultramarine tones.
 
-In the painting filled with poisonous mushrooms, endangered animals were happily playing.
+Endangered animals happily playing in a landscape where poisonous mushrooms grew.
 
-It was a beautiful yet eerie landscape.
+The paintings were beautiful yet bizarre.
 
-'Oh, what an imaginative artist... The theme looks very intuitive...'
+'Oh, this artist has great imagination... The theme seems very intuitive...'
 
 Kang Lim slowly admired the paintings.
 
-In the quiet exhibition hall, the sound of his footsteps echoed, and then another set of footsteps joined.
+The sound of footsteps echoed in the quiet exhibition hall, and another set of footsteps joined in.
 
-Turning around, he saw Ha Baekyeon smiling brightly.
+When he turned around, he saw Ha Baekyeon smiling brightly.
 
 "Are you Kang Lim?"
 
 "Oh, are you the curator?"
 
-"Yes, I'm the curator and also the director here! I'm Ha Baekyeon. Nice to meet you."
+"Yes, I’m the curator and the director here! I'm Ha Baekyeon. Nice to meet you."
 
-"Oh! Nice to meet you too. How did you recognize me right away? I didn't attach a photo to my portfolio."
+"Ah! Nice to meet you. How did you recognize me? I didn't attach a photo to my portfolio."
 
-Kang Lim was surprised that she recognized him, as he could have easily been mistaken for a regular visitor.
+Kang Lim was surprised that she recognized him, thinking he could have been just another visitor.
 
-Ha Baekyeon laughed and said,
+Ha Baekyeon smiled and said,
 
-"Oh, I did some searching. You have quite a unique life story. Didn't you win the grand prize at Korial Fresh? Your face looked exactly like it did in the newspaper. You look great in person too."
+"Oh, I looked you up, of course. You have a unique life story. You also won the grand prize at the Corial Fresh competition, right? Your face is the same as in the newspaper article. You look great in person too."
 
 "Oh, you saw it there. Haha, thank you."
 
 This feels similar to when I met the publishing editor...
 
-Without realizing it, Kang Lim was gaining fame here and there.
+Without realizing it, Kang Lim was becoming well-known here and there.
 
-It made sense since his occasional exhibitions and competitions were all reported in the news.
+After all, the exhibitions and competitions he participated in had all made the news.
 
 "Let's go into the meeting room and talk."
 
 * * *
 
-Entering the curatorial office, he saw the piled-up portfolios submitted for the competition.
+Entering the curator's room, he saw the piles of portfolios submitted for this competition.
 
-Seeing the overwhelming amount, Kang Lim realized how precious this opportunity was for him.
+Seeing how much there was, he realized just how valuable the opportunity he had was.
 
-But Ha Baekyeon's thoughts were the opposite.
+But Ha Baekyeon thought the opposite.
 
-She thought it was a stroke of luck that Kang Lim had come.
+She considered it a stroke of luck that Kang Lim had come.
 
-With sparkling eyes, she said,
+She spoke with shining eyes.
 
-"Kang Lim, thank you so much for applying to our gallery competition. It's been a long time since I've met an artist who made my heart race."
+"Kang Lim, thank you so much for applying to our gallery competition. It’s been a long time since I met an artist who made my heart race."
 
-"Thank you. Baekyeon Gallery is an amazing place."
+"Thank you. Baekyeon Gallery is a wonderful place."
 
-"Really, your work perfectly matches our exhibition theme, and your work is fantastic, not to mention your personal story is so intriguing. You're definitely someone destined for greatness."
+"Really, your work fits perfectly with our exhibition theme, the work is excellent, and your personal story is fascinating. Anyone can see you are destined for great things."
 
-"Thank you very much."
+"Oh, thank you very much."
 
-"I mean it. Now, let me explain the exhibition details!"
+"I mean it. Now, let me explain the details of the exhibition!"
 
-"Okay."
+"Sure."
 
-"The paintings in the current exhibition you saw earlier will be taken down in two weeks. After the paintings are removed, the solo exhibition for this competition will start the week after that. So, we have four weeks."
+"The paintings you saw earlier will end their exhibition in two weeks. Once those paintings come down, the solo exhibitions for this competition will start the following week. So, you have four weeks left."
 
-"I see. How many participants are there in this relay solo exhibition?"
+"Ah, I see. How many artists are participating in this relay solo exhibition?"
 
-"We selected five artists. You'll be the first to open the exhibition. The image for the relay exhibition is the initial artist's work, so this is the time with the highest attention. That's why we always send the best image first."
+"We selected five artists. You will be the first to open the exhibition. The first artist's work sets the tone for the relay exhibition, so it gets the most attention. That's why we send the best image first."
 
 "Oh..."
 
-"That's why your series of 24 pieces is already being made into a catalog. It will be provided on the opening day of the exhibition. And we'll handle the transportation, so just text me the address of your studio, and we'll bring it in."
+"So, the 24 series paintings you created are being made into a catalog. It will be provided on the opening day of the exhibition. We will also support the transport, so just send us your studio address on your phone, and we will take care of it."
 
 "Thank you."
 
-"And how should we set the price for your works?"
+"And how should we set the prices for the works?"
 
-As expected, Kang Lim shook his head at the question.
+Anticipating the question, Kang Lim shook his head and answered.
 
 His eyes were firm.
 
-"Ah, these are pieces I really cherish, so I don't want to sell them. We don't have to sell them, right?"
+"Oh, I don't want to sell these works; they are very precious to me. We don’t have to sell them, right?"
 
-"Of course not! There's no rule requiring it. It's just something we have to ask for the exhibition."
+"Of course not! There are no such rules. It's just something we must ask during the exhibition process."
 
-The paintings Kang Lim mentioned yesterday from Picasso's Blue Period are closely tied to his life and rare, making them expensive.
+The paintings from Picasso's Blue Period, which he mentioned yesterday, are closely tied to the artist's life and are few in number, making them rare and expensive.
 
-Similarly, Kang Lim's current works reflect his life and are a series of only 24 pieces, so selling them cheaply like his previous group exhibition would be foolish.
+Similarly, this series of works by Kang Lim reflects his own life and consists of only 24 pieces, so selling them cheaply like his previous group exhibition paintings would be foolish.
 
-It would be like selling the paintings for a pittance.
+That would be like giving them away for nothing.
 
 Moreover, for Kang Lim, it wasn't about the money; he cherished the series itself.
 
-He didn't want this exhibition to be the end for these works.
+He didn’t want this to be the only exhibition for these works.
 
-'I want to hold exhibitions in other places and share my work with as many people as possible. These paintings are the starting point of my artistic career and hold great significance...'
+'I want to hold exhibitions in other places and share my work with as many people as possible. This series has significant meaning as the starting point of my artistic career...'
 
-Reading Kang Lim's mind, Ha Baekyeon smiled.
+Ha Baekyeon, as if reading his mind, smiled and spoke.
 
-She liked him even more for knowing his worth.
+She liked that he understood his own value.
 
-"I also think it would be ridiculous to sell these paintings at the price of a college student's work. It would be better to hold onto them until your name becomes well-known and then put them up for auction."
+"I also think it would be absurd to sell these paintings at a price typical of a student. I hope you keep them and put them up for auction when your name becomes more well-known."
 
-In fact, Ha Baekyeon wanted to offer Kang Lim an exclusive contract.
+In fact, Ha Baekyeon wanted to propose an exclusive contract to Kang Lim.
 
-Having such an artist and splitting the proceeds 50-50 would make the gallery a lot of money.
+Having such an artist would mean splitting the profits 50:50, and the gallery would make a lot of money.
 
-However, her love for art didn't allow her to tie him down.
+However, her conscience as someone who loved art didn't allow her to bind him.
 
-She knew better than anyone that he needed to go out into the wider world.
+She knew better than anyone that he needed to go out into a bigger world.
 
-Looking through Kang Lim's portfolio, Ha Baekyeon spoke.
+As she checked his portfolio, she spoke.
 
-"Ah! Lastly, I have a question about the exhibition planning. Why are there 24 pieces in the series?"
+"Oh! Lastly, I have one question regarding the exhibition planning. Why are there 24 pieces in the series?"
 
-Kang Lim was surprised by Ha Baekyeon's keen question.
+Kang Lim was surprised by Ha Baekyeon's sharp question.
 
-He had hidden significant meaning in the number itself.
+He had indeed hidden a meaning in that number.
 
-"Wow, you noticed that I deliberately made 24 pieces!"
+"Wow, you noticed I intentionally made it 24 pieces!"
 
-"No, I don't know the meaning, but it seemed like an odd number, so I wondered if there was a significance."
+"No, I don’t know the significance, but it seemed like a peculiar number, so I wondered if it had any meaning."
 
-"Yes! There is. These paintings contain the emotions of human joy, anger, sorrow, and pleasure. Simply put, it's four emotions. Even joy alone can branch into joy, hope, satisfaction, peace... many different forms, right? And it can mix with opposite emotions like sorrow.
+"Yes! It has significance. These paintings capture the various emotions of human life, and while emotions like joy can branch into many types like delight, hope, satisfaction, and peace... they can also mix with contradictory feelings like sorrow.
 
-Humans experience multiple emotions simultaneously, and I thought these complex stories were similar to weather. Even on a sunny day, a sudden shower can come."
+Humans experience multiple emotions simultaneously, and I thought these complex stories resembled the weather. Even on a sunny day, it can suddenly rain."
 
 "Yes, that's true."
 
-"The landscapes outside the windows in these paintings actually depict Korea's 24 seasonal divisions. I chose scenes that best matched my mother's emotional state. That's why there are 24 pieces."
+"The landscapes outside the windows in these paintings depict Korea's 24 distinct seasonal divisions. I chose scenes that closely matched my mother's emotional state. That’s why there are 24 pieces."
 
-Ha Baekyeon was surprised by the unexpected content.
+Ha Baekyeon, shocked by the unexpected content, said with a surprised expression.
 
-"Wow, that's amazing. So you painted the 24 seasonal emotions?"
+"Wow, that's incredible. So, you painted the 24 seasonal divisions of emotions?"
 
 "Oh, I like how that sounds."
 
-Listening to Kang Lim, Ha Baekyeon began to think of what to write for the exhibition preface and the planning concept.
+Hearing his words, ideas for the exhibition preface and planning concept started forming in Ha Baekyeon's mind.
 
-"Good thing I asked. I'll refer to your portfolio content and make sure to set it up well."
+"Indeed, I’m glad I asked. I will refer to your portfolio and set up the exhibition accordingly."
 
-"Thank you. So I just need to handle the transportation?"
+"Thank you. So, all I have to do is transport the paintings?"
 
-"Yes! Since you're here, let's have dinner together."
+"Yes! Since you're here, how about dinner together?"
 
 Kang Lim looked at his phone with a troubled expression.
 
-It was a bit tight to get to Pyeongchang-dong.
+It would be tight to make it to Pyeongchang-dong in time.
 
-"Ah, I'm sorry. I have an appointment for dinner today."
+"Oh, I’m sorry. I already have plans for dinner tonight."
 
-"Oh, that's unfortunate. Then let's talk again when the paintings are transported."
+"Ah, that's unfortunate. Let's talk more when we transport the paintings next time."
 
 "Yes, thank you. See you then."
 
-Bidding farewell, Kang Lim stood up.
+Kang Lim said goodbye and stood up.
 
 Ha Baekyeon could only watch as he left the gallery.
 
-Seeing the broad shoulders of a twenty-year-old student, she wondered how much he could grow in the future.
+For a 20-year-old, his shoulders appeared remarkably broad. How much more could he grow in the future?
 
-She felt a bit of regret at not being able to keep such an artist.
+She felt a slight regret at not being able to keep such an artist.
 
 ----
 
