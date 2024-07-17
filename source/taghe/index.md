@@ -98,9 +98,19 @@ date: 2024-07-06 09:44:44
 [Chapter 88](/taghe/taghe-88/)
 [Chapter 89](/taghe/taghe-89/)
 [Chapter 90](/taghe/taghe-90/)
+[Chapter 91](/taghe/taghe-91/)
+[Chapter 92](/taghe/taghe-92/)
+[Chapter 93](/taghe/taghe-93/)
+[Chapter 94](/taghe/taghe-94/)
+[Chapter 95](/taghe/taghe-95/)
+[Chapter 96](/taghe/taghe-96/)
+[Chapter 97](/taghe/taghe-97/)
+[Chapter 98](/taghe/taghe-98/)
+[Chapter 99](/taghe/taghe-99/)
+[Chapter 100](/taghe/taghe-100/)
 
 
-<!-- for i in {51..61}; do echo "[Chapter $i](/taghe/taghe-$i/)"; done -->
+<!-- for i in {91..100}; do echo "[Chapter $i](/taghe/taghe-$i/)"; done -->
 ----
 
 ## Help continue this series:
