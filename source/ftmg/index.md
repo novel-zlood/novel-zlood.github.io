@@ -278,6 +278,10 @@ date: 2024-07-03 11:17:39
 [Chapter 269](/ftmg/269/)
 [Chapter 270](/ftmg/270/)
 
+## Update Logs
+
+- 2024-07-19: Regenerate chapters 98-150 due to a script error that left the last line of each chapter untranslated. All FTMG chapters will eventually be regenerated.
+
 ----
 
 [<img src="/kofi/kofi_button_blue.png">](https://ko-fi.com/zlood)
