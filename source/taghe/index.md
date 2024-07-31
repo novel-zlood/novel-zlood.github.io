@@ -120,6 +120,11 @@ date: 2024-07-06 09:44:44
 [Chapter 110](/taghe/taghe-110/)
 
 
+## Update Logs
+
+- 2024-07-31: Posted the missing chapter 80.
+
+
 <!-- for i in {91..100}; do echo "[Chapter $i](/taghe/taghe-$i/)"; done -->
 ----
 
