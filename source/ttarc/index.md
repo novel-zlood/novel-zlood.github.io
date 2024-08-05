@@ -38,6 +38,16 @@ date: 2024-08-05 11:10:54
 [Chapter 28](/ttarc/ttarc-28/)
 [Chapter 29](/ttarc/ttarc-29/)
 [Chapter 30](/ttarc/ttarc-30/)
+[Chapter 31](/ttarc/ttarc-31/)
+[Chapter 32](/ttarc/ttarc-32/)
+[Chapter 33](/ttarc/ttarc-33/)
+[Chapter 34](/ttarc/ttarc-34/)
+[Chapter 35](/ttarc/ttarc-35/)
+[Chapter 36](/ttarc/ttarc-36/)
+[Chapter 37](/ttarc/ttarc-37/)
+[Chapter 38](/ttarc/ttarc-38/)
+[Chapter 39](/ttarc/ttarc-39/)
+[Chapter 40](/ttarc/ttarc-40/)
 
 <!-- for i in {91..100}; do echo "[Chapter $i](/ttarc/ttarc-$i/)"; done -->
 
