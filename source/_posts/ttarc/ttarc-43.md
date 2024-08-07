@@ -5,271 +5,255 @@ tags:
 ---
 
 
-Episode 42: Samcheong Park
+## Episode 43: Date
 
-Deok-gu handed over a warm cup of tea and said, 
+Jin Seon-ah, who had gotten out of the car, whispered softly.
 
-“It’s barley tea. Made from roasted barley.”
+"Choi Driver, you can get off early today."
 
-“Thank you. It has a nice, rich aroma.”
+"No, Miss. If I do that, I'll be in big trouble. How will you get back this late? Chairman Jin specifically asked me to take you home safely."
 
-“Thank you so much for your help. Thanks to you, we saved a lot of time. By the way, have you done this kind of work often, sir? You seem very skilled.”
+"It's okay. I'll take care of myself, and I'll make sure it's not your responsibility, so don't worry. You should go home early today and see your family. This is a rare secure area, so there's nothing to worry about."
 
-“Haha, this is my first time. But have you both had dinner yet?”
+At Jin Seon-ah's words, Driver Choi glanced around. Samcheong Park, located near the Blue House, was a zone where no delinquents or suspicious people could approach.
 
-“Not yet. We spent the whole day catching Childeuk and cleaning the coop.”
+Moreover, Driver Choi's direct superior was Jin Seon-ah, not Jin Tae-chun.
 
-“If you haven’t eaten, why don't you join me? Actually, I brought some snacks to share, but they’ve already gone cold… I was about to have a bite myself.”
+Thinking it was better not to go against the young lady's wishes, Driver Choi complied.
 
-Deok-gu politely declined, waving his hand.
+"Understood, Miss. I'll trust your words and leave."
 
-“No, you’ve helped us so much already. I’m fine, really.”
+Once the Cadillac driven by Driver Choi disappeared, Jin Seon-ah took out a hand mirror and adjusted her clothes.
 
-“Why refuse when the boss is offering? Let’s just go.”
+After a while, pretending not to care, she walked towards Lee Chang-jin with clicking footsteps.
 
-“Yes, let’s go together.”
+Lee Chang-jin, who was half-leaning against a streetlamp, waved his hand as if he was glad to see her.
 
-Urged by Bok-soon, Deok-gu hesitated before agreeing.
+"You've come, Seon-ah? The clothes look good on you."
 
-“Then, if it’s not too much trouble… I feel it’s too forward since this is our first meeting.”
+"Thank you. It's the first time I'm seeing you in casual clothes after always seeing you in suits. Did you read some fashion magazine or something?"
 
-“Come on, hyung, don’t feel burdened. It’s just a meal, right? You can treat me next time.”
+He wore a matching shirt and pants, with a Parker pen as a point on his shirt pocket. The watch on his right hand and his slightly styled hair made him look sophisticated.
 
-“Then, I’ll join you without any shame.”
+Lee Chang-jin smiled, showing his teeth, at Jin Seon-ah's compliment.
 
-“How about Uijeongbu Army Stew? There’s a pretty famous place nearby.”
+"Meeting a lady, I had to put in some effort. You look great as well. But where's your car? Didn't you bring it?"
 
-“Why be picky when you’re getting a free meal? Uijeongbu Army Stew sounds great. Let’s go!”
+Looking around, Lee Chang-jin asked with a nonchalant tone.
 
-The group, having changed out of their work clothes, got into the GM Record. Lee Chang-jin headed to a well-known Uijeongbu Army Stew restaurant in Seodaemun-gu.
+"I was tired from a lot of work today, so I just took a taxi. But really, how could you contact me just an hour before? I'm a woman too, you know. I need time to prepare."
 
-Since it was dinner time, the place was bustling. Once seated, Lee Chang-jin ordered.
+"Oh, I'm sorry. I was so eager to see you that I didn't think that far."
 
-“Add ramen noodles and rice cakes, and give us five servings. Oh, and three orders of rolled omelette.”
+"Smooth talker. But what's that in your hand?"
 
-Koreans began eating a dish named “Army Stew” in earnest starting in the 1970s. Before then, the dish existed but wasn’t specifically named.
+"Oh, I got this thinking of you. I hope you like it."
 
-The name “Army Stew” came into use in the '70s when domestic ham and sausages started being added to the stew. With the development of the meat processing industry, affordable and long-lasting canned ham became available, making the dish more familiar and common.
+What Lee Chang-jin was holding was an Hermes Kelly Bag made of box calf leather in brown color. The black and gold colored bag with metal accents was classic, sleek, and felt smooth to the touch. Trying it on her shoulder, she asked with a blush.
 
-About ten minutes later, a large pot of Army Stew was brought out. It was filled with salami, spam, tofu, onions, seasoned ground meat, and canned beans, along with a generous amount of vegetables like green onions and crown daisies on one side of the pot. A slice of cheese was placed on top of the cooked ramen.
+"Oh my, such good taste. How did you get this?"
 
-“Wow, this is a generous portion.”
+"Oh, I have some connections. I gathered some information and did some legwork in advance. I was lucky. It suits you well."
 
-Maybe it was because they hadn’t eaten since lunch, but the sight of the bubbling Army Stew made their mouths water.
+Jin Seon-ah looked at Lee Chang-jin anew. Such luxury items could only be custom-ordered in advance, not something you could simply buy with money. In fact, this item was something Lee Chang-jin had his eye on before going on a business trip and had requested through acquaintances at the Mannheim headquarters in Germany.
 
-The curly-haired lady who brought the pot winked at them.
+Fortunately, it was finished while he was staying in Germany, but the shipping and customs alone cost more than double. However, seeing Jin Seon-ah's beaming smile made all the effort worthwhile.
 
-“Young man, you’re handsome, so I added extra sausages for you.”
+Feeling good, Jin Seon-ah extended her hand. At Lee Chang-jin's puzzled gaze, she spoke nonchalantly.
 
-“Thank you, auntie. You look like a newlywed yourself.”
+"Come on. If you call a lady out at night, you should escort her. Isn't that right, Chang-jin?"
 
-“Oh, you. Don’t just say sweet things, come by often, show your face.”
+"Of course. Allow me to escort you."
 
-Though she said that, she didn’t seem to dislike it at all.
+Kissing her hand, Lee Chang-jin naturally took her hand.
 
-A little later, the server lady came and ladled out portions of the stew, saying,
+At the entrance to Samcheong Park, the name '三淸公園' was beautifully engraved on a stone. As they entered the park, they were enveloped by fresh air. Stately pine trees grew here and there, and the subtle scent of pine wafted in the air. The mountain path was well-maintained with wooden steps.
 
-“The rice cakes and ramen are cooked, give it a try.”
+The incline wasn't steep, making it comfortable to walk even in high heels.
 
-Dong-geun blew on his ramen and slurped it up. Deok-gu and Bok-soon, who seemed quite hungry, kept refilling their plates with stew.
+After walking for about 30 minutes, Jin Seon-ah seemed slightly out of breath. Seeing this, Lee Chang-jin spoke softly out of concern.
 
-“Ma’am, can we get more dongchimi broth here!”
+"Should I carry you if you're tired, Seon-ah?"
 
-“Yes, coming right up!”
+"Hmph, no need for that. I haven't given you that permission yet. Just hold my bag for a moment."
 
-After downing a bowl of broth, Bok-soon smacked his lips.
+Handing over her bag, she took off her shoes and changed the high heels to a lower heel.
 
-“Wow, this really hits the spot. The broth is so spicy and refreshing, it would be great for a hangover.”
+After changing the heels to smaller ones, she looked much more comfortable.
 
-“This place is quite famous. By the way, I noticed earlier that you two seem very adept at handling chickens. Did you both go to agricultural high schools?”
+"They can be used as flats. I should have worn them like this from the start."
 
-“Yes, I’m from Suwon. My hometown is in Chungbuk, though. My cousin runs a chicken farm, so I helped out there during vacations.”
+Her high heels had now become low-heeled flats. Feeling much lighter, she pulled his hand.
 
-“You have quite some experience. That’s impressive.”
+"Come on, hurry up! We'll be out here all night."
 
-Dong-geun chimed in.
+When they reached the top of the hill, it was quiet and peaceful. Couples were sitting on the stone walls along the dark paths, playing push and pull games.
 
-“Haha, compared to Deok-gu hyung here, I’m nothing. This hyung even ran his own chicken farm. He raised up to 20,000 chickens!”
+In the serene park, the sound of insects and the glow of fireflies could be seen.
 
-“Oh, that’s quite a serious operation.”
+Seeing this, Jin Seon-ah exclaimed like a child.
 
-During a time when most farms were small-scale, such a large-scale farming operation was rare.
+"Wow, so pretty. I didn't know we had such places in the middle of the city."
 
-At Lee Chang-jin’s admiration, Deok-gu shyly scratched his head.
+"Haha, this is one of the few dating spots in Seoul. It's great for walking and not being disturbed by others."
 
-“It’s not that great. I started big without much planning and ended up failing. A sudden cold snap and strong wind blew away the coop’s tent, and to make matters worse, the oil shock hit. The chickens died en masse due to poor heating, and I lost everything. I didn’t even break even. After failing, I realized I had started the business too recklessly. Now, I’m learning the basics to avoid failing again.”
+She pouted her lips and teasingly asked.
 
-“Well, they say failure is the mother of success. Do you need anything for raising chickens? If I can help, I’d be happy to.”
+"You talk like someone who's been here often. Honestly, who did you come here with before?"
 
-Deok-gu shrugged at Lee Chang-jin’s offer.
+"Haha, I attended Korea High School just down there, so I know the area well. Residents sometimes come here to rest. Actually, this is my first time coming here with a lady."
 
-“Discomfort is part of daily life. Who starts with everything perfectly in place? This place is well-ventilated and has a consistent humidity level, so it’s quite comfortable. The problem is after summer.”
+It wasn't a lie. Even in his previous life, he hadn't been here with anyone else. Looking up at the particularly clear sky and the sparkling Big Dipper, she lightly brushed back her disheveled hair.
 
-“After summer, you mean from autumn onwards?”
+"Fine, I'll believe you. By the way, how was your business trip to Germany?"
 
-“This warehouse isn’t insulated. It’s cool and nice in the summer, but winter is a different story. It would cost a lot to remodel the warehouse into a proper chicken coop, and the owner wouldn’t easily allow it.”
+"It was hectic. Preparing for the exhibition was no joke. It almost killed me."
 
-“Hmmm… that’s a significant issue.”
+At Lee Chang-jin's humorous comment, Jin Seon-ah's eyes lit up as she playfully asked again.
 
-“Actually, the chickens we raise aren’t proper commercial chickens. The reason we breed them with Childeuk is that he’s the only pedigree rooster left. Even when everything else was lost, I didn’t sell him. But now he’s getting old, and I don’t know what will happen next.”
+"Oh, was it that bad? But didn't you get to enjoy the sights? There must have been many visitors. Weren't the German girls pretty?"
 
-The broilers we buy in the market are produced through three stages: Grandparent Stock (GPS) → Parent Stock (PS) → Broilers. The grandparent stock is entirely imported, making it expensive.
+"Unfortunately, none were as beautiful as you, Seon-ah. Ah, there was an interesting exhibit. They had a submarine from the US set up. They even recreated the submarine sounds. You know, the ping ping sounds."
 
-A grandparent stock chick costs about a month's salary for a production worker, so it was understandable why Deok-gu cherished Childeuk so much. Dong-geun, however, nonchalantly commented,
+"Oh really? That's amazing. Do they do that at exhibitions?"
 
-“Hyungnim, you worry too much. How long has it been since we started, and you’re already worrying about the future? We’ll think about that when the time comes. For now, let’s focus on doing what we need to do.”
+"Of course. They gave out souvenirs and had traditional performances during breaks. Oh, we also had a traditional Korean performance. The farmers' dance and the spinning hat dance were very well received. It saved us."
 
-“Haha, you’re right.”
+"Wow, that must have been really something. I thought a metal exhibition would be stiff and boring, but it wasn't. Exhibitions seem fun. Don't they do that in Korea?"
 
-During the meal, Lee Chang-jin was given a brief overview of the poultry business. Excluding the laying hens, broilers are slaughtered once they reach the desired weight, and then sold either whole or in parts, used for animal feed, or further processed for the market.
+"Not yet. Preparing for an exhibition is no easy task. To do it properly, you need exhibition space, infrastructure, and publicity. Korea doesn't have a dedicated organization for exhibitions yet. But things are gradually improving, so we have to wait and see."
 
-“There’s more to the poultry business than just selling chickens. Chickens are animals with no waste. Chicken manure is processed into chemical fertilizer, and the feathers are collected and used to make winter jackets.”
+"That's a shame. If there's such an event next time, let's go together. Don't leave me out."
 
-“Hmmm, the uses are more diverse than I thought.”
+"Alright. I'll get the tickets in advance next time."
 
-“That’s why I’m asking, Mr. Lee, do you have any interest in the poultry industry?”
+The park path, with its picturesque atmosphere, made it easy to believe the legend that couples who walk in Samcheong Park at night end up getting married. The sound of water trickling from a nearby small valley could be heard.
 
-“Poultry? Haha, well, I’m an engineer at heart, so I haven’t thought deeply about it…”
+As they walked slowly, they eventually exited the park and entered the path leading to the Board of Audit and Inspection.
 
-“Then how about considering it now? Actually, now is a good time to start a poultry business. The income tax law has been revised, so if you start livestock farming, you get a seven-year income tax exemption. Since last year, several associations have merged, making conditions much better.”
+Walking along the quaint stone wall path, they reached the end of the trail, and Gyeongbokgung Palace appeared right in front of them.
 
-Lee Chang-jin cautiously countered,
+After touring the old pavilion, they walked another block, and there appeared a traditional tea house built in a hanok style next to a hand-made comb shop.
 
-“Hmmm, that contradicts what I’ve been reading in the papers. They say feed prices have doubled since the oil shock of the latter half of '73.”
+"My legs are tired. Shall we rest there?"
 
-“While the number of chickens has temporarily decreased, it’s a short-term phenomenon. Supply is still far below demand. Egg and chicken prices have been steadily rising. Statistics show that compared to 1961, domestic chicken consumption has more than doubled, and egg consumption has increased by 2.5 times.”
+"Oh, a tea house?"
 
-Lee Chang-jin questioned again,
+"Yes. It's quite famous around here. I sometimes drop by when I visit a boutique nearby. It's a pleasant place. They are known for their flower tea and Sipjeondaebotang."
 
-“There are substitutes like pork and beef, aren’t there? Why are you so sure this will be successful?”
+Climbing the stairs with the subtle scent of tea, they entered through the gate. Under the soft lighting, people were having conversations. Though there were no clear birdsongs like in a temple, the atmosphere exuded a cozy and warm old-world charm.
 
-“Pigs and cows cost much more to raise and have a lower turnover rate. Chickens can be shipped after about 70 days, whereas pigs take about six months, and cows take 27-29 months. It’s clear which one is more productive.”
+The well-used pillars and tables under the paper lamp shades were polished and shiny, and each room had its own elegant decor. The calm tones of the colors eased the mind.
 
-Listening to Deok-gu’s passionate explanation, Lee Chang-jin recalled the contents of the notebook he had seen earlier.
+Inside the tea room with its oriental decor, cushions were neatly arranged.
 
-Thanks to the selective breeding program that started in the U.S. in the 1940s, poultry productivity increased significantly.
+After taking a seat and waiting for a while, the hostess, dressed in a hanbok, brought out simple snacks of rice cakes and traditional sweets before taking their order.
 
-As a result, improved breeds of chickens emerged, leading to the current broiler chickens. With increased productivity in laying hens, both egg and chicken production and consumption have been on the rise. The number of chickens raised in Korea surged from 720,000 right after liberation to 23 million by 1973.
+"What would you like to drink?"
 
-“Chicken production varies by country. In the U.S. and Europe, people prefer breast meat, while in Asia, leg and thigh meat is more popular. Because preferences vary by region, the prices for different parts can vary, which is advantageous for exports.”
+Jin Seon-ah asked.
 
-“Haha, I understand. Thank you for the insightful information. It’s still too early for a serious discussion, but I’ll consider it positively when the time comes.”
+"Do you have any recommendations?"
 
-As they were parting ways after the meal, Deok-gu bowed his head and said,
+"I recommend the Persian Silk Tree flower tea. It's newly dried and is great for calming the mind and aiding sleep. It clears your head when you feel stuffy."
 
-“Thanks for the meal, Mr. Lee. I know you’re busy, so thank you for taking the time.”
+"Then I'll have that."
 
-“No, it was a beneficial time for me as well.”
+After ordering, a tea set with a hot water kettle was brought out.
 
-On the way back, Dong-geun spoke hesitantly.
+As they waited leisurely for the flower tea to steep in the warm water, they both felt relaxed.
 
-“I’m sorry, hyungnim. Deok-gu hyung talks a lot about business when he drinks… He’s not a bad person, so I hope you weren’t too offended.”
+Holding the elegant teacup, she knelt and gently stirred to savor the aroma. Her graceful demeanor was captivating. As he joined her in savoring the tea, Lee Chang-jin couldn't help but be drawn to her.
 
-“No, I liked that he has clear dreams. Actually, Dong-geun, don’t you have similar thoughts?”
+The tea had a soft, sweet taste, likely from being soaked in sugar or honey.
 
-“Well, yes, but it’s still far off. I need to save up capital first. I can’t just dive in without any preparation.”
+"By the way, Seon-ah, you seem to have lost some weight. Are you on a diet?"
 
-“I noticed you’ve been preparing quite diligently. I didn’t realize you were working so hard behind the scenes.”
+"It's not that. I've been under a lot of stress lately. Actually, there's been a troublesome issue."
 
-“No way… I still have a long way to go. Compared to you, I’m just a firefly next to the moon.”
+"What's the matter? Tell me about it."
 
-“No, you’re doing great. By the way, when are the results of the chick sexing exam coming out?”
+Curious, Lee Chang-jin asked, and after a moment of hesitation, she opened up.
 
-“About two weeks from now.”
+"Actually, it's because of the flower farm. There's a large flower farm in Maljukgeori, but last winter's heavy snow killed all the orchids and flowers. They couldn't cover the fuel costs due to the oil shock. The greenhouse operator even fled in the night. So there's now a 10,000-pyeong property up for auction, but it's in a development-restricted area, making the auction difficult."
 
-“That’s perfect then. It might be tight, but how about drafting a business plan by then? If it’s viable, I might consider investing.”
+Lee Chang-jin tilted his head.
 
-Dong-geun’s eyes widened in surprise.
+"But an auction isn't impossible, is it? The speculation restrictions are temporary, and over time, the restrictions might be lifted, causing the land prices to soar. That's quite odd. Is there a specific problem?"
 
-“Really, hyungnim? Are you serious?”
+In reality, around 1969, the land in the Maljukgeori area had soared by over 80%. Having tasted profit once, people wouldn't just pass it by.
 
-“Haha, have you ever seen me make empty promises? But let’s discuss it after you pass the sexing exam. Prepare thoroughly as if you’re briefing an investor. If the plan is sloppy, I’ll reject it immediately, so don’t slack off.”
+Curious about the reason, Lee Chang-jin asked, and Jin Seon-ah sighed.
 
-“Of course, hyungnim. I’ll give it my best.”
+"Actually, there are about 10 households living collectively in that area. They were living there even before the flower farm went bankrupt, and after it went bankrupt, they moved into the greenhouses, converting them into homes. It's causing a huge headache."
 
-As soon as he got out of the car, Dong-geun hurried to his room, causing Lee Chang-jin to chuckle.
+"Hmm. That's a tricky situation. Can't they be persuaded to move?"
 
-“When did he grow up so much?”
+"Of course, we've tried. We even offered to help them register as basic livelihood recipients and provided relocation funds, but they refused to leave. They said they'd rather die than move. It's a complete deadlock."
 
-After changing clothes, he saw that it was 7:30. He suddenly remembered someone he had forgotten about.
+"Have you inquired with the city or district office?"
 
-“Oh no, I forgot to call…”
+"We've tried all possible means. We called the police, put up eviction notices, even used eviction services. But it's all temporary. They sneak back in and take over again, so the city hall has given up. They said there's no way to help because they have nowhere else to go. Whenever someone comes to see the property, they shake their heads and leave."
 
-Lee Chang-jin dialed Jin Seon-ah’s number.
+Since the Jeon Tae-il incident, issues with workers and evictees had escalated from mere social phenomena to national concerns. Given the times, any threats of self-immolation would undoubtedly attract media attention, which was a big burden even for Jin Tae-chun.
 
-After a few rings, a familiar voice answered.
+"So, what's the current auction price?"
 
-“You finally called, Mr. Lee Chang-jin. How was your trip to Germany?”
+"After three failed auctions, it's down to about 40% of the market value. If it fails again, it'll be around 20%. Just thinking about it makes me angry. Even with sufficient relocation funds, they refuse to leave. I can't understand their mentality."
 
-Her slightly prickly tone made Lee Chang-jin smile as he replied,
+Fanning herself in frustration, Jin Seon-ah gulped down her tea. After listening quietly, Lee Chang-jin asked again.
 
-“Yes, it went well, thanks to you. Seon-ah, it’s a bit late, but can you come out for a bit?”
+"If the residents are determined to stay, is there a way to gain their cooperation?"
 
-“Now? Where to?”
+"Huh? What do you mean?"
 
-“Hmm, how about the park behind the Board of Audit and Inspection in Samcheong-dong? How about in an hour?”
+"Actually, my cousin works in poultry farming. How about setting up a poultry farm there? I'm not interested in short-term profits from redevelopment, so giving up a couple of greenhouses shouldn't be an issue. If housing is the fundamental problem, we could set up some containers."
 
-“Samcheong Park? Hmm… it’s a bit late…”
+At his suggestion, Jin Seon-ah replied with concern.
 
-“Oh, I see… Shall we meet some other time then?”
+"Is it that simple? I don't mind as long as I recover my money, but I wouldn't recommend it. It would be quite a burden for you, Chang-jin."
 
-“No, no, it’s fine. I’ll see you then.”
+"I'm not a philanthropist. If they make unreasonable demands, I can't comply. However, we haven't had a sincere conversation with them, have we? There seems to be room for negotiation."
 
-“Alright, let’s meet at 8:30 at the entrance to Samcheong Park.”
+"Hmm... Do you think so? If things go smoothly, it could be a clean solution, but the residents are very stubborn..."
 
-After hanging up, Lee Chang-jin took a shower and prepared his clothes, while Jin Seon-ah was bustling around.
+"Well, we'll know once we try. Could you arrange a meeting with the residents? There's no rush, so take your time."
 
-“Oh my, what should I do… He finally called.”
+"Alright, I'll look into it gradually. Talking with you, Chang-jin, makes me feel a bit relieved."
 
-“Who?”
+Seeing her brighter expression, Lee Chang-jin smiled faintly. As they continued to enjoy their tea and snacks, a stranger approached them.
 
-“Chang-jin. Oh my, I haven’t even showered yet…”
+"Well, well, who do we have here? Seon-ah? Isn't that you?"
 
-“Chang-jin? The one who lent you money?”
+"Teacher, what brings you here...?"
 
-“Yes, that’s right. Auntie, I have an appointment at 8:30. What should I wear?”
+Startled, Jin Seon-ah looked back.
 
-Jin Seon-ah, standing in front of her full-length mirror, held up different outfits for comparison, making the housekeeper laugh.
+There stood a man in a white coat, smiling brightly.
 
-Her usual cool demeanor was gone, replaced by excitement. The housekeeper quickly calmed her down.
+"Oh, I came by a nearby boutique and decided to have a cup of tea. But what about you? I haven't seen you around lately. The clothes you ordered last time are ready. How could you not come? I got tired of waiting."
 
-“Alright, miss, don’t get too excited. You still have plenty of time. First, wash your face. We need to do your makeup.”
+"Oh, I'm sorry. I've been busy lately."
 
-“Oh, right, makeup. And my hair, it’s all flat.”
+Lee Chang-jin eyed the man with a mix of curiosity and wariness.
 
-“Don’t worry. You’re naturally beautiful. Men like straight hair too. I’ll pick out your outfit, so go wash up.”
+Noticing the stranger, the man in the white coat asked Jin Seon-ah.
 
-“Okay. I’ll leave it to you.”
+"Oh, you have company. Who's this handsome gentleman? Your boyfriend?"
 
-After a quick shower, Jin Seon-ah sat down, and the housekeeper carefully did her makeup. Jin Seon-ah chatted non-stop during the process.
+"Oh, let me introduce you. This is Lee Chang-jin. He's a young entrepreneur running Daese Industries in Seodaemun-gu. He's very promising."
 
-“It’s been a while since I’ve seen him. What should I say? I have no idea.”
+"Nice to meet you. I'm Lee Chang-jin."
 
-“Don’t be too anxious. Just be yourself. Ask him about his trip to Germany. But don’t bombard him with too many questions; he might be tired.”
+"This is Mr. Kim Bong-soo, a famous fashion designer. He's the first male fashion designer in Korea. Personally, he handles all my outfits."
 
-“Got it. I’ll remember that. Anything else I should be careful about?”
+"Oh, don't call me that. Just call me Kim Maestro."
 
-The housekeeper, while working on her makeup, playfully pinched her cheek.
+Winking, the man extended his hand for a handshake. Lee Chang-jin was surprised. Kim Maestro?
 
-“There’s a lot to be careful about. Don’t be too obvious with your excitement. Men don’t feed caught fish. There, it’s done. I gave your eyes a highlight since it’s evening.”
+So this was the pioneer of Korean fashion and the patriarch of the fashion industry, Kim Maestro. Lee Chang-jin looked at him anew, and Kim Bong-soo smiled.
 
-Her eyes, highlighted with pigment, looked even more captivating. Jin Seon-ah checked herself in a hand mirror and nodded in satisfaction.
-
-“Thank you. Your skills are the best, as always.”
-
-Wearing a purple tank dress and a gold bracelet, she looked radiant. The housekeeper, after giving her a light kiss on the cheek, reminded her again.
-
-“Have a great time, miss. Don’t follow him anywhere strange. Remember, all men are wolves. Be cautious.”
-
-“Got it, auntie. I’ll be careful.”
-
-With her preparations complete, Jin Seon-ah headed to Samcheong-dong.
-
-Driving past Gyeongbokgung and up a mountain road for about 2 kilometers brought her to a park nestled under a dense forest. Known among couples as a dating spot, it was a well-kept secret.
-
-Arriving just in time, Jin Seon-ah stepped out of her car and saw Lee Chang-jin waiting under a dim streetlight, dressed in jeans and a light blue linen shirt.
-
-- To be continued in episode 43 -
+- To be continued in Episode 44 -
 
 
 ----
