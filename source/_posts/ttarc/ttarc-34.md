@@ -13,11 +13,11 @@ tags:
 
 "Oh, really? Then, thank you."
 
-At those words, Shin Elder showed a welcoming expression. In truth, though he didn't say it, it wasn't easy to cover the food expenses because Yongpal had a huge appetite.
+At those words, old man Shin showed a welcoming expression. In truth, though he didn't say it, it wasn't easy to cover the food expenses because Yongpal had a huge appetite.
 
 Looking at the menu, Lee Chang-jin spoke confidently.
 
-"Alright, shall we start with three servings of makchang (pork intestines) and two servings of gopchang (beef intestines)? Or is that too little? Shin Elder, you usually eat about three servings, right?"
+"Alright, shall we start with three servings of makchang (pork intestines) and two servings of gopchang (beef intestines)? Or is that too little? old man Shin, you usually eat about three servings, right?"
 
 "Of course. That little won't do. Look at this guy's size. He eats like seven people in one meal. We need at least ten servings."
 
@@ -25,7 +25,7 @@ Looking at the menu, Lee Chang-jin spoke confidently.
 
 After a while, various side dishes like peppers, garlic, chives, sweet onions, and dipping sauces were brought out. Soon, the preheated makchang and gopchang arrived, piled high in a pot. As the gopchang started sizzling on the grill, the savory smell filled the air.
 
-Yongpal, unable to resist the smell from the grill with the white kimchi, swallowed his saliva and picked up his chopsticks. Seeing this, Shin Elder smacked his hand.
+Yongpal, unable to resist the smell from the grill with the white kimchi, swallowed his saliva and picked up his chopsticks. Seeing this, old man Shin smacked his hand.
 
 "Ouch! Why are you hitting me?"
 
@@ -35,9 +35,9 @@ Yongpal, unable to resist the smell from the grill with the white kimchi, swallo
 
 Though Yongpal pouted in dissatisfaction, he soon fell silent at the sizzling sound of the meat. When the yanggimori (beef tripe) and yeomtong (beef heart) were done, the delicious aroma wafted from the golden-brown surface.
 
-While Yongpal was drooling, Shin Elder placed the well-cooked gopchang on the white kimchi and took the first bite.
+While Yongpal was drooling, old man Shin placed the well-cooked gopchang on the white kimchi and took the first bite.
 
-The fresh juice from the well-cooked meat and the crispy yet chewy texture was amazing. Unable to hold back, Shin Elder exclaimed in delight.
+The fresh juice from the well-cooked meat and the crispy yet chewy texture was amazing. Unable to hold back, old man Shin exclaimed in delight.
 
 "Wow, thanks to Chang-jin, we're feasting today. We can't miss out on alcohol in a place like this. Owner, two more bottles of soju!"
 
@@ -45,7 +45,7 @@ The fresh juice from the well-cooked meat and the crispy yet chewy texture was a
 
 Thinking it had been a while since he had a big spender, the owner quickly brought over two bottles of soju.
 
-Shin Elder, already having a drink, offered a glass to Lee Chang-jin.
+old man Shin, already having a drink, offered a glass to Lee Chang-jin.
 
 "This is the life... Come on, Chang-jin, have a drink."
 
@@ -57,7 +57,7 @@ Lee Chang-jin politely declined and filled the empty glass.
 
 "Haha, it's too early to talk about success. We're just getting started. How about you, Elder? Are you getting enough work these days?"
 
-Shin Elder, who had just emptied his glass, replied.
+old man Shin, who had just emptied his glass, replied.
 
 "Well, more or less. It's not like the old days. These days, many places mass-produce metal goods, so the orders for farming tools have dropped a lot. The factory-made quality has also improved. But I'm doing okay. Recently, there's been an increase in orders for making large nails for construction companies."
 
@@ -77,7 +77,7 @@ Given the industry's sensitivity to economic fluctuations, it was crucial to pla
 
 For Lee Chang-jin, who was now interested in the construction sector, this was valuable information.
 
-As Lee Chang-jin occasionally chimed in agreement with Shin Elder, Yongpal continued to eat without paying much attention to their conversation. Before they knew it, over half of the meat, which had been piled high on the table, was gone. Annoyed by Yongpal's rapid eating, Shin Elder tapped the table with his chopsticks.
+As Lee Chang-jin occasionally chimed in agreement with old man Shin, Yongpal continued to eat without paying much attention to their conversation. Before they knew it, over half of the meat, which had been piled high on the table, was gone. Annoyed by Yongpal's rapid eating, old man Shin tapped the table with his chopsticks.
 
 "Hey, you! Pay attention when the elders are talking. Can't you see we're discussing something important? You need to know the industry's trends if you're going to run a workshop in the future."
 
@@ -87,7 +87,7 @@ As Lee Chang-jin occasionally chimed in agreement with Shin Elder, Yongpal conti
 
 "If you treated me more often, would I be like this? Treat me more and then talk."
 
-Shin Elder snorted in disbelief.
+old man Shin snorted in disbelief.
 
 "You eat at least five to seven servings per meal. Who can afford that? And didn't you sneak a box of ramen from the warehouse last night?"
 
@@ -97,7 +97,7 @@ Yongpal, with wide eyes, replied.
 
 "How could I not know? It's written all over your face. You can't hide anything. You're like an open book. I can't even hire a part-timer because of you."
 
-As Shin Elder sighed in frustration, Yongpal grumbled with a sullen expression.
+As old man Shin sighed in frustration, Yongpal grumbled with a sullen expression.
 
 "But I work hard, don't I? I do the work of at least three people. And I'm okay with a new hire. I'd welcome a junior."
 
@@ -109,7 +109,7 @@ As Shin Elder sighed in frustration, Yongpal grumbled with a sullen expression.
 
 "Ugh, why are you being so stingy about food?"
 
-Yongpal made a sad face as Shin Elder tried to take his plate.
+Yongpal made a sad face as old man Shin tried to take his plate.
 
 Watching the two bicker, Lee Chang-jin smiled softly.
 
@@ -133,7 +133,7 @@ He even finished three servings of spicy bean sprout soup and fried rice, only s
 
 "Ugh, this rascal. Always has the last word."
 
-Shin Elder, chuckling, turned to Lee Chang-jin.
+old man Shin, chuckling, turned to Lee Chang-jin.
 
 "Now that we've finished eating, let's get down to business. Why did you come?"
 
@@ -141,13 +141,13 @@ Shin Elder, chuckling, turned to Lee Chang-jin.
 
 Lee Chang-jin handed over a picture he had brought from Anyang Steel.
 
-Shin Elder showed interest in the vacuum dryer in the photo.
+old man Shin showed interest in the vacuum dryer in the photo.
 
 "What's this? I've never seen it before."
 
 "It's a machine for drying cables. I need it made, and I need your expertise. I sketched out the design like a pressure cooker. The measurements and specifications seem complicated. Could you take a look?"
 
-As he alternated between the sketch and the photo, Shin Elder snorted in disbelief.
+As he alternated between the sketch and the photo, old man Shin snorted in disbelief.
 
 "Why make it so complicated? This is just a big safe, isn't it? Like a bank safe?"
 
@@ -173,7 +173,7 @@ It was the bank's safe located on the hotel's first floor. Despite the thousands
 
 "Well, I have the design drawings. Just need to adjust the size."
 
-Confident, Shin Elder replied.
+Confident, old man Shin replied.
 
 "Can you make it yourself, Elder?"
 
@@ -183,7 +183,7 @@ Confident, Shin Elder replied.
 
 "I have a mountain of work to catch up on. Do you know how long it will take to make this? By the time I'm done, I'll be out of work. Will you take responsibility if I lose my regular clients? Stop talking nonsense."
 
-Unmoved by Shin Elder's refusal, Lee Chang-jin grew anxious.
+Unmoved by old man Shin's refusal, Lee Chang-jin grew anxious.
 
 "I can compensate you for the lost orders, can't I?"
 
@@ -193,7 +193,7 @@ Unmoved by Shin Elder's refusal, Lee Chang-jin grew anxious.
 
 "Well, you'd have to cover my and Yongpal's six months' wages. Otherwise, I can't do it."
 
-Seeing Shin Elder's smugness, Lee Chang-jin smiled meaningfully.
+Seeing old man Shin's smugness, Lee Chang-jin smiled meaningfully.
 
 "Oh, in that case, you can start today."
 
@@ -203,9 +203,9 @@ Lee Chang-jin immediately handed over a thick envelope filled with money.
 
 "Here's a year's salary in advance. Please take on this job."
 
-Seeing the cash, Shin Elder's eyes widened. It was the advance payment from Anyang Steel.
+Seeing the cash, old man Shin's eyes widened. It was the advance payment from Anyang Steel.
 
-With 15 checks inside, Shin Elder's eyes bulged like a fish.
+With 15 checks inside, old man Shin's eyes bulged like a fish.
 
 Noticing the amount, Yongpal blurted out.
 
@@ -213,7 +213,7 @@ Noticing the amount, Yongpal blurted out.
 
 "Shut up. Why are you ruining the moment? Ahem. So, when do you need it done?"
 
-Suddenly changing his attitude, Shin Elder asked politely.
+Suddenly changing his attitude, old man Shin asked politely.
 
 "The sooner, the better. You need to finish quickly and take on more work. Please help with the design first."
 
@@ -223,9 +223,9 @@ Suddenly changing his attitude, Shin Elder asked politely.
 
 "If you get paid, you work immediately. Let's hurry!"
 
-With Shin Elder's cooperation, Lee Chang-jin began designing the product based on the Shinil Bank safe's drawings.
+With old man Shin's cooperation, Lee Chang-jin began designing the product based on the Shinil Bank safe's drawings.
 
-The key to the vacuum dryer Lee Chang-jin wanted to make was its high fire resistance and airtightness. The dryer had to withstand temperatures up to 1500 degrees, similar to a safe. Showing a blueprint that looked like a refrigerator, Shin Elder explained.
+The key to the vacuum dryer Lee Chang-jin wanted to make was its high fire resistance and airtightness. The dryer had to withstand temperatures up to 1500 degrees, similar to a safe. Showing a blueprint that looked like a refrigerator, old man Shin explained.
 
 "The size is about 3m wide and 4-5m high, right? We can't make and transport this big a thing. We'll have to assemble it on-site. It'll be a double-walled structure like a safe. But first, we'll need to heat-treat the steel plates."
 

@@ -29,7 +29,7 @@ The Central Intelligence Agency handled a wide range of tasks back then. Beyond 
 
 "Ah, so it was thanks to you, Manager..."
 
-In fact, for people like Ku Chang-dong, Shin Elder, or Park Yong-pal, getting a visa without a reference wasn't easy. Even among Anyang Steel employees, there were those who had trouble getting a visa, making it a fairly stringent process at that time.
+In fact, for people like Ku Chang-dong, old man Shin, or Park Yong-pal, getting a visa without a reference wasn't easy. Even among Anyang Steel employees, there were those who had trouble getting a visa, making it a fairly stringent process at that time.
 
 However, for Seong Gong-cheol, who was the security audit head for top-tier overseas posts like the U.S., France, the U.K., and Germany, it was no big deal. Feeling the immense power of authority once again, Lee Chang-jin lowered his head.
 
@@ -219,7 +219,7 @@ However, Lee Chang-jin was a sales pro. He responded naturally as if he had anti
 
 "Of course. Let me show you a demonstration. Please wait a moment."
 
-Excusing himself, Lee Chang-jin went straight to Shin Elder.
+Excusing himself, Lee Chang-jin went straight to old man Shin.
 
 "Elder, can we adjust the pressure and temperature of our dryer?"
 
@@ -227,7 +227,7 @@ Excusing himself, Lee Chang-jin went straight to Shin Elder.
 
 "Those people seem to be executives from a French food company and are quite interested in our vacuum dryer. How about we do a quick demonstration with some fruits or vegetables?"
 
-Shin Elder responded with a hint of disbelief.
+old man Shin responded with a hint of disbelief.
 
 "Hey, you should have informed me in advance. How can you tell me this now?"
 
@@ -235,7 +235,7 @@ Shin Elder responded with a hint of disbelief.
 
 "It's possible... but I'm not sure how well it will work since we haven't tried it."
 
-Sensing Shin Elder's lack of confidence, Lee Chang-jin encouraged him.
+Sensing old man Shin's lack of confidence, Lee Chang-jin encouraged him.
 
 "Come on, you can do it. Just control the temperature so it doesn't burn. I'll bring some firm items that won't lose shape."
 

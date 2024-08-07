@@ -117,7 +117,7 @@ When Lee Chang-jin returned to Korea after finishing all his work, it was June, 
 
 * * *
 
-After a 13-hour long flight, they were greeted by the humid air upon returning to Korea. Though Seoul was filled with fine dust due to the exhaust fumes and factory smoke emitted 24/7 without dust collectors, the returning people's faces were very bright. Shin Elder knelt down and kissed the ground of his homeland in delight.
+After a 13-hour long flight, they were greeted by the humid air upon returning to Korea. Though Seoul was filled with fine dust due to the exhaust fumes and factory smoke emitted 24/7 without dust collectors, the returning people's faces were very bright. old man Shin knelt down and kissed the ground of his homeland in delight.
 
 "Finally, I'm stepping on the soil of my homeland."
 
@@ -129,7 +129,7 @@ After a 13-hour long flight, they were greeted by the humid air upon returning t
 
 "What are you talking about! Do you want to kill me twice? I'm never getting on a plane again!"
 
-At Shin Elder's vehement refusal, Yong-pal teased him with a mischievous expression.
+At old man Shin's vehement refusal, Yong-pal teased him with a mischievous expression.
 
 "Oh, come on. Elder, when you retire, let's go on a trip to Europe together. I'll take good care of you."
 
@@ -139,7 +139,7 @@ At Shin Elder's vehement refusal, Yong-pal teased him with a mischievous express
 
 "You brat, are you saying I should pay for the meal and the travel expenses? What about my retirement? Will you take responsibility for it? I can see right through you! Don't try any tricks. I'll sew that mouth of yours shut if you keep it up."
 
-As Shin Elder hit Yong-pal on the back, Yong-pal exaggerated his pain.
+As old man Shin hit Yong-pal on the back, Yong-pal exaggerated his pain.
 
 "Ouch, your hands are still strong. Elder, stop hitting people."
 
