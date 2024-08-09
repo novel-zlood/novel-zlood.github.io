@@ -78,8 +78,29 @@ date: 2024-08-05 11:10:54
 [Chapter 68](/ttarc/ttarc-68/)
 [Chapter 69](/ttarc/ttarc-69/)
 [Chapter 70](/ttarc/ttarc-70/)
+[Chapter 71](/ttarc/ttarc-71/)
+[Chapter 72](/ttarc/ttarc-72/)
+[Chapter 73](/ttarc/ttarc-73/)
+[Chapter 74](/ttarc/ttarc-74/)
+[Chapter 75](/ttarc/ttarc-75/)
+[Chapter 76](/ttarc/ttarc-76/)
+[Chapter 77](/ttarc/ttarc-77/)
+[Chapter 78](/ttarc/ttarc-78/)
+[Chapter 79](/ttarc/ttarc-79/)
+[Chapter 80](/ttarc/ttarc-80/)
+[Chapter 81](/ttarc/ttarc-81/)
+[Chapter 82](/ttarc/ttarc-82/)
+[Chapter 83](/ttarc/ttarc-83/)
+[Chapter 84](/ttarc/ttarc-84/)
+[Chapter 85](/ttarc/ttarc-85/)
+[Chapter 86](/ttarc/ttarc-86/)
+[Chapter 87](/ttarc/ttarc-87/)
+[Chapter 88](/ttarc/ttarc-88/)
+[Chapter 89](/ttarc/ttarc-89/)
+[Chapter 90](/ttarc/ttarc-90/)
 
-<!-- for i in {91..100}; do echo "[Chapter $i](/ttarc/ttarc-$i/)"; done -->
+<!-- for i in {71..90}; do echo "[Chapter $i](/ttarc/ttarc-$i/)"; done -->
+<!-- for i in {71..90}; do hexo new ttarc "ttarc-$i"; done -->
 
 ----
 
