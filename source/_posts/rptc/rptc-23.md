@@ -5,325 +5,323 @@ tags:
 ---
 
 
-"“The comments are going crazy, aren't they?”
+"“The comments are no joke, huh?"
 
-“Yeah, there are more comments from people who couldn't buy it.”
+"Right. There are more comments from people who couldn't buy it."
 
-“Everyone is writing that they hope the pre-orders increase.”
+"Everyone's writing that they hope the pre-orders increase."
 
-“You said more pre-orders are possible, right?”
+"We can make more pre-orders available, right?"
 
-“You mentioned it last time.”
+"You mentioned that last time."
 
-“But, CEO, can't my favorite hip-hop group 'Double' do it this way? I want to be the first to order their next album.”
+"But CEO, can't we do the same for the hip-hop group 'Double' that I like? I want to be the first to pre-order their next album."
 
-Eugene slipped in her personal desire at the end.
+The last comment was Yoo Jin-young slipping in a personal request.
 
-Feeling good, how could I not answer her?
+Since he was in a good mood, how could he not respond?
 
-“Of course, you can do it. But Han Se-jin works at their agency, so ask Han Se-jin for help.”
+"Of course, we can do that. But since Han Se-jin works for their agency, you should ask him."
 
 Han Se-jin was the only one not present at the moment.
 
-He had gone to 【Nine Sound】 to check the progress of the live album.
+He was currently at 【Nine Sound】 to check the progress of the live album.
 
-While at the celebration, excluding him, Lee Hyun-woo thought for a moment.
+Lee Hyun-woo was momentarily lost in thought amid the celebration, excluding Han Se-jin.
 
-‘This can only be considered luck.’
+'This must be a stroke of luck.'
 
-【Jungle】, which was already on a winning streak,
+Even though 【Jungle】 was already thriving,
 
-Now that it’s getting newspaper and TV coverage, it feels like some high-ranking official from the afterlife I saved before dying is looking after me, he even mused ‘fantastically’.
+With coverage in newspapers and broadcasts, it felt like a celestial higher-up he revived before death was looking out for him, he mused.
 
 Around this time, Han Se-jin returned from 【Nine Sound】.
 
-And Hong Dong-wook, the head of the PR team, conveyed the news that ten thousand pre-orders for the album were sold, which left him astounded.
+And the news that the head of the promotion team, Hong Dong-wook, delivered was astonishing: ten thousand pre-orders had already been sold.
 
-“When will the album be released?”
+"When will the album be released?"
 
-“It'll take another 1-2 weeks, but they're trying to hurry it up.”
+"It will take another week or two, but they said they'll try to speed it up."
 
-Demand always speeds up all supply.
+Demand usually accelerates all supply.
 
 Especially in our country, this speed is at a world-class level.
 
-It’s not because the country is small, but perhaps due to cultural characteristics.
+It's not because the country is small, but perhaps it's a cultural trait.
 
-Of course, I’m not a scholar, so I don’t know where this cultural trait originates from, but the culture of getting things done, and faster, was deeply reflected in business.
+Of course, not being a scholar, he didn't know where this cultural trait originated, but a culture that makes things happen quickly, and even faster, was deeply reflected in business.
 
-Isn’t this the background for the uniquely developed information and communication technology that emphasizes ‘speed’?
+Isn't this the background behind the exceptionally developed information and communication sectors emphasizing 'speed'?
 
-‘Then I should push even harder.’
+'Then I should push harder.'
 
-The next day, Lee Hyun-woo visited 【Nine Sound】 once again.
+The next day, Lee Hyun-woo visited 【Nine Sound】 again.
 
 * * *
 
-Seeing Lee Hyun-woo visiting for two consecutive days, Hong Dong-wook showed a puzzled expression.
+Seeing Lee Hyun-woo visit two days in a row, Hong Dong-wook showed a curious expression.
 
-“I came because I'm in a hurry. The server is about to explode.”
+"I came because I'm in a hurry. The servers are about to explode."
 
-“The server is about to explode? Why?”
+"The servers are about to explode? Why?"
 
-“The comments asking to add more pre-orders for Shin Sung-hoon's live album are overwhelming. Have you checked this?”
+"There are an enormous amount of comments asking to add more pre-orders for Shin Sung-hoon's live album. Have you checked them out?"
 
-“Ah, yes. Of course, I'm aware.”
+"Oh, yes. I'm well aware."
 
-It seemed Hong Dong-wook was frequently checking 【Jungle】 now.
+It seemed Hong Dong-wook frequently checked 【Jungle】 now.
 
-With this, Lee Hyun-woo spoke with more determination in his voice.
+Lee Hyun-woo spoke with more emphasis in his voice.
 
-“The response is better than I thought. Since he's a very popular singer, it seems to be selling well online too.”
+"The response is better than I expected. It seems like the album is selling well online because he's such a popular singer."
 
-“This is the first time I’ve seen such a hot online response. The CEO also pays attention every day.”
+"I also didn't expect such a hot online response. The CEO is also paying close attention every day."
 
-“Then the album release?”
+"So, when will the album be released?"
 
-“The CEO went to the record production company himself. He’ll probably bring good news.”
+"The CEO has already gone to the record production company. He'll probably bring back good news."
 
-“That’s a relief. I was worried about what to say to the customers, but now we can set the release date for a week from now.”
+"That's good to hear. I was worried about what to tell the customers, but now I can set the date for a week later."
 
-“Ah, let's decide that after the CEO returns.”
+"Let's decide that after the CEO comes back."
 
-“Okay, understood. By the way, it seems we need to add another ten thousand orders. I think we can easily sell another ten thousand at this rate.”
+"Alright. By the way, I think we need to place an additional order for 10,000 copies. I think we can easily sell an additional 10,000 copies at this rate."
 
-“Probably.”
+"Probably."
 
-“Then about the verbal agreement we made last time…”
+"Then, about the verbal agreement we made last time..."
 
-Lee Hyun-woo reminded Hong Dong-wook of the verbal agreement they made last time.
+Lee Hyun-woo reminded Hong Dong-wook about their previous verbal agreement.
 
-The agreement to supply 【Jungle】 with an additional ten thousand units at 5,900 won each instead of 6,000 won.
+It was about delivering the additional 10,000 copies to 【Jungle】 at 5,900 won instead of 6,000 won.
 
-Though the price reduction might reduce profits, from 【Nine Sound】's perspective, selling ten thousand units even before the album was released was welcome news.
+Although the price drop could reduce profits, from 【Nine Sound】's perspective, selling 10,000 copies before the album was even released was a welcome situation.
 
-Hong Dong-wook nodded in agreement.
+Hong Dong-wook nodded.
 
-“Of course, we can do that.”
+"Of course, we'll do that."
 
-“Thank you.”
+"Thank you."
 
-“We should be the ones thanking you. Honestly, it's beyond our expectations. It seems like the next album from our company should definitely be with 【Jungle】.”
+"We should be thanking you. Honestly, it's beyond our expectations. We should definitely release the next album through 【Jungle】."
 
-“Who’s the next album by? If it’s Kim Geun-mo, that would be great.”
+"Who do you mean by the next album? If it's Kim Geun-mo, that would be great."
 
-“Ah, he won’t be doing the next album with us.”
+"Oh, he won't be working with us on the next album."
 
-“Oh? Really?”
+"Really?"
 
-“Instead, it’s a rookie singer’s album coming out.”
+"Instead, a rookie singer's album will be released."
 
-Upon hearing the term ‘rookie singer’, Lee Hyun-woo's intuition kicked in.
+Hearing the term "rookie singer," Lee Hyun-woo's intuition tingled.
 
-At this time, 【Nine Sound】 held a status similar to future Big 3 entertainment companies.
+At this time, 【Nine Sound】 was on par with the future Big 3 entertainment companies.
 
-So, he had no choice but to ask directly.
+So he couldn't help but ask immediately.
 
-“Can you tell me who the rookie singer is?”
+"Who is this rookie singer, if I may ask?"
 
-“You wouldn't know even if I told you…”
+"You probably wouldn't know even if I told you..."
 
-“I wouldn’t know, which is why we can help with the promotion.”
+"Since I don't know, we can promote them."
 
-“That’s true. Ah, I really need to get closer to the CEO?”
+"True. I should get closer to the CEO."
 
-Hong Dong-wook’s eyes sparkled.
+Hong Dong-wook's eyes sparkled.
 
-Given the limited media to promote rookie singers at this time, Hong Dong-wook thought that as 【Jungle】 gained more power, it would become indispensable.
+With limited channels to promote rookie singers in this era, Hong Dong-wook thought that as 【Jungle】 continued to gain power, it would become indispensable.
 
-For rookie singers, the break-even point is ten thousand units.
+For rookie singers, 100,000 copies were the break-even point.
 
-Thus, to help out, he quickly mentioned the singer's name and asked for promotional help.
+Thus, to be helpful, he quickly mentioned the singer's name and asked for promotion.
 
-“They used to help famous singers with choreography. The name is ‘Clones’.”
+"They used to help choreograph for famous singers. Their name is 'Clones.'"
 
-“……!”
+"...!"
 
 This time, Lee Hyun-woo was surprised.
 
-‘As expected…’
+'Just as I thought...'
 
-If it’s Clones, their debut song was a mega-hit that even dogs and cows could follow.
+Clones' debut song was a mega-hit that even dogs and cows could follow along to.
 
-At the early company dinners at 【Deokseong Trading】, Lee Hyun-woo often sang it to liven up the atmosphere, so just hearing it now made him hum it inwardly.
+Having sung it often at early company gatherings after joining 【Deokseong Trading】, he could hum it as soon as he heard it.
 
-‘Kungdari Sha-ba-ra... Papapa!’
+'Kungddari Shabara... Papapa!'
 
-How could he miss securing an album guaranteed to succeed?
+How could he not secure an album with guaranteed success?
 
-It was like ignoring a high-denomination bill found on the street.
+It was like ignoring a large bill found on the street.
 
-Calming himself down, Lee Hyun-woo made the following request.
+So, Lee Hyun-woo calmed himself and made the following request.
 
-“Can I listen to the song later?”
+"Could I listen to the song later?"
 
-“Well, the song will be released soon, so you can listen to it even now.”
+"The song... it will be released soon, so you can listen to it now."
 
-“Really?”
+"Really?"
 
-“Do you really want to hear it?”
+"Do you really want to hear it?"
 
-“Of course. It’s a rookie singer from 【Nine Sound】, isn't it? Since success is guaranteed, I have every reason to promote and sell it. Still, I need to verify…”
+"Of course. It's a rookie singer from 【Nine Sound】. I have a strong desire to promote and sell it because success is guaranteed. But I need to check it out..."
 
-“If you insist…”
+"If that's the case..."
 
-Wanting to maintain a good relationship with 【Jungle】, Hong Dong-wook easily agreed.
+Wanting to maintain a good relationship with 【Jungle】, Hong Dong-wook easily cooperated.
 
-Popular singers might have been different, but rookie singers didn’t need to be kept secret.
+For popular singers, it might be different, but there was no need to keep rookie singers a secret.
 
-Furthermore, with the album release just around the corner, it was the right time to find opportunities for exposure.
+Moreover, since the album's release was imminent, they needed to start exposing it gradually.
 
-‘This is great. I’ll get a chance to promote.’
+'This is a good chance to promote.'
 
-On the other hand, Lee Hyun-woo only needed to confirm if it was the song from his past life.
+On the other hand, Lee Hyun-woo only needed to confirm whether it was the song from his previous life.
 
-So, shortly after, he got to listen to the anticipated song,
+So, shortly after, he could listen to the song he anticipated,
 
-Kungdari~ Sha-ba-ra~ Papapa!
+Kungddari~ Shabara~ Papapa!
 
-‘That’s the song.’
+'It's the right song.'
 
-Lee Hyun-woo’s face brightened.
+Lee Hyun-woo's expression brightened.
 
-Now, with no reason to hesitate, he confidently said,
+There was no more reason to hesitate, and he boldly stated,
 
-“100,000 units.”
+"100,000 copies."
 
-“What?”
+"Excuse me?"
 
-“Give us 100,000 units for 【Jungle】.”
+"Please give us 100,000 copies for 【Jungle】."
 
-“CEO Lee, isn’t that a bit overconfident? Shin Sung-hoon sold that much because he’s an extremely popular singer.”
+"Mr. Lee, don't you think you're being overly confident? Shin Sung-hoon sold that many because he's a very popular singer."
 
-“Leave the selling to me, just give us 100,000 units. How about 5,000 won each?”
+"I'll handle the sales, so please give us 100,000 copies. How about a price of 5,000 won?"
 
-When Lee Hyun-woo first added 10,000 units, Hong Dong-wook was pleased, but now he frowned and tried to dissuade him.
+Initially, when they ordered an additional 10,000 copies, Hong Dong-wook was pleased, but now he frowned and tried to dissuade him.
 
-“If I sell 100,000 units at 5,000 won each, the company will profit despite it not being a standard wholesale price, and I’ll be more recognized. But I’m telling you this because of our relationship, it’s a reckless move. Just go for 10,000 units. Even that might not be easy.”
+"If I sell 100,000 copies at 5,000 won each, it would be beneficial for the company and I'd gain more recognition. But since I have a connection with you, I'm advising you against it. Just stick to 10,000 copies. Even that might be difficult."
 
-“It’s okay, just give us 100,000 units. I got a feeling as soon as I heard it. It’s something I can’t explain with words.”
+"It's alright, so please give us 100,000 copies. I felt it the moment I heard it. It's indescribable."
 
-Of course, it had to be this way.
+Naturally, he couldn't explain reincarnation or knowing the future.
 
-How could he explain reincarnation or knowing the future?
+Lee Hyun-woo's confident smile filled his face again.
 
-Lee Hyun-woo’s relaxed smile filled his lips again.
+'Just trust that I'll sell 100,000 copies.'
 
-‘Just know that if I say I’ll sell 100,000 units, I will.’
+However, unlike Lee Hyun-woo, Hong Dong-wook frowned.
 
-Unlike Lee Hyun-woo, Hong Dong-wook frowned.
+He saw a young man potentially getting into trouble due to excessive ambition.
 
-In his eyes, it seemed like a young man’s reckless greed might put him in trouble.
+'This could lead to a disaster.'
 
-‘This could end badly.’
+Discovering a new sales route for albums was lucky for Hong Dong-wook too.
 
-Finding a new sales route for albums was also a stroke of luck for Hong Dong-wook.
+Therefore, he wanted the 【Jungle】 website to thrive, and with life experience, he advised Lee Hyun-woo,
 
-Thus, he hoped the 【Jungle】 website would do well and shared his life experience as advice to Lee Hyun-woo.
+"I have a younger brother around your age at home. Don't take this as nagging..."
 
-“I have a brother about your age at home. So don’t take this as nagging…”
+"......"
 
-“……”
+"No matter how returnable the goods are, ordering in bulk can lead to big trouble. Think it over."
 
-“No matter how much you can return, doing it on such a large scale could be disastrous. Think it over again.”
+"Thank you for the concern, but there's no way we'll need to return them. We can sell all 100,000 copies."
 
-“Thanks for your concern, but there won't be any returns. We can sell all 100,000 units.”
+"Hmm..."
 
-“Hmm…”
+As Lee Hyun-woo didn't budge, Hong Dong-wook sighed.
 
-Seeing Lee Hyun-woo not budging, a sigh escaped from Hong Dong-wook.
+'Was I like this back then?'
 
-‘Was I like this in the past?’
+People who haven't experienced major failures often exhibit such excessive ambition.
 
-People who hadn't experienced major failures often took such reckless risks.
-
-Hong Dong-wook recalled the singers he pushed during his early winning streak.
+Hong Dong-wook recalled the singers he pushed when he was initially successful.
 
 What was the result?
 
-He tasted the bitterness of life back then.
+He learned the bitterness of life back then.
 
-It was something one couldn’t explain without experiencing it.
+It was something that couldn't be explained without experiencing it.
 
-Thinking this far, Hong Dong-wook nodded with a knowing look.
+Thinking this far, Hong Dong-wook nodded knowingly.
 
-“Then let's set a returnable amount. Is that okay?”
+"Then I'll set a returnable quantity. Is that alright?"
 
-“Sounds good.”
+"Sure."
 
-“Exactly half. 50,000 units.”
+"Half. 50,000 copies."
 
-“Alright, let's do it.”
+"Alright, let's do that."
 
-5,000 won for 50,000 units amounted to a whopping 400 million won.
+5,000 won for 50,000 copies amounted to 250 million won.
 
-Seeing Lee Hyun-woo hastily agree, Hong Dong-wook frowned again.
+Seeing Lee Hyun-woo readily accept this, Hong Dong-wook frowned again.
 
-If he had negotiated a bit more, he could have compromised, but seeing him readily accept, it seemed Lee Hyun-woo was really going to face a tough time.
+He thought he could negotiate more, but seeing Lee Hyun-woo accept so easily, he felt Lee Hyun-woo was setting himself up for a big fall.
 
-“Phew, there's no helping it. Alright. But don’t regret it later.”
+"Sigh, there's no helping it. Alright, just don't regret it later."
 
-“Sure, but if we sell all 100,000 units, please frequently give us exclusive rights to sell concert and album tickets on our 【Jungle】 website.”
+"Sure. But if we sell all 100,000 copies, please give us exclusive rights to sell concerts and albums through the 【Jungle】 website."
 
-“Well… we’ll have to discuss that later, but in this industry, the top sellers are the kings. I’m sure you’ll have more influence than now.”
+"Well... we'll have to discuss that later, but in this industry, the one who sells the most is king. Your voice will carry more weight then."
 
-Whether Lee Hyun-woo noticed or not, the implication was that it was unlikely.
+Whether Lee Hyun-woo noticed or not, he implied that it was unlikely.
 
-Quick-witted Lee Hyun-woo must have already understood the other’s intentions?
+Given Lee Hyun-woo's sharp perception, he must have figured out his intentions.
 
-‘You must be baffled, right? But if we sell all of them later, you’ll be even more baffled.’
+'It must seem absurd. But when all these sell out, it will be even more absurd then.'
 
-However, when he left 【Nine Sound】, Han Se-jin also had the same expression as Hong Dong-wook.
+However, when leaving 【Nine Sound】, Han Se-jin also had the same expression as Hong Dong-wook.
 
-Since they had joined the company not long ago, they cautiously tried to dissuade him.
+They hesitantly tried to dissuade him since they were relatively new to the company.
 
-“Seems… a bit too much…”
+"It... it seems a bit too much..."
 
 With no way to explain, Lee Hyun-woo quietly smiled.
 
-‘Jung-woo and Yoo-chul will be ecstatic.’
+'Jung-woo and Yoo-cheol will be thrilled.'
 
-Sure enough, shortly after, they made faces ten times more bewildered than Hong Dong-wook’s and were at a loss for words.
+Not surprisingly, shortly after, they looked shocked and speechless, more so than Hong Dong-wook.
 
-“Hyung… I mean, President, even at 5,000 won, 100,000 units is 500 million won.”
+"Hyung... I mean, boss, 100,000 copies at 5,000 won each is 500 million won."
 
-“The down payment was set at 10 million won. I saw more than 10 million won in the account.”
+"I made the down payment 10 million won. We had over 10 million won in the account."
 
-“What if they don’t sell?”
+"What if they don't sell?"
 
-“They will. Even faster than expected.”
+"They will. And faster than expected."
 
-“I’m really worried.”
+"I'm really worried."
 
-“I’m worried too, but fortunately, they agreed to take returns if they don’t sell initially, so I’m a bit relieved.”
+"I'm worried too, but fortunately, they agreed to take returns if they don't sell well initially, so I'm somewhat reassured."
 
-“Phew.”
+"Whew."
 
 As Han Se-jin added this, Lee Jung-woo sighed in relief,
 
-“Not all, just 50,000 units.”
+"Not the entire quantity, just 50,000 copies."
 
-“What? No, CEO!”
+"What? No, CEO!"
 
-“Lee Jung-woo, just trust me. Don’t worry about anything. Okay?”
+"Trust me, Lee Jung-woo. Don't worry. Got it?"
 
-“Still, how can we sell 50,000 units?”
+"But how can we sell 50,000 copies?"
 
-“Lee Jung-woo, you don’t know, but every time I predicted hit songs by singers, I was right with a very high probability. I mean, if I said it would be a hit, it always was.”
+"Lee Jung-woo, you don't know, but I've always had a high success rate predicting hit songs for singers. The songs I said would be hits always were."
 
-“I’ve never heard that while living with you.”
+"I've never heard you mention this while living together."
 
-“Because I said it inwardly.”
+"I said it to myself."
 
-“……”
+"......"
 
-Again, a bewildered look.
+It was an incredulous expression.
 
-As his younger brother, he was actively trying to dissuade him.
+Since he was a younger brother, he was more actively trying to dissuade him.
 
-Knowing this, Lee Hyun-woo’s mind was busy calculating.
+Knowing this, Lee Hyun-woo was busy calculating in his head.
 
-‘If we sell Shin Sung-hoon’s CD at the same 8,000 won, that would be 800 million won in revenue. After deducting shipping and labor costs, we’d make at least 100 million in profit.’"
+'If we sell the CDs like Shin Sung-hoon's at 8,000 won, that's a revenue of 800 million won. After deducting delivery and labor costs, we should net at least 100 million won in profit.'
 
 
 ----

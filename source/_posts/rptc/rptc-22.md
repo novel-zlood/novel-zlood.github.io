@@ -5,329 +5,331 @@ tags:
 ---
 
 
-Lee Hyun-woo had a unique experience.
+For Lee Hyun-woo, it was a unique experience.
 
-This was also the first step in shifting the focus of his life slightly toward work-life balance.
+And it was also the first start of slightly shifting the focus of his life towards work-life balance.
 
-'I should enjoy this more often.'
+‘I should enjoy this from time to time.’
 
-Meanwhile, the second day of Shin Sung-hoon's concert also concluded successfully.
+Meanwhile, Shin Sung-hoon's concert, which opened the next day, ended successfully.
 
-It was a given since the top singer of this era was unlikely to fail, but the fact that tickets were being sold online for the first time started making headlines.
+It was a very natural outcome since no one expected the greatest singer of this era to fail, but the fact that tickets were sold online for the first time started appearing in newspaper articles.
 
-『【Nine Sound】's New Initiative, Buying Tickets on 【Jungle】.』
+『A new attempt by 【Nine Sound】, purchasing tickets from 【Jungle】.』
 
-This meant that the website 【Jungle】 was being promoted through newspaper articles.
+This means that the website 【Jungle】 was promoted through the newspaper.
 
 In this era, the concentration of information was no joke.
 
-Looking back later, people would call the current media landscape a monopoly.
+Looking back later, the current media is considered a monopoly.
 
-It meant that the places where the public accessed and distributed information were limited.
+It means that the places where the public accesses and distributes information are limited.
 
 As a result, the newspaper article led to a surge in users of 【Jungle】.
 
-Lee Jung-woo and Jang Yoo-chul were having a ping-pong conversation as if they were broadcasting this.
+Lee Jung-woo and Jang Yoo-cheol were having a ping-pong conversation as if they were broadcasting it.
 
-"Is this why people advertise in newspapers?"
+“Is this why they advertise in newspapers?”
 
-"I guess so. I've been checking the number of visitors since earlier."
+“Seems like it. I've been checking the number of visitors since earlier.”
 
-"Same here. Ah, damn! I can't focus on work because of these numbers."
+“Same here. Ah, dang it! I can't work because I'm checking the numbers.”
 
-"But we still have to do it. Let's control ourselves."
+“We still have to do it. Let's restrain ourselves now.”
 
-At that moment, Lee Hyun-woo stepped in and continued speaking in a relaxed voice.
+At that moment, Lee Hyun-woo stepped in and continued the conversation in a relaxed voice.
 
-"There's no need for that."
+“There's no need for that.”
 
-"Sorry?"
+“Pardon?”
 
-"You're saying we don't need to control ourselves?"
+“You don't need to restrain yourselves.”
 
-"Everything serves as motivation. Do you think working all day increases efficiency?"
+“That becomes a motivation. Do you think efficiency will increase just by working all day?”
 
-"No, it doesn't."
+“That's not it.”
 
-"Right, exactly."
+“Yes, you're right.”
 
-"In fact, we do a lot of other things, don't we?"
+“In fact, you do other things a lot too, don't you?”
 
-"Well..."
+“Well…”
 
-"......"
+“……”
 
-"So if you're going to do something else, engaging in such healthy conversations is always welcome. Otherwise, office life gets too dreary."
+“So if you're going to do something else, having a healthy conversation like that is always welcome. Otherwise, work life becomes too bleak.”
 
-"Haha... I think we've met a really good CEO."
+“Haha… I think we've met a really good CEO.”
 
-"I'm really grateful to Lee Jung-woo for introducing me. I'll consider you both benefactors of my life."
+“Thanks to Lee Jung-woo for introducing you to me, I'm really grateful. I'll consider both of you my benefactors in life.”
 
-Hearing Jang Yoo-chul's words, Lee Hyun-woo chuckled.
+Hearing Jang Yoo-cheol's words, Lee Hyun-woo chuckled.
 
 But what Lee Hyun-woo said was true.
 
-In his previous life, even until he died, South Korea proudly held the second-longest working hours among OECD countries.
+Until Lee Hyun-woo's previous life, Korea proudly (?) held the second-longest working hours among OECD countries.
 
-The more absurd record was the actual working time compared to working hours.
+The more astonishing record was the actual working time compared to the working hours.
 
 Only 2 hours and 17 minutes.
 
-The rest of the time was spent either loafing around while keeping an eye on the boss, playing, or secretly surfing the net—this was the life of office workers.
+The rest of the time, office workers lived by watching their superiors' moods, idling around, or secretly surfing the internet.
 
-Perhaps this habit developed from being forced to sit in school since high school.
+Maybe this habit developed from being forced to sit in school since high school.
 
-Therefore, Lee Hyun-woo believed that such motivational checks were the driving force for work efficiency.
+Therefore, Lee Hyun-woo considered checking this kind of motivation as the driving force for work efficiency.
 
-But that didn’t mean he didn’t assign work.
+That didn't mean he didn't make them work.
 
-Shortly after, he gave an order to his younger brother and Jang Yoo-chul.
+He gave such orders to his junior and Jang Yoo-cheol shortly after.
 
-"Start taking pre-orders for the live album."
+“Start taking pre-orders for the live album.”
 
-"Already take orders?"
+“Already taking orders?”
 
-"Yes, that's why it's a pre-order of 10,000 copies. If you order now, you can get it for 8,000 won. Make sure to display this prominently as a large event."
+“Yes, that's why it's a pre-order for 10,000 copies. If you order now, you can buy it for 8,000 won, so put up a big event window.”
 
-"In other words, though the regular price is 10,000 won, this is an opportunity to get a 2,000 won discount."
+“In other words, the regular price is 10,000 won, but it's an opportunity to get a 2,000 won discount.”
 
-"Good, good."
+“Good, good.”
 
-Originally, the strategy was to sell it for 8,000 won, but following Lee Hyun-woo's direction to add a bit of flair, the two quickly got to work.
+Originally planning to sell it for 8,000 won, the two quickly worked on Lee Hyun-woo's instruction to make the event more noticeable.
 
-As time went by, their coordination improved, and their proficiency increased.
+As time went by, their coordination improved and their proficiency increased.
 
-Perhaps because of this, it didn’t take long for them to display a new window on 【Jungle】's main screen.
+Perhaps that's why it didn't take long to put up a new window on the main screen of 【Jungle】.
 
-"CEO, it's done."
+“CEO, it's done.”
 
-"Take a look."
+“Take a look.”
 
-Lee Hyun-woo smiled contentedly as he looked at the large event window that popped up next to the 'Solids' concert, which Han Se-jin had recently secured.
+Lee Hyun-woo looked at the big event window next to the ‘Solids’ concert that Han Se-jin had secured a while ago, and a satisfied smile appeared on his face.
 
-‘I hope the 10,000 pre-orders get filled quickly.’
+‘Hope the pre-orders for 10,000 copies get filled quickly.’
 
-Based on the results, he planned to order an additional 10,000 copies from Nine Sound.
+Then, based on that result, he planned to order an additional 10,000 copies from Nine Sound.
 
-On the other hand, noticing Lee Hyun-woo's expression, the two people next to him subtly began to express doubts under the guise of conversation.
+Meanwhile, the two people watching Lee Hyun-woo's expression started to express their doubts under the guise of a conversation.
 
-"Will it be effective to display an event window for a product that's not released yet?"
+“Will it be effective to put up an event window for a product that hasn't been released yet?”
 
-"I don't know. It feels like people wouldn't spend money on something that doesn't exist."
+“I don't know. It seems like people won't spend money on something that doesn't exist.”
 
-"Why spend money?"
+“Why spend money?”
 
-"Sorry?"
+“Pardon?”
 
-"Then what?"
+“Then?”
 
-"Pre-orders are just pre-orders. No money is involved right now."
+“Pre-orders are just pre-orders. No money is spent right now.”
 
-As he answered, it was clear that users would think the same way as the two of them.
+As they answered, it was clear that users would think the same way as the two.
 
-"You haven't activated the payment window yet, right?"
+“We haven't activated the payment window yet, have we?”
 
-"Yes, today is just about announcing it."
+“No, today is just about informing.”
 
-"Then let's tweak the event window a bit more."
+“Then let's tweak the event window a bit more.”
 
-"How?"
+“How?”
 
-"Emphasize that it's a free pre-order. Highlight the word 'free'."
+“Free pre-order. Emphasize the free part.”
 
-In a way, it was like baiting the consumers.
+In a way, it was like baiting consumers.
 
-Up until now, about 90% of 【Jungle】's customers used bank transfers, and 10% used credit cards.
+So far, about 90% of 【Jungle】 users made bank transfers, and 10% used credit cards.
 
-When ordering a product, payment had to be made first, either through bank transfer or credit card, before shipping would start.
+When ordering a product, money had to be sent first or a card had to be swiped before the delivery started.
 
-But this time, orders could be placed without that process.
+However, this time, they could order without that process.
 
-Calling it 'free' might encourage more users to utilize the pre-order method.
+Calling this ‘free,’ wouldn't more users take advantage of the pre-order method?
 
-‘Trial and error are inevitable.’
+‘Trial and error is inevitable.’
 
-Modification notices had often been made.
+Revisions to notices had been frequent.
 
-So when the revised notice, highlighting 'free,' was displayed again, he smiled with satisfaction.
+Therefore, when the modified notice was posted again, emphasizing the free part, he smiled with satisfaction.
 
-The issue was that as 【Jungle】 grew in scale, their PG (Payment Gateway) company contacted them.
+The issue was that the growing size of 【Jungle】 led to a call from the PG (Payment Gateway) company they started using.
 
-Most calls were received by Yoo Jin-young, but since she wasn't familiar with this, Lee Hyun-woo had to take over.
+Most calls were received by Yoo Jin-young, but since she didn't know much about this matter, Lee Hyun-woo had to take over.
 
-"Hello, this is Lee Hyun-woo."
+“Yes, this is Lee Hyun-woo speaking.”
 
-(I checked the website? It says pre-orders are free, but then it says 8,000 won later...)
+(We saw the homepage? The pre-order is free, but then it's 8,000 won…)
 
-"Ah, there's no need for you to worry about that. Simply put, we’re only taking orders now, and payments can be made later."
+“Ah, you don't need to worry about that. Simply put, it means we’re just taking orders now and the payment can be made later.”
 
-The PG (Payment Gateway) company helps businesses with bank transfers and credit card transactions for a fee.
+A PG (Payment Gateway) company helps businesses with bank transfers and credit card operations for a fee.
 
-Even such a company inquired, showing how unfamiliar pre-order methods were in this era.
+Even such a place was curious, indicating how novel the pre-order method was in this era.
 
-'In the future, every idea borrowed from the future will be seen as new and fresh.'
+‘All ideas borrowed from the future will be considered new and fresh.’
 
-A wry smile spread across Lee Hyun-woo's face.
+A bitter smile spread across Lee Hyun-woo's face.
 
 * * *
 
-But that day, another call that came in surprised the entire company.
+But that day, another call surprised everyone in the company.
 
-"CEO, I think you should take this call too."
+“CEO, I think you should take this call too.”
 
 What could it be this time?
 
-With curiosity evident on his face, Lee Hyun-woo picked up the receiver.
+Showing curiosity on his face, Lee Hyun-woo picked up the receiver.
 
-"Hello, this is Lee Hyun-woo, CEO of 【Jungle】."
+“Yes, this is Lee Hyun-woo, CEO of 【Jungle】.”
 
-Immediately, the other side introduced themselves.
+Soon, the other party identified themselves.
 
 (Hello, CEO.)
 
-"Yes, hello."
+“Yes, hello.”
 
-(I’m Heo Sol, a reporter from KBC News Culture and Entertainment Department.)
+(I'm Heo Sol, a reporter from KBC News Culture & Entertainment Department.)
 
-"Oh, yes..."
+“Ah, yes…”
 
-A reporter? From a broadcasting company?
+A reporter? From a broadcasting station?
 
-He was slightly bewildered inside, but then he heard an even more surprising question.
+Feeling slightly flustered inside, a more surprising question was asked.
 
-(Actually, I’d like to request an interview. Are you available?)
+(Actually, I'd like to request an interview, if you have time?)
 
-"An interview? With me?"
+“An interview? With me?”
 
 (Yes, CEO.)
 
-"Didn't you say you were from the Entertainment Department?"
+“Didn't you say you’re from the entertainment department?”
 
-(Yes, specifically from the Culture and Entertainment Department. It seems the public has become curious about Shin Sung-hoon's concert recently. Some tickets were sold on your 【Jungle】 site, right?)
+(Yes, technically from the culture and entertainment department. Recently, it seems the public has taken an interest in Shin Sung-hoon's concert. Some of the tickets were sold on your 【Jungle】 site, right?)
 
-"Yes, that's correct."
+“Yes, that's correct.”
 
-(We’d like to briefly introduce this on the news, and it won’t take much time.)
+(We'd like to introduce this briefly on the news, it won't take long.)
 
-Was there any reason to refuse?
+Is there any reason to refuse?
 
-No, he welcomed it with open arms.
+No, he was more than happy.
 
-"Yes, that's fine. When shall we do it?"
+“Yes, that's fine. When would it be?”
 
-(The sooner, the better for us. Tomorrow, if possible.)
+(The sooner, the better for us. Tomorrow is possible.)
 
-"Oh, then come tomorrow."
+“Ah, then come tomorrow.”
 
-(You’re very decisive. We’ll visit you first thing tomorrow morning.)
+(You're very straightforward. Then we'll see you tomorrow morning.)
 
-"Alright, see you tomorrow."
+“Yes, see you tomorrow.”
 
-Ending the call with a gentle smile on his lips, Lee Hyun-woo thought,
+After hanging up the phone, a gentle smile appeared on Lee Hyun-woo's face.
 
-'For the first time in both my previous and current life, I might be on TV.'
+‘For the first time in both my previous and current lives, I'll be on TV.’
 
-Would it be good for his face to be on TV?
+Is it good to have your face on TV?
 
-Definitely not.
+Absolutely not.
 
-Even though he had listed things he hadn't done in his past life, he had no intention of entering the entertainment industry whatsoever.
+Even though he had listed things he hadn't done in his previous life, he had no intention of entering the entertainment industry, not even a tiny bit.
 
-However, media exposure related to business was always welcome.
+However, exposure related to business was always welcome.
 
 Especially if this interview could make 【Jungle】 more widely known.
 
-'In 1996, there were only three major broadcasting companies, and dramas would get ratings from 30% to 50% if they gained momentum.'
+‘In 1996, there were only three broadcasting stations, and a popular drama could get a viewership rating of 30% to 50%.’
 
-It was an era of monopoly in media.
+This was an era of media monopoly.
 
-One mention in the newspaper led to an explosive increase in visitors to 【Jungle】.
+A single newspaper article caused an explosive increase in 【Jungle】 users.
 
-'Then, wouldn't it be the same for the news?'
+‘Then the news should be the same, right?’
 
-KBC News had the highest viewership ratings, and the thought of reaching countless people made Lee Hyun-woo's heart race.
+KBC News had the highest viewership at the time, so the opportunity to be known to many people made Lee Hyun-woo's heart race.
 
-While maintaining his goal of enjoying life, he also wanted to achieve rapid business success, so his excitement was natural.
+He aimed to enjoy life.
 
-Apparently, it wasn't just Lee Hyun-woo feeling this way.
+But he also wanted to succeed in business at an incredibly fast pace, so feeling excited was natural.
 
-As soon as the clock struck 4:45 PM and the workday ended, Yoo Jin-young stood up and muttered to herself,
+It seemed Lee Hyun-woo wasn't the only one.
 
-"I need to go buy some clothes."
+As soon as the clock struck 4:45 PM and work ended, Yoo Jin-young stood up and muttered to herself.
 
-Although the interview was with Lee Hyun-woo, who knows what she was thinking.
+“Time to buy clothes.”
 
-The next day, Yoo Jin-young greeted him with heavy makeup that seemed out of place.
+The interview was with Lee Hyun-woo, but what was she thinking?
 
-"Good morning, CEO."
+The next day, Yoo Jin-young greeted him with heavy makeup that didn't suit her.
 
-She seemed to have put on makeup, expecting to be caught on camera.
+“CEO, you're here?”
 
-Lee Hyun-woo chuckled and took his seat, and soon after, the other three also showed up dressed neatly.
+She must have put on makeup thinking she might be caught on camera.
 
-'No wonder Lee Jung-woo didn't come to work with me.'
+He chuckled and sat down, and shortly after, the other three also appeared dressed neatly.
 
-Seeing their reactions made him realize the power of television once again.
+‘No wonder Jung-woo didn't come to work together.’
 
-At the same time, he became calm.
+Seeing their reactions, he once again felt the power of the broadcast.
 
-He contemplated how to promote 【Jungle】 with each and every word of the upcoming interview.
+At the same time, he calmed down.
 
-Eventually, with the reporter and crew in front of him, he received basic questions.
+He pondered on how to promote 【Jungle】 with each word of the upcoming interview.
 
-It seemed like they were coordinating the questions and answers before the actual interview.
+Facing the reporter and the crew who arrived shortly, he received basic questions.
 
-"As I looked through the website, it reminded me of 【eBay】 and 【Amazoness】 in the U.S."
+It seemed like they were coordinating questions and answers before the actual interview.
 
-"Yes, that's correct. 【Amazoness】 started two years ago, and 【eBay】 started a year ago. Our website combines the strengths of both."
+“When I looked at the website, it reminded me of 【E Base】 and 【Amazones】 from the U.S.”
 
-"Oh, I see."
+“Yes, that's correct. 【Amazones】 started 2 years ago, and 【E Base】 a year ago. Our website combines the strengths of both.”
 
-The reporter was indeed well-informed.
+“Ah, I see.”
 
-Seeing that he had studied the two sites, it was clear that he was different from the future journalists who would be called 'giraegi' (a derogatory term for journalists).
+As expected of a reporter, they were well-informed.
 
-His questions were also very professional.
+Also, studying those two sites and coming prepared made them seem different from the future's lousy journalists.
 
-"This is what you call a blue ocean strategy, right? Discovering a new sea first to catch fresh fish. In Korea, it would be labeled as 'the first of its kind.'"
+The questions were very professional.
 
-"Actually, we're looking even further ahead."
+“This is called the Blue Ocean strategy, right? Discovering a new sea and getting fresh fish. In our country, it would be the ‘first title.’”
 
-"Further ahead?"
+“Actually, we're looking further ahead.”
 
-"Not just within Korea, but the world. Eventually, we want to compete with and surpass 【Amazoness】 and 【eBay】."
+“Further ahead?”
 
-"Wow, I want to support that."
+“Not just our country, but the world. Eventually, we want to compete with and beat 【Amazones】 and 【E Base】.”
 
-Unintentionally, Lee Hyun-woo revealed his dream.
+“Wow, I want to cheer you on.”
 
-But this wasn't the actual interview.
+Unintentionally revealing his dream, Lee Hyun-woo.
 
-In fact, it didn't even fit the context of this interview.
+But this wasn't the interview.
 
-The Culture and Entertainment Department wouldn't dig deep into economics or IT.
+This wasn't the focus of the interview.
+
+The culture and entertainment department wouldn't delve deeply into economics or IT.
 
 The actual questions focused on Shin Sung-hoon's concert.
 
-Fortunately, he managed to slip in a mention of the CD pre-order.
+Fortunately, during a short break, the topic of CD pre-orders was also mentioned,
 
-"I'll make sure to include that part."
+“I'll make sure to include that.”
 
-The reporter's promise to edit it well made him hopeful.
+The reporter's promise to edit it well raised expectations.
 
-However, after the interview, the others didn't look pleased.
+However, after the interview, the rest of the team didn't look happy.
 
-"Why the long faces?"
+“Why do you all look like you've eaten something bad?”
 
-"They didn't pay attention to us at all."
+“They didn't care about us at all.”
 
-"Ugh, I bought these clothes for nothing."
+“Ugh, I bought clothes for nothing.”
 
-Lee Hyun-woo chuckled at their complaints.
+Lee Hyun-woo laughed lightly at their complaints.
 
 But this laughter turned into cheers a few days later when the news aired.
 
-That day, the 10,000 pre-orders sold out completely.
+That day, the pre-orders for 10,000 copies sold out.
 
 
 ----

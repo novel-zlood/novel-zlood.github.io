@@ -38,9 +38,29 @@ date: 2024-08-05 11:10:54
 [Chapter 28](/rptc/rptc-28/)
 [Chapter 29](/rptc/rptc-29/)
 [Chapter 30](/rptc/rptc-30/)
+[Chapter 31](/rptc/rptc-31/)
+[Chapter 32](/rptc/rptc-32/)
+[Chapter 33](/rptc/rptc-33/)
+[Chapter 34](/rptc/rptc-34/)
+[Chapter 35](/rptc/rptc-35/)
+[Chapter 36](/rptc/rptc-36/)
+[Chapter 37](/rptc/rptc-37/)
+[Chapter 38](/rptc/rptc-38/)
+[Chapter 39](/rptc/rptc-39/)
+[Chapter 40](/rptc/rptc-40/)
+[Chapter 41](/rptc/rptc-41/)
+[Chapter 42](/rptc/rptc-42/)
+[Chapter 43](/rptc/rptc-43/)
+[Chapter 44](/rptc/rptc-44/)
+[Chapter 45](/rptc/rptc-45/)
+[Chapter 46](/rptc/rptc-46/)
+[Chapter 47](/rptc/rptc-47/)
+[Chapter 48](/rptc/rptc-48/)
+[Chapter 49](/rptc/rptc-49/)
+[Chapter 50](/rptc/rptc-50/)
 
-<!-- for i in {1..30}; do echo "[Chapter $i](/rptc/rptc-$i/)"; done -->
-<!-- for i in {1..30}; do hexo new rptc "rptc-$i"; done -->
+<!-- for i in {31..50}; do echo "[Chapter $i](/rptc/rptc-$i/)"; done -->
+<!-- for i in {31..50}; do hexo new rptc "rptc-$i"; done -->
 
 ----
 
