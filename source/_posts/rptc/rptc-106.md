@@ -5,313 +5,315 @@ tags:
 ---
 
 
-Two days later, Lee Jung-woo and Oh Min-woo, who were set to leave for the United States, were taken to the airport.
+Two days later, Lee Jung-woo and Oh Min-woo, who were about to leave for the United States, were taken to the airport.
 
-"Is there a special reason why you come to the airport with each employee? Is it to impress us?"
+“Is there a reason you personally come to the airport with each employee? Is it to impress us?”
 
-"No, it's because neither of you has a car."
+“No, it's just that neither of you have a car.”
 
-Lee Hyun-woo responded with a laugh to Oh Min-woo's unexpected question.
+Lee Hyun-woo answered with a laugh to Oh Min-woo’s random question.
 
-"That's a straightforward answer. Make sure to give us the motivation to buy cars when we come back."
+“That's a simple answer. Please give us the motivation to buy a car when we get back.”
 
-"Hey, stop talking nonsense and let's go. Our hyung is a busy man."
+“Hey, stop talking nonsense and let's go. Our hyung is a busy person.”
 
-"I'm not that busy, but as Jung-woo said, I don't want to hear any more nonsense. Hurry up and go."
+“I'm not that busy, but as Jung-woo said, I don't want to hear any useless talk. Now go.”
 
-He always had a leisurely demeanor.
+He was always composed.
 
-Of course, he wasn't busy after work.
+Naturally, he wasn't busy after work.
 
-As Lee Hyun-woo was about to turn around after saying that, Oh Min-woo spoke firmly to him.
+As Lee Hyun-woo turned to leave, Oh Min-woo spoke firmly.
 
-"I will make sure to establish the name of Jungle in America."
+“We will surely make the name of Jungle known in the United States.”
 
-He kept saying unnecessary things until the end.
+He continued to talk nonsense.
 
-When Jung-woo was about to scold him again, Oh Min-woo giggled.
+When Lee Jung-woo started to scold him again, Oh Min-woo giggled.
 
-"Why are you laughing?"
+“Why are you laughing?”
 
-"I just imagined the surprised look on your hyung's face."
+“I just imagined your hyung's surprised face.”
 
-"You idiot. Our hyung doesn't get surprised easily."
+“Crazy guy. Our hyung doesn’t get surprised easily.”
 
-"This time, he might be a little surprised. We're going to apply the relationship algorithm I mentioned last time to the blog."
+“This time, he might be a bit surprised. We're going to apply the relationship algorithm I talked about last time to the blog.”
 
-This algorithm was already completed, and he had instructed the team members to run final simulations before applying it.
+This algorithm was already completed, and he had told the team to run the final simulations and apply it.
 
-Once applied, it would probably enable friend-making.
+After applying it, it would probably be possible to make friends.
 
-"But does our hyung even have a blog? He might not notice immediately."
+“But does our hyung have a blog? He might not notice it right away.”
 
-"You worry too much. Others will tell him. But it's strange. Why doesn't your hyung have a blog?"
+“You worry too much. Other people will tell him. But it's strange. Why doesn't your hyung have a blog?”
 
 They still didn't know that Lee Hyun-woo was Nostradamus.
 
-Therefore, Lee Hyun-woo didn't have the leisure to run a blog separately.
+Therefore, Lee Hyun-woo didn't have the leisure to run a separate blog.
 
-"It might be personal preference. He might find it bothersome. Think about it. He's become a complete celebrity. What will he do if he gets friend requests from everywhere?"
+“It's probably a personal preference. It could be bothersome. Think about it. He's become a complete celebrity. What if he gets friend requests from everywhere?”
 
-"You can get requests even without a blog."
+“Even without a blog, he can still get requests.”
 
-"Oh, I see. That would definitely be bothersome."
+“Oh, I see. Then it would definitely be bothersome.”
 
-"You seem too biased because he's your hyung, but this is the guy who came to Jungle on December 31st because he had no one to hang out with."
+“You are too biased because he’s your hyung. On December 31st last year, he came to Jungle because he had no one to hang out with.”
 
-"Really? Our hyung?"
+“Really? Our hyung did?”
 
-"Yeah, he begged me to hang out with him. If I hadn't been busy, I would have entertained him... But lately, he's been much better since he's been meeting that chaebol noona frequently."
+“Yeah, he was so desperate to hang out with me. If I hadn’t been busy, I would have spent time with him… Although, nowadays, he's better because he often meets that chaebol noona he's almost dating.”
 
-When Oh Min-woo mentioned Kim Ah-young, Lee Jung-woo smiled faintly and thought of her face.
+When Oh Min-woo mentioned Kim Ah-young, Lee Jung-woo smirked and thought of her face.
 
-'She does match well with hyung.'
+‘She does suit hyung well.’
 
-He hoped things would go well.
+He hoped it would go well.
 
-Now, he wanted to support their relationship.
+He now wanted to support their relationship.
 
 Did she hear about it?
 
-A text message from Kim Ah-young arrived.
+A text arrived from Kim Ah-young.
 
-- Jung-woo, have a good trip to America.
+- Jung-woo, have a safe trip to the United States.
 
-Why does 'Jung-woo' keep reading as 'young master'?
+Why does ‘Jung-woo’ keep reading as ‘young master’?
 
-A mysterious smile spread across Lee Jung-woo's face.
+An inexplicable smile spread across Lee Jung-woo's face.
 
 * * *
 
 Two days passed.
 
-Though not as much as Oh Min-woo had expected, Lee Hyun-woo raised his eyebrows when he received a friend request message from someone.
+Although not exactly as Oh Min-woo predicted, Lee Hyun-woo raised an eyebrow when he received friend request messages from someone.
 
-'What is this?'
+‘What is this?’
 
 It appeared as soon as he logged into the portal Jungle, which he habitually accessed as soon as he arrived at work.
 
-Then, messages kept coming in with the signal sound 'ding ding ding.'
+Following this, messages continued to come in with the signal sounds ‘ding ding ding’.
 
-- A friend request message from Rainy has arrived.
+- You have received a friend request from Rainy.
 
-- A friend request message from Jujube has arrived.
+- You have received a friend request from Date.
 
-- A friend request message from Tomato has arrived.
+- You have received a friend request from Tomato.
 
-- A friend request message from Anne Gemil has arrived.
+- You have received a friend request from Anne Gemil.
 
-Lee Hyun-woo quickly clicked the notification window and moved to the message box.
+When Lee Hyun-woo quickly clicked the notification window, he moved to the inbox.
 
-He randomly clicked one, which was from Anne Gemil.
+He randomly clicked on Anne Gemil.
 
-- Hyun-woo, it's me, An-young. I suddenly received a notification email that I could send friend requests. So, I sent one to you.
+- Hyun-woo, it's me, Ah-young. I got a notice email saying I could suddenly send friend requests. So, I sent one to you.
 
-After clicking 'Yes' to the question of whether to accept the friend request, he carefully looked at various things.
+After clicking ‘Yes’ to accept the friend request at the bottom, he carefully reviewed this and that.
 
-'Did Oh Min-woo finally complete this?'
+‘Has Oh Min-woo finally completed this?’
 
-Just as he was curious, Yoo Jin-young entered.
+At that curious moment, Yoo Jin-young entered.
 
-"CEO, there's a call from Team Leader Oh in America."
+“CEO, there's a call from Team Leader Oh in the United States.”
 
-"Put it through."
+“Put it through.”
 
-As he picked up the receiver, he immediately heard Oh Min-woo's voice.
+As soon as he picked up the receiver, he could hear Oh Min-woo’s voice.
 
-(CEO, are you at work?)
+(Ceo, are you at work?)
 
-"What is this?"
+“What is this?”
 
-(What do you mean? It's the relationship algorithm I mentioned last time. I made it so that you can make friends on the blog. Oh, you can send requests even without a blog.)
+(What do you mean? It's what I said I would make last time. I used the relationship algorithm to enable friend requests on the blog. Oh, you can request even without a blog.)
 
-"Oh, you rascal. You should have told me beforehand."
+“Oh, man. Then you should have told me in advance.”
 
-(I wanted to surprise you. Oh, since you might get too many friend requests, you can use the feature to hide your information from outsiders if it gets bothersome.)
+(I wanted to surprise you. Oh, if you get too many friend requests, I set it to hide information externally. Use that if it gets bothersome.)
 
-"Alright, got it."
+“Okay, got it.”
 
-(And there's still a long way to go. Originally, I planned to release it after making it more perfect, but I remembered what you said. A good plan executed now is better than a perfect plan next week!)
+(And there's still a long way to go. Originally, I planned to perfect it before releasing it, but I remembered what you said last time. An excellent plan executed today is better than a perfect plan next week!)
 
 It was a quote from George S. Patton.
 
-He was a soldier who participated in World War II in America, and Hyun-woo had engraved that quote in his heart as it kept lingering in his mind.
+He was a soldier who participated in World War II in the United States. The words he once said kept lingering in Lee Hyun-woo's mind, so he engraved them in his heart.
 
-After advising the otaku-like Oh Min-woo, he had sped up like this.
+He had advised Oh Min-woo, who had a strong otaku trait, and it seemed to have sped things up like this.
 
-"Well done."
+“Alright, well done.”
 
-(I'll do well here too.)
+(I will do well here too.)
 
-"Hey, don't try to do too well. You'll burn out."
+“Hey, don’t try too hard. You'll burn out.”
 
-(That's not acceptable. You're the CEO who even got us business class tickets, not first class.)
+(I can’t do that. You got us business class tickets, not first class, though.)
 
-"Sounds like you're hinting at getting first-class tickets next time?"
+“Why do I feel like you’re asking for first class next time?”
 
-(I'll make more money for you and then ask confidently.)
+(I will make more money for you and ask proudly.)
 
 He didn't deny it.
 
-Still, he liked this guy's personality.
+Still, he liked this guy’s personality a lot.
 
-Even after hanging up, the pleasant feeling continued to spread.
+Even after hanging up the phone, a sense of pleasure continued to spread.
 
-'A blog where you can make friends.'
+‘A blog that allows you to make friends.’
 
-He suddenly imagined the expressions of the geniuses in America.
+Suddenly, he imagined the expressions of the geniuses in the United States.
 
-Namely, the founders and developers of Single, Face Note, Amazones, and Pineapple, who would gradually have fewer things to do.
+In other words, the founders and developers of Single, Face Note, Amazones, Pineapple, etc., would have less and less to do.
 
-'They're geniuses, so they'll figure something out.'
+‘They are geniuses, so they’ll come up with something else.’
 
 Thinking comfortably, he turned his gaze back to the computer monitor.
 
-Now it was time to play around with the updated blog for a while.
+Now it was time to play with the changed blog for a while.
 
 * * *
 
-By the time he was leaving work that day, he received a call from Woo Sang-won, who had just visited the second research institute after the first one.
+Around the time he was about to leave work that day, he received a call from Woo Sang-won, who had visited the second research institute after the first one.
 
-(CEO, everything went well. We didn't demand excessive royalties.)
+(Ceo, everything went well. We didn’t demand excessive royalties.)
 
-"Does that mean they might be considering researching MP3s?"
+“Does not demanding excessive royalties mean they might be considering researching MP3?”
 
-(Yes, probably. So, they'll come to Korea next time. It seems they'll finalize the contract after negotiating with you.)
+(Yes, probably. So, they said they would come to Korea next time. It looks like they will stamp the contract after negotiating with you.)
 
-"Got it. You've worked hard."
+“Got it. You've worked hard.”
 
-Lee Hyun-woo smiled broadly as he listened to Woo Sang-won's voice.
+Lee Hyun-woo smiled brightly as he listened to Woo Sang-won’s voice.
 
-Of course, people's minds can change moment by moment, so there could be differences between verbal promises and actual written contracts.
+Of course, people's minds could change at any moment, so there could be differences between verbal agreements and actual written contracts.
 
-But since they had announced it so confidently and were entering negotiations, he felt they wouldn't face legal issues for unauthorized use later.
+However, since they had announced it so confidently and were about to enter negotiations, he didn’t think they would use it without permission and cause legal issues later.
 
-(Did the two of them leave?)
+(Ah, have the two left?)
 
-"Yes, they did yesterday."
+“Yes, yesterday.”
 
-The two people Woo Sang-won mentioned were his younger brother Lee Jung-woo and Oh Min-woo.
+The two people Woo Sang-won mentioned were his brother Lee Jung-woo and Oh Min-woo.
 
-"They're probably discussing in-depth collaboration with Alta Vista by now."
+“By now, they should be visiting Alta Vista to discuss in-depth about business cooperation.”
 
-(Then they'll feel the same way I did.)
+(Then they will feel the same as I did.)
 
-"What did you feel, Team Leader Woo?"
+“What kind of feeling did you have, Team Leader Woo?”
 
-(The world is watching Korea, and more specifically, Jungle.)
+(The feeling that the world, and further, Jungle, is watching Korea?)
 
-Is this person also becoming a 'Jungle addict'?
+Was this person also becoming full of national pride, or ‘Jungle pride’?
 
-Lee Hyun-woo chuckled and said,
+Lee Hyun-woo smirked and said,
 
-"I don't know about that, but I was surprised today with the new blog update."
+“I don’t know about that, but I was also surprised today by a new update on the blog.”
 
-(Oh? Really? I couldn't check because the internet here is too slow.)
+(Oh? Really? The internet here is too slow, so I couldn’t check.)
 
-"Enjoy it when you come back. It might be hard to access now."
+“Enjoy it when you come back. It might be difficult now.”
 
-(Okay, got it.)
+(Yes, I understand.)
 
-"So, what time is it there?"
+“By the way, what time is it there?”
 
-(It's almost ten o'clock. Phew, it's almost time to attend another forum.)
+(It’s almost ten o’clock. Phew, it’s time to attend another forum.)
 
-"Don't you like forums? The guys who went to America are attending a forum on a similar topic to Germany's at Stanford University."
+“Do you not like forums? The guys who went to the United States are attending forums at Stanford University on a similar topic to Germany.”
 
-(I almost died listening to the forum. Even with a translator next to me, it was hard to communicate.)
+(I thought I was going to die listening to the forum. Even with interpretation next to me, communication was not easy.)
 
-"I see."
+“I see.”
 
-(Though it was in English, thankfully, it was tough because we couldn't understand each other's German and Korean accents.)
+(Thankfully, it was conducted in English, but it was hard to understand each other’s German and Korean accents.)
 
-"Ha ha, you worked hard."
+“Ha ha, you had a hard time.”
 
-It seemed like he was somewhat envious of Lee Jung-woo and Oh Min-woo.
+It seemed like he was envious of Lee Jung-woo and Oh Min-woo.
 
-While Woo Sang-won could communicate in English to some extent, it wasn't easy to understand German-style English without actual conversation with Americans.
+Woo Sang-won could communicate to some extent in English, but it was not easy to understand German English unless he actually talked to an American.
 
-Having experienced that in his past life, Lee Hyun-woo could sense the hardship in Woo Sang-won's voice.
+Lee Hyun-woo had experienced it in his past life, so he could feel the hardship in his voice.
 
-He encouraged and praised him again before ending the call.
+He once again encouraged and complimented him generously before hanging up the phone.
 
 * * *
 
-Meanwhile, in America, Lee Jung-woo and Oh Min-woo were entering a full-fledged business collaboration with Alta Vista.
+Meanwhile, the two people who had officially entered into a business agreement with Alta Vista in the United States.
 
-To be precise, they were conducting a field inspection.
+To be precise, it was a field operation.
 
-How much and how Jungle's search engine should be applied to Alta Vista's webpage.
+How much and how to apply Jungle’s search engine to Alta Vista’s webpage.
 
-"Why are they gathering like this since earlier?"
+“Why are they gathering like this?”
 
-"I don't know. Maybe they're curious about us."
+“I don't know. They must be curious about us.”
 
-The developers of Alta Vista were surrounding and watching the two as they reviewed on the computer.
+The two reviewing it on the computer were surrounded by Alta Vista's developers.
 
-"By the way, this work won't be easy."
+“By the way, this work won't be easy, right?”
 
-"Did you think we'd be able to do it all in America?"
+“Did you think we could do everything in the United States?”
 
-"Absolutely not. We'll have to send developers after going back."
+“Absolutely not. We’ll have to send developers back.”
 
-"This is getting more and more global for Korean developers."
+“This is getting out of hand. Korean developers are spreading all over the world.”
 
 Lee Jung-woo nodded at Oh Min-woo's words.
 
-Starting with some developers who went to Japan last year, they were now set to dispatch to the U.S., realizing the term 'Jungle to the world' he had once told his hyung.
+Starting with some developers who left for Japan last year, they were now planning to dispatch to the United States, so the words he had said to his brother before, ‘Jungle to the world,’ were on the verge of coming true.
 
-Is it true that seeing is believing?
+Should he say seeing is believing?
 
-Upon arriving there, it was clear that Jungle's level was much higher.
+Upon arriving here, it was clear that Jungle’s level was much higher.
 
-'Did I overestimate Silicon Valley and the U.S. all this time?'
+‘Was I overestimating Silicon Valley and the United States all this time?’
 
-Feeling proud, he said to Oh Min-woo,
+Feeling proud, he said to Oh Min-woo.
 
-"If we had started our business in the U.S., Yahoo would have been a breeze."
+“If we had started our business in the United States, Yahoo would be just a meal.”
 
-"Of course."
+“Of course.”
 
-"But would Stanford be the same?"
+“But will Stanford be like this too?”
 
-"It wouldn't be much different. So, if it's below expectations, the disappointment would be big."
+“It won't be much different. So, the disappointment might be bigger if it falls short of expectations.”
 
-"Right. I hope there's at least one genius."
+“That’s true. I hope at least one or two geniuses exist.”
 
-It might sound absurd to anyone listening, but the two were treating Yahoo, which had already surpassed trillions in market cap since its IPO last year, like a neighborhood shop and hoping Stanford's nerds would meet their expectations.
+The two were conversing in a way that might sound absurd to others.
 
-If Lee Hyun-woo were there, he would have given a sharp retort to their arrogance...
+They were treating Yahoo, which had gone public last year and whose market cap had already exceeded several trillion won, like a neighborhood store and hoping that Stanford’s bookworms would meet their expectations.
+
+If Lee Hyun-woo were here, he would have sharply criticized their floating arrogance…
 
 - The United States is not such an easy country.
 
-Fortunately, the two soon met a proper rival when they arrived at Stanford.
+Fortunately, shortly after arriving at Stanford, they met proper rivals.
 
-It was Ray Berlin and Mikhail Face, who founded Single in their previous lives.
+They were Ray Burrin and Michael Pace, who had founded Single in their previous life.
 
-Clearly, they were researching the concept of the search engine that Lee Jung-woo and Oh Min-woo had designed and evolved.
+It was clear that the two were studying the concept of the search engine that Lee Jung-woo and Oh Min-woo had designed and evolved.
 
-"We have hypothesized focusing on the similarity and relationship of web pages."
+“We've hypothesized focusing on the similarity and relationship of web pages.”
 
-"Yes, we plan to apply the algorithm after publishing a paper next month."
+“Yes, we plan to apply the algorithm after publishing the paper next month.”
 
-Listening to them disclose their research, Oh Min-woo surprised Lee Hyun-woo.
+Listening to them openly talking about their research, Oh Min-woo surprised Lee Hyun-woo.
 
-Speaking in fluent English,
+Immediately, Oh Min-woo responded in fluent English,
 
-"Sorry, but Jungle has already applied your hypothesis."
+“I'm sorry, but Jungle is already applying your hypothesis.”
 
-"……!"
+“……!”
 
-"……!"
+“……!”
 
-Their pupils shook with shock.
+Their pupils shook as if there was an earthquake.
 
-Looking at Oh Min-woo in disbelief, he continued,
+Then, in disbelief, they looked at Oh Min-woo,
 
-"Jungle plans to enter the U.S. market this year. You can verify it then. Or you can visit Jungle's homepage in Korea now and try searching for any keyword. Alta Vista provided some web pages recently. I believe you can verify the algorithm of 'relationship' and 'similarity.'"
+“Jungle plans to enter the American portal market this year. You can check it then. Or, you can go to Jungle’s homepage in Korea and search for any keyword. Alta Vista recently provided some web pages. I believe you’ll be able to confirm the algorithm of ‘relationship’ and ‘similarity.’”
 
-With such confident evidence, they started to panic.
+Since he confidently provided evidence, they began to fall into a state of mental breakdown.
 
 
 ----

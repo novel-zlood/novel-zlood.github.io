@@ -5,247 +5,247 @@ tags:
 ---
 
 
-As the end of the workday approached, Lee Hyun-woo donned his coat and headed out.
+As the end of the workday approached, Lee Hyun-woo put on his coat and headed out.
 
-While starting his car in the parking lot, he saw Kim Yoon-soo walking towards the company entrance.
+As he started his car in the parking lot and began to drive out, he saw Kim Yun-su walking towards the company entrance.
 
-Quickly rolling down the window, he looked at him.
+He quickly rolled down the window and looked at him.
 
 "Hyung!"
 
-"Oh? President Lee? Where are you going?"
+"Oh? Mr. Lee? Where are you going?"
 
-"Yes, I have a quick errand to run."
+"Yes, I have some errands to run."
 
-"Ah, what a shame. I should have called."
+"Ah, that's too bad. I should have called first."
 
 "What's the matter?"
 
-"Today, the line finally got completed. Since the day to start modem production is imminent, I came to report to you."
+"We finally completed the line today. The day to start modem production is imminent, so I came to report to you."
 
-"Wow, already? Then I must drop by later. I'm curious about it."
+"Wow, already? Then I'll definitely have to stop by later. I'm curious about it."
 
 "Sure, drive safely."
 
-Kim Yoon-soo said goodbye with a look of regret on his face.
+Kim Yun-su said his farewell with a slightly disappointed look on his face.
 
-Lee Hyun-woo gently pressed the accelerator after rolling up the window.
+Lee Hyun-woo rolled up the window again and gently pressed the accelerator.
 
-'Thank goodness. Things are going well there too.'
+'Thank goodness. Things seem to be going well over there too.'
 
-In fact, 【One Computer】, thanks to its acquaintance with Lee Hyun-woo, was one of the companies, aside from 【Jungle】, rapidly on the path to success.
+In fact, 【One Computer】 was one of the companies that was on the fast track to success, thanks to knowing Lee Hyun-woo aside from 【Jungle】.
 
-Once the mass production of modems began, orders from companies dealing with high-speed internet in the country would flood in, and 【One Computer】 would achieve tremendous success.
+Soon, when the mass production of modems begins, orders from domestic companies dealing with high-speed internet will pour in, and 【One Computer】 will achieve tremendous success.
 
-'Not only there, but 【Alpha Cast】 and 【Samjin Computer】 will also see results soon, right?'
+'Not just there, but 【Alpha Cast】 and 【Samjin Computer】 should see results soon too, right?'
 
-The former was on the brink of producing MP3 players, while the latter was about to start testing high-speed internet.
+The former was on the verge of MP3 player production, and the latter was about to start testing high-speed internet.
 
-Achieving such business overnight was impossible, but both companies had the know-how.
+Achieving this business overnight was impossible, but both companies were seasoned and experienced.
 
-【Alpha Cast】 was well-versed in related technology through car stereos, and 【Samjin Computer】 had already had extensive discussions with cable TV.
+【Alpha Cast】 was well-versed in related technologies through car stereos, and 【Samjin Computer】 had discussed extensively with cable TV before pausing.
 
-'At this rate, Korea's IT ecosystem might surpass the US.'
+'At this rate, Korea's IT ecosystem might surpass the U.S.'
 
-It's not impossible.
+Nothing is impossible.
 
-Then, the foreign capital investments Lee Hyun-woo had hoped for would become more active.
+Then the foreign investment that Lee Hyun-woo hoped for would become more active domestically.
 
-The capital that flowed out like a receding tide during the past foreign exchange crisis could surge in like a flood this time.
+The capital that flowed out like an ebb tide during the past foreign exchange crisis could come rushing in like a flood this time around.
 
-Thinking about it again, it's about countering bubbles with bubbles.
+Thinking about it again, it's like fighting a bubble with a bubble.
 
-'Well, not everything goes the way I want.'
+'Well, not everything goes as I wish.'
 
-Just like 【Bohan Group】 and the soon-to-be bankrupt 【Misam Group】.
+Like 【Bohan Group】, and the soon-to-be bankrupt 【Misam Group】.
 
-Many companies will fall and collapse.
+There will be quite a few companies that will fall and collapse.
 
-But if new IT groups solidly fill the void, and the existing conglomerates become more solidified?
+But if newborn IT groups can firmly fill those voids and existing conglomerates become stronger?
 
-‘Maybe we won't have to invoke the IMF?’
+'We might not need to summon the IMF?'
 
-Personally, Lee Hyun-woo thought that just because a foreign exchange crisis occurred, it wasn't necessary to rely on the IMF.
+Personally, Lee Hyun-woo didn't think it was necessary to rely on the IMF just because a foreign exchange crisis occurred.
 
 Because the IMF demanded too harsh a price.
 
-It could be overcome through labor-management cooperation, like the Singapore or Malaysia model.
+Just like the Singapore or Malaysia model, the labor and management can coexist and overcome the crisis.
 
-‘If it goes this way, it will be both interesting and rewarding.’
+'This would be both fun and rewarding.'
 
-A mission impossible to realize in a previous life.
+A mission that would have been impossible to achieve in his past life.
 
-This time, he intended to give it a try.
+This time, he intends to try.
 
-Even if it’s just for fun, Lee Hyun-woo always tackled things seriously in his past life and always reached the goal of success.
+Though he might do it just for fun if it doesn't work out, Lee Hyun-woo always tackled things seriously in his past life and always reached the goal of success.
 
 Considering the steps, today was the time to shake the chairman of 【Guseong Group】.
 
-‘I have to win over Kim Sung-moo's heart unconditionally!’
+'I must win over Kim Sung-moo's heart!'
 
-Having read and almost memorized his autobiography dozens of times, Lee Hyun-woo was confident.
+Having read his autobiography dozens of times and practically memorized it, Lee Hyun-woo was confident.
 
-Realizing this, he noticed he was gripping the steering wheel tightly.
+Realizing this, he noticed he was gripping the steering wheel tightly without realizing it.
 
-After avoiding traffic, he soon arrived at Kim Sung-moo's residence, took a deep breath, and got out of the car.
+After avoiding the traffic, he arrived at Chairman Kim Sung-moo's residence shortly thereafter, took a deep breath, and got out of the car.
 
 * * *
 
-A little later, Lee Hyun-woo entered a house large enough to be described as a palace.
+A little later, Lee Hyun-woo entered a house that was large enough to be called a palace.
 
-"Welcome. Ah, this is my father."
-
-"Nice to meet you."
-
-"And this is my mother."
+"Welcome. Ah, this is our father."
 
 "Nice to meet you."
 
-"These are my siblings. You know Ah-young, and this is Kim Ah-jin. She’s studying abroad but is back in Korea for vacation. And this is Kim Na-yoon, a senior in high school."
+"And this is our mother."
 
-When introduced to Kim Tae-hyun's younger sisters, Lee Hyun-woo smiled and nodded lightly.
+"Nice to meet you."
+
+"These are my siblings. You know Ah-young, and this is Kim Ah-jin. She's studying abroad but came to Korea for a break. And this is Kim Na-yoon, a high school senior."
+
+As he was introduced to Kim Tae-hyun's sisters, Lee Hyun-woo smiled and nodded lightly.
 
 Then,
 
-"Alright, let's have dinner first."
+"Shall we have a meal first?"
 
-At Kim Sung-moo's word, everyone turned in the direction he indicated.
+At Kim Sung-moo's words, everyone turned in the direction he indicated.
 
-‘There must be a dining table over there.’
+'It seems the dining table is over there.'
 
-The house was so spacious that one had to remember where everything was.
+This house is so big that one needs to remember where everything is.
 
-Even going to the restroom and coming back, one might get lost trying to find their seat.
+If you go to the bathroom, you might get lost trying to find your way back to your seat.
 
-With this thought, Lee Hyun-woo approached the dining table, and Kim Tae-hyun kindly prepared a seat for him.
+With that thought, as he approached the dining table, Kim Tae-hyun kindly guided him to a seat.
 
-"Very few people have dined with our entire family at this table. Consider yourself honored."
+"Very few people have had a meal with our entire family at this table. You should feel honored."
 
 "Yes, hyung."
 
-"Hey, don't overdo it. It’s not like we're dining with some great people."
+"Oh, don't be so formal. It's not like we've dined with some great people."
 
-Kim Sung-moo's wife, Jang Hee-jin, said this to Kim Tae-hyun with a laugh.
+Kim Sung-moo's wife, Jang Hee-jin, smiled and spoke to Kim Tae-hyun.
 
-Looking at this, it seemed more like an ordinary family rather than a conglomerate’s household.
+Looking at this, it seemed more like an ordinary family rather than a typical chaebol household.
 
-‘Did they stage this for me?’
+'Maybe they put on a bit of a show because of me?'
 
-Or maybe the house atmosphere was bright because the daughters were still unmarried.
+Or perhaps the house atmosphere was bright because the daughters were not yet married.
 
-During the meal, the daughters showed various interests.
+Indeed, during the meal, the daughters showed various interests.
 
-"You’re incredible, aren’t you? You started your company last year and have already become a market leader, partnering with foreign companies and expanding overseas?"
+"You're quite impressive, aren't you? You started a company last year and rose to dominate the market, and you're even partnering with foreign companies for overseas expansion?"
 
-"I don't know about other things, but my classmates use 【Jungle Music】 a lot. Recently, there’s a promotion where you get 300 coins for a 10,000 won top-up, so they use it even more."
+"I don't know about other things, but 【Jungle Music】 is really popular among my classmates. Many of them use it more because of the event where they get 300 coins for a 10,000 won recharge."
 
 "Hyun-woo, I can't eat. Stop it."
 
-Luckily, Kim Tae-hyun intervened.
+Fortunately, Kim Tae-hyun intervened and stopped them.
 
-Then Kim Ah-young quickly stepped in to calm the situation.
+Then Kim Ah-young quickly interjected to manage the situation.
 
-"Guys, you'll have time to ask questions after he talks with dad. Don’t worry."
+"Guys, there will be time after we talk with Dad. You can ask then."
 
-In any situation, Lee Hyun-woo just smiled without opening his mouth.
+In any situation, Lee Hyun-woo only smiled without opening his mouth.
 
 Why?
 
-Kim Sung-moo didn't like people who talked a lot on the first meeting.
+Chairman Kim Sung-moo didn't like people who talked a lot on the first meeting.
 
-It was written in his autobiography, and Kim Ah-young had also said so.
+That's what it said in his autobiography, and that's what Kim Ah-young had told him.
 
-‘I need to trust the autobiography and Ah-young.’
+'I should trust the autobiography and Ah-young.'
 
-Instead, he answered clearly when asked.
+Instead, he responded clearly to the questions asked.
 
-"Do you think our country can experience another period of rapid growth?"
+"Do you think our country will see the same kind of rapid growth as before?"
 
-"It's difficult. The government-led growth strategy has already hit its limit."
+"It's difficult. The government-led growth strategy has long reached its limit."
 
-"But hasn't political democratization promoted economic liberalization and openness? One could say a new market has opened."
+"But didn't the winds of democratization in the political sphere promote economic liberalization and openness? You could say a new market has opened."
 
-"Of course. However, if the economic players think differently, we might lose our market."
+"Of course. But if the thoughts of economic agents differ, I think our market could be taken away."
 
-"Right. The voice of labor unions and civic groups has strengthened in government policies and issues, leading to conflicts of interest between the government and businesses."
+"That's right. The voices of labor unions and civic groups have strengthened in government policies and issues, and conflicts have arisen in the interests of the government and companies."
 
-"Therefore, leadership is needed to guide these diversified economic players. I have always thought of you, Chairman, as someone who can resolve these conflicts and reconcile interests."
+"Therefore, leadership that can guide the diversified economic agents is necessary. I've always thought of you, Chairman, as someone who can resolve those conflicts and reconcile interests."
 
-"Hahaha, I don't like stepping forward. And these days, it seems one must be cautious. You might be accused of collusion between politics and business if you stand out."
+"Hahaha, I don't like stepping forward much. And in this day and age, it seems wise to be cautious. If you stand out unnecessarily, you hear things like collusion between politics and business."
 
-Lee Hyun-woo skillfully diverted or avoided sensitive topics.
+Lee Hyun-woo skillfully avoided sensitive topics or refrained from mentioning them.
 
-Even now.
+This time was no different.
 
-Although he nodded vaguely, it didn't mean he fully agreed with Chairman Kim Sung-moo's words.
+He subtly nodded but didn't fully express agreement with Chairman Kim Sung-moo's words.
 
-The reason he pointed to Chairman Kim Sung-moo as the person to resolve conflicts was something only Lee Hyun-woo knew.
+The reason for pointing out Chairman Kim Sung-moo as the person to resolve conflicts and reconcile interests was something only Lee Hyun-woo knew at this moment.
 
-‘If you step forward and let go of many things, the conflicts will disappear.’
+'If you step forward and relinquish many things, the conflicts will disappear.'
 
-But he continued the conversation without showing his true thoughts, maintaining a submissive demeanor until the meal ended.
+But without showing it, he continued the conversation until they finished the meal.
 
-At some point, only Chairman Kim Sung-moo and Lee Hyun-woo were talking, leading Jang Hee-jin to shake her head and say,
+At some point, only Chairman Kim Sung-moo and Lee Hyun-woo were talking, so in the end, Jang Hee-jin shook her head and said,
 
-"You probably didn't know whether the food went into your nose or ears. Such heavy topics should be discussed after the meal."
+"I couldn't tell if the food was going into my nose or ears. Such heavy topics should be discussed after finishing the meal."
 
-However, the post-meal conversation continued in Chairman Kim Sung-moo's office.
+However, the conversation after the meal continued in Chairman Kim Sung-moo's office.
 
-With just the two of them inside, without any interruptions.
+Just the two of them, without anyone else interrupting.
 
 * * *
 
-"Recently, I happened to see a blog. It's called Nostradamus... You know it, right?"
+"Recently, I came across a blog by chance. It's called Nostradamus... You know about it, right?"
 
-"Yes, I know. It’s run by an anonymous user who spreads exaggerated and misleading information."
+"Yes, I'm aware. An anonymous user who pretends to be smart and deceives people."
 
-"Hahaha, exaggerated and misleading, you say."
+"Hahaha, deceives people."
 
 Did Lee Hyun-woo's words please him?
 
-For now, Kim Sung-moo chuckled and sipped his tea.
+Kim Sung-moo chuckled and sipped his tea.
 
-"Okay, good. As you said, I don't know if it's exaggerated and misleading, but as times change, people learn more and want to share what they know. Moreover, recently, they have a platform to speak on. That's the internet."
+"Alright, good. As you said, I'm not sure if it deceives people, but as times have changed, people have learned more and want to share what they know. Moreover, now they have a platform to speak up. It's the internet."
 
-"You're absolutely right."
+"Exactly."
 
-"In that space, one can thoroughly hide their identity. For example, I could post something pretending to be someone else."
+"In that space, people can thoroughly hide their identities. For example, I could post something pretending not to be myself."
 
 "That's called anonymity."
 
-"Right. But isn't it curious? One of the internet's characteristics is openness. Yet, within it, there's the closed nature of anonymity."
+"Right. But isn't it quite strange? One of the characteristics of the internet is openness. Yet within it, there's this closed nature of anonymity."
 
 Through this conversation, Lee Hyun-woo subtly understood what the chairman wanted.
 
-‘He wants to know the identity of Nostradamus.’
+'He wants to know the identity of Nostradamus.'
 
 Lee Hyun-woo smiled and looked at Kim Sung-moo.
 
-"You're absolutely right. Anonymity and openness coexist curiously. Even I sometimes get confused about whether I'm running the portal site in the right direction."
+"Exactly. Anonymity and openness coexist strangely. Sometimes, even I get confused about whether I'm running the portal site in the right direction."
 
 "Hmm..."
 
-"So sometimes, I feel frustrated and want to tell someone about the identity of Nostradamus."
+"So, there are times when I want to tell someone about the identity of the deceptive Nostradamus."
 
 At that moment, Kim Sung-moo's sharp eyes focused on Lee Hyun-woo's face.
 
 "You mean you know."
 
-"Of course, I know. I’ve known for a long time."
+"Of course. And I've known for a long time."
 
-"Long time, you say..."
+"A long time..."
 
-"Yes, I knew even before the blog was started."
+"Yes, I knew even before the blog was running."
 
 "......"
 
-This time, his eyes slightly widened.
+This time, his eyes narrowed slightly.
 
 "It seems you know Nostradamus well."
 
 "Yes, that's right."
 
-"And you feel the need to protect this person."
+"And someone you need to protect."
 
 "Not necessarily."
 
@@ -253,47 +253,47 @@ This time, his eyes slightly widened.
 
 "He hasn't committed any crimes, has he? He just finds it very bothersome to be known to the world."
 
-Lee Hyun-woo was speaking accurately because he was Nostradamus.
+Since Lee Hyun-woo himself was Nostradamus, he was expressing it accurately.
 
-If this were revealed, it would undoubtedly attract too much attention.
+In truth, if this got out, he would receive too much public attention.
 
-"But I can tell you, Chairman."
+"However, I can tell you, Chairman, specially."
 
 "......"
 
-Kim Sung-moo, who was cautious in human relationships, didn't easily reveal his inner thoughts, but now he was very curious.
+Kim Sung-moo, who was cautious in human relationships, didn't easily reveal his true feelings, but now he was very curious.
 
-However,
+Then,
 
 "What do you want?"
 
-Instead of asking who, he asked what Lee Hyun-woo desired.
+Instead of asking who he wanted to know, he asked what Lee Hyun-woo wanted.
 
-Thinking that he would demand something significant for revealing and protecting such a person.
+He thought Lee Hyun-woo would demand something significant, given that he was willing to reveal the identity to him without any compensation.
 
-But Lee Hyun-woo, still with a relaxed smile, said,
+But Lee Hyun-woo still had a relaxed smile and said,
 
-"I mentioned it during the meal. At this current point where conflicts and clashes of interest among economic players arise, I wish you would lead our country's economy well."
+"I mentioned it during the meal. At this point, where conflicts and clashes arise among economic agents, I'd like you to lead the country's economy well."
 
 "What?"
 
-"I'm not in a position to tell you what to do. I've expressed my wishes, so now I'll reveal the identity of Nostradamus."
+"I can't tell you what to do from my position, but I've expressed what I hope for, so now I'll reveal it. The identity of Nostradamus."
 
 "......"
 
-The cozy, comfortable office, designed for his health, was now tense.
+The cozy and comfortable office, designed for his health, was now tense.
 
 Naturally, Chairman Kim Sung-moo's curiosity had reached its peak.
 
-In a way, Lee Hyun-woo's adeptness at manipulating the giant of the business world was truly impressive.
+In a way, Lee Hyun-woo's skillful handling of the giant of the business world was truly impressive.
 
-Even now, he stopped speaking at the appropriate 'timing,'
+He also chose the right 'timing' to stop speaking,
 
-"Actually, Ah-young is Nostradamus."
+"In fact, Ah-young is Nostradamus."
 
 "......!"
 
-Kim Sung-moo, who rarely lost his composure, had a look of shock in his eyes.
+For a man who rarely lost his composure, Chairman Kim Sung-moo's eyes showed a shock as if an earthquake had struck.
 
 
 ----

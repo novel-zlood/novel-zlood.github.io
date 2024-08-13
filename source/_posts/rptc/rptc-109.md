@@ -5,291 +5,291 @@ tags:
 ---
 
 
-First of all, Lee Hyun-woo evaluated the news of 【Misam Group】's bankruptcy not being heard yet in this way.
+Lee Hyun-woo evaluated the fact that there was no news of the bankruptcy of 【Misam Group】 in this way.
 
-‘The time difference between my past life and this life can't be the same.’
+"There's no way the timeline of my past life and this life could be the same."
 
 Still, it wasn't bad.
 
-In his previous life, it was the second big company to go bankrupt after 【Bohan Group】, and the market shock became more severe due to the successive bankruptcies of major companies.
+In his previous life, it was the second major company to go bankrupt after 【Bohan Group】, and the continuous bankruptcies of large companies increasingly shocked the market.
 
-The won-dollar exchange rate also quickly felt the impact and rose too sharply, causing the media to make a fuss,
+The won-dollar exchange rate also quickly felt the impact and rose too sharply, causing the media to make a fuss.
 
-『Exchange rate stable at 870 won level』
+『Exchange rate stabilized at 870 won』
 
-Rather, he wished it would rise a little more.
+He even hoped it would rise a bit more.
 
-Wouldn't it be successful if we could prevent or avoid a foreign exchange crisis at this rate?
+"Could I be succeeding in preventing or avoiding a foreign exchange crisis?"
 
-Of course, Lee Hyun-woo thought it wasn't because of his own efforts.
+Of course, Lee Hyun-woo thought it wasn't because of his efforts.
 
-‘Just as the song of the previous life changes completely in this life, it seems that the scenario of Korea in this life has started to change from a certain point.’
+"Just as songs from past lives completely change in the present life, the scenario of this life’s South Korea must have started to change at some point."
 
 It wasn't bad.
 
-However, he couldn't afford to be complacent, so he checked the news every day and finally saw the fruits of the seeds he planted last month.
+However, he didn't let his guard down and checked the news daily. Finally, he could see the fruit of the seeds sown last month.
 
-『Han Jung-su family had secretly pushed for the sale of 【Geukdong Gas】!』
+『Han Jung-soo's family secretly pushed to sell 【Geukdong Gas】!』
 
-This meant that 【Geukdong Gas】 could no longer be sold.
+This meant they could no longer sell 【Geukdong Gas】.
 
-Therefore, 【Bohan Group】, which was on the verge of disbandment, had to transparently sell 【Geukdong Gas】, and the discovery of the Siberian gas field increased the value of this company, attracting the interest of many companies.
+Therefore, 【Bohan Group】, which was on the verge of dissolving, had to transparently sell 【Geukdong Gas】, whose value had risen due to the discovery of a Siberian gas field, attracting many interested companies.
 
 Among them was 【Guseong】.
 
-‘Huh? It's flowing like this again.’
+"What? This is how it's going?"
 
-The value of Russia's gas can only increase over time.
+The value of Russia's gas can only rise.
 
-Even if one did not know the future like Lee Hyun-woo, any company in our country that is always thirsty for fossil fuels could predict this.
+Even without knowing the future like Lee Hyun-woo, any company in our country, which is always thirsty for fossil fuels, could predict this.
 
-So, it was inevitable that a conglomerate with financial resources would attempt to acquire it.
+Thus, conglomerates with financial power had no choice but to attempt an acquisition.
 
-‘Is Ayoung's father really going to buy this company?’
+"Is Ah-young's father really going to buy this company?"
 
-If so, the concerns about overlapping investments that he worried about last time would somewhat subside.
+If so, the concern about excessive overlapping investments he had worried about before would be somewhat alleviated.
 
-Thinking this far, a small smile hung on his face.
+With this thought, a small smile hung on his face.
 
-And then, he couldn't help but laugh as he looked at the IT news that followed.
+Then he couldn't help but laugh as he read the following IT news.
 
-『【GB Electronics】 also puts all efforts into making servers!』
+『【GB Electronics】 puts all efforts into creating servers!』
 
-『【Daeun】 jumps into the server market!』
+『【Daewoon】 jumps into the server market!』
 
-Even if conservatively estimated, if the probability of a foreign exchange crisis has decreased, his influence would be about 1%,
+Even considering conservatively, the probability of a foreign exchange crisis decreasing should have about 1% of his influence.
 
-‘This is definitely the crazy butterfly effect I've caused.’
+"This is definitely my crazy butterfly effect."
 
-He was certainly having an impact in the IT sector.
+In the IT sector, he was certainly having an influence.
 
-The servers were something Lee Hyun-woo had advised Kim Tae-hyun about, and among domestic companies, 【Guseong Electronics】 was leading.
+The server was advised by Lee Hyun-woo to Kim Tae-hyun, and among domestic companies, 【Guseong Electronics】 was leading the way.
 
-There was originally a saying that if 【Guseong】 did something, 【GB】 would also do it.
+There was a saying that if 【Guseong】 did it, so did 【GB】.
 
-The reverse was also true.
+The opposite was also true.
 
-As they were rival companies in the industry, it was natural that 【GB】 would jump into servers.
+Since the two companies were industry rivals, it was natural for 【GB】 to jump into the server market.
 
-In this situation where stories of oversupply of computers were already emerging, it seemed natural to enter a period of adjustment.
+Even in this situation where there was already talk of an oversupply of computers, it seemed to naturally enter an adjustment period.
 
 * * *
 
 At that time, in Kim Sung-moo's office.
 
-“Not only domestically, but foreign companies also seem to be betting boldly.”
+"Domestic companies and foreign companies alike seem to be making bold bets."
 
-Kim Sung-moo was listening to a report from his chief secretary about 【Geukdong Gas】.
+Kim Sung-moo was receiving a report on 【Geukdong Gas】 from his chief secretary.
 
-“The acquisition price will go up.”
+"The acquisition price will go up."
 
-“That's correct. Originally, it was about 60 billion won, but now it's jumped by 10 billion won.”
+"Yes, originally it was about 60 billion won, but now it has jumped by another 10 billion won."
 
-“What if we pour all available funds into it?”
+"What happens if we pour all our available funds into it?"
 
-“Then... we might have to reduce the budget for automobiles.”
+"Then... we would probably have to reduce the budget for the automobile sector."
 
-“Hmm...”
+"Hmm..."
 
 Originally, automobiles were Kim Sung-moo's long-cherished project.
 
-A few years ago, he began preliminary work and received a manufacturing business license from the government.
+He had started preparatory work years ago and received government approval for manufacturing.
 
 However,
 
-‘The money that has gone in so far is less than the money that will go in from now on.’
+"The money that has been spent so far is less than the money that will be needed in the future."
 
-Kim Sung-moo felt the need to adjust the speed for a moment and let out a small sigh inwardly.
+Kim Sung-moo felt the need to adjust the pace for a moment and let out a small sigh internally.
 
-‘Sigh...’
+"Sigh..."
 
-The head of a large group carries a heavy burden.
+The head of a giant group carries a heavy burden.
 
-Many things were hanging on it.
+There were many things hanging on it.
 
-Among them, the greatest were responsibility and ambition, which constantly intersected.
+Among them, the biggest were responsibility and ambition, and now those two were constantly intersecting.
 
-“What is your opinion?”
+"What is your opinion?"
 
-“The Siberian gas field will immediately connect to profits. And it is certain that we will recover more than the invested funds within a few years.”
+"The Siberian gas field is something that will lead to immediate profits. And it is certain that we will recover more than the invested funds within a few years."
 
-“That is... true.”
+"That's true..."
 
-“Moreover, since the automobile business already has the authorization, we can produce complete cars sooner or later, even if it's delayed a bit. But acquiring 【Geukdong Gas】 now will not be easy if we miss this opportunity.”
+"Moreover, since we have already obtained approval for the automobile business, we can still produce complete cars even if it's delayed a bit. But acquiring 【Geukdong Gas】 won't be easy if we don't do it now."
 
-Although he spoke at length, it meant they had to reduce investments in building automobile factories, production facilities, and R&D costs.
+Although he spoke at length, it meant reducing the investment in building the car factory, production facilities, and R&D costs.
 
-“Got it. Instead, tell the working team to bring in 【Geukdong Gas】 at all costs.”
+"Got it. Tell the working team to bring in 【Geukdong Gas】 no matter what."
 
-“Yes, Chairman.”
+"Yes, Chairman."
 
-After making such a tough decision, fatigue always followed.
+After making tough decisions, fatigue always set in.
 
-Of course, it had always been like that, but it became more severe after a certain point.
+Of course, it had always been the case, but it had become more severe after a certain point.
 
-Kim Sung-moo thought he knew when that was.
+Kim Sung-moo seemed to know when that was.
 
-‘Lee Hyun-woo, that guy... really...’
+"Lee Hyun-woo, that guy..."
 
-At first, he was puzzled by the reason.
+At first, he was bewildered by the reason.
 
-What had a guy who was only twenty-eight years old done?
+"What could a guy who is just twenty-eight have done?"
 
-Why did talking with him complicate his thoughts?
+"Why did my mind become so complicated after talking to him?"
 
-Later, after asking himself, he could identify the cause.
+Later, after asking himself, he could identify the reason.
 
-While talking with Lee Hyun-woo, Kim Sung-moo saw opportunities in crises.
+While talking to Lee Hyun-woo, Kim Sung-moo saw opportunities amidst crises.
 
-― Chairman, I think 【Guseong Group】's path lies in IT. That’s why I mentioned servers and MP3 mobile phones to Tae-hyun hyung.
+― "Chairman, I believe the future of 【Guseong Group】 lies in IT. That's why I mentioned servers and MP3 mobile phones to Tae-hyun hyung."
 
-After revealing that his daughter was Nostradamus, the guy continued to unfold his aspirations.
+After revealing that his daughter was Nostradamus, the guy continued to unfold his ambitions.
 
-― If 【Jungle】 makes remarkable progress in the software sector, I want to partner with 【Guseong】 to transform our entire country into Silicon Valley.
+― "If 【Jungle】 makes significant progress in software, I want to join hands with 【Guseong】 and turn the entire country into Silicon Valley."
 
 Even though he was young, why did he believe it was possible?
 
-The surprising thing was the performance of 【Jungle】 that followed.
+The surprising thing was the subsequent achievements of 【Jungle】.
 
-It was connecting with companies whose names everyone knew in Japan, the U.S., Germany, etc.
+They were connecting with companies known by name in Japan, the US, and Germany.
 
-‘I don't know about other things, but he certainly is capable.’
+"I don't know about anything else, but he's definitely capable."
 
-So, he increasingly became greedy.
+So, the desire gradually grew.
 
-The more he thought of it as an opportunity to engrave 【Guseong Group】 in blue on the world economic power map, the more he felt so.
+The more he thought about the opportunity to mark 【Guseong Group】 in blue on the world economic power map, the more he felt it.
 
-‘That’s why my thoughts are complicated. Is this a warning signal or an opportunity to grasp an unimaginable enormous power?’
+"That's why my mind is complicated. Is this a warning signal or an opportunity to grasp unimaginable power?"
 
-In other words, if he misstepped, he could plunge the empire built since his father's time into ruin, which made his thoughts complicated.
+In other words, his thoughts were complicated by the fact that a single misstep could bring the empire built by his predecessors to ruin.
 
-He reached a subtle conclusion.
+He reached a quiet conclusion.
 
-‘Should I keep that guy by my side?’
+"Should I keep that guy by my side?"
 
-The assessment Kim Sung-moo made after meeting Lee Hyun-woo last time was just one.
+After meeting Lee Hyun-woo last time, Kim Sung-moo's evaluation was just one.
 
-If only he were my man.
+"I wish he were my person."
 
-That’s why he had been secretly investigating him using the group’s secretariat since then.
+Therefore, he had mobilized the group's secretarial office to investigate him since then.
 
-The conclusion was that he had lived as a prodigy, became an outstanding talent, and turned into a genius of the era.
+The conclusion was that he had lived as a prodigy, become a talent, and turned into a genius of the era.
 
-His family background was nothing special, but his private life was impeccably clean.
+The only flaw was his unremarkable family background, but his private life was impeccably clean.
 
-The interesting point was his recent connection with his daughter Kim Ayoung.
+An interesting point was his recent interaction with his daughter, Kim Ah-young, over the past few months.
 
-This was something he learned more about through Jeong Jin-seong, who was his bodyguard and then went to Kim Ayoung.
+This was further discovered through Jeong Jin-seong, who had been his bodyguard and then went to Kim Ah-young.
 
-― At first, they started dating at a pub in Jongno.
+― "At first, they started dating at a pub in Jongno."
 
-― So, does that mean they are dating?
+― "So, are they dating?"
 
-― No, but it is clear they have mutual interest. Last month, they went on several dates in Jeju Island, and after CEO Lee Hyun-woo greeted you, Miss Ayoung frequented 【Jungle】 headquarters more often.
+― "No, but they clearly have mutual interest. Last month, they went on several dates in Jeju Island, and after CEO Lee Hyun-woo greeted you, the young lady has been visiting 【Jungle】's headquarters more often."
 
-Though they were not dating yet, it could be said they were almost on the verge of dating.
+They might not be dating yet, but it was almost on the verge of a relationship at this level.
 
-Of course, as a father with a daughter, Kim Ayoung was much more precious than Lee Hyun-woo.
+Of course, as the father of a daughter, he felt Kim Ah-young was much more than Lee Hyun-woo.
 
-But it certainly seemed better for her to marry Lee Hyun-woo than to give her to another guy.
+Still, it seemed better for her to marry Lee Hyun-woo than any other guy.
 
-‘No, it’s not her marrying off; it’s him coming into the family.’
+"No, not marry her off, but have him come into the family."
 
-At this point, Kim Sung-moo had to be certain.
+At this point, Kim Sung-moo had to be sure of one thing.
 
-He was slightly anxious about entrusting 【Guseong Group】 to his only son and eldest, but what if Lee Hyun-woo assisted Kim Tae-hyun well?
+He was slightly uneasy about entrusting 【Guseong Group】 to his only son and eldest child, but if Lee Hyun-woo could support Kim Tae-hyun well?
 
-‘Yes, I would feel much more relieved.’
+"Yes, I could be more at ease."
 
-What would Lee Hyun-woo say if he knew this thought?
+If Lee Hyun-woo knew this thought, what would he say?
 
-― The person who gives rice cakes isn't even thinking about it, but you're drinking kimchi soup.
+― "You're drinking kimchi soup before the rice cake is even offered."
 
 * * *
 
 The next morning.
 
-Kim Tae-hyun, who had come home late, rubbed his eyes and sat at the dining table.
+Kim Tae-hyun, who came in late, rubbed his eyes and sat at the dining table.
 
-Already feeling embarrassed as someone else was there first, he heard Kim Sung-moo's voice.
+Already feeling awkward as there were others present, he heard Kim Sung-moo's voice.
 
-“You drank a lot yesterday.”
+"You drank a lot yesterday."
 
-“Well... it was a long time since I saw Uncle Jae-won. You know, Dad. Uncle has been continuously arguing about the danger of a strong dollar since he returned from the U.S., so I wanted to understand why he thinks that way.”
+"Well, it’s been a while since I met Uncle Jae-won. You know, he’s been constantly warning about the risks of a strong dollar since he returned from the US, so I wanted to understand why he thinks that way."
 
-Uncle Jang Jae-won was the youngest brother of the owner of 【Sejong Daily】.
+His maternal uncle, Jang Jae-won, was the youngest brother of the owner of 【Sejong Daily】.
 
-He had been a correspondent in the U.S. and recently returned to work in Korea.
+He had been a correspondent in the US and recently returned to work in Korea.
 
-Kim Sung-moo recalled what Jang Jae-won had said during last New Year's.
+Kim Sung-moo recalled what Jang Jae-won had said during the last New Year.
 
-Indeed, he had warned about the dangers of a strong dollar.
+Indeed, he had warned about the risks of a strong dollar.
 
-‘Come to think of it, it’s similar to what was said on the Nostradamus blog.’
+"Come to think of it, it's similar to what was said on the Nostradamus blog."
 
-It was a warning that fit perfectly with Kim Sung-moo's crisis management philosophy.
+It was a warning that perfectly matched Kim Sung-moo's philosophy of crisis management.
 
-At the same time, he glanced at Kim Ayoung.
+At the same time, he looked at Kim Ah-young.
 
-‘Is she really that Nostradamus?’
+"Is she really Nostradamus?"
 
 When he met Lee Hyun-woo last time, Kim Sung-moo had no choice but to believe what he said.
 
-But now, there were continuously suspicious aspects.
+However, now he was discovering more suspicious aspects.
 
-Setting aside other matters, wouldn’t parents know their own child?
+Leaving aside other things, wouldn't parents know their child?
 
-‘Even if Ayoung has economic insights beyond my expectations, it’s too early for her to discuss policies related to Japan and Germany as shown by Nostradamus.’
+"Even if Ah-young has economic insights beyond my expectations, it's too early for her to discuss policies of Japan and Germany as shown by Nostradamus."
 
-To grasp that level, one needed to accumulate tremendous experience.
+To grasp that level, one would need to accumulate tremendous experience.
 
-That too in international trade.
+That too, in the field of international trade.
 
-‘Did that guy deceive me?’
+"Did he deceive me?"
 
-There was no reason he couldn't, so after breakfast, he called Kim Tae-hyun to his office.
+It wasn't impossible, so after the meal, he called Kim Tae-hyun to his office.
 
-“Do you remember when Hyun-woo came to our house last time?”
+"Remember when Hyun-woo came to our house last time?"
 
-“Yes, father.”
+"Yes, Father."
 
-“At that time, he said Ayoung was Nostradamus.”
+"At that time, he said Nostradamus was Ah-young."
 
-“Yes? Really?”
+"What? Really?"
 
-Kim Tae-hyun's pupils, blurred by the lingering effects of alcohol, expanded significantly.
+Kim Tae-hyun's pupils, which had been blurred by alcohol, widened significantly.
 
-It showed how surprised his son was.
+It showed how surprised his son, Kim Tae-hyun, was.
 
-“Can you believe it?”
+"Can you believe it?"
 
-“I've repeatedly read the blog contents. Ayoung isn't at that level.”
+"I’ve read the blog contents multiple times, and Ah-young isn't at that level."
 
-“What if she was deliberately hiding her abilities?”
+"What if she was deliberately hiding her abilities?"
 
-“Father, you know Ayoung. Especially how she always tries not to lose to me. If she had accurately predicted the various financial outcomes, would we not have known until now?”
+"Father, you know Ah-young. Especially her competitive nature against me. If she had accurately predicted the various financial outcomes, would we have not known by now?"
 
-Kim Tae-hyun recalled specific examples after composing himself.
+Kim Tae-hyun regained his composure and brought up specific cases.
 
-“Thinking back, whenever we or Uncle or other relatives discussed things, she always butted in. She revealed shallow experience.”
+"Thinking back, whenever we had conversations between you, me, Uncle, or other elder relatives, she would always butt in. And she would expose her shallow experience."
 
-“That's true. That's why I'm suspicious. It takes at least ten years of hands-on experience in the global market to predict the chain reactions in finance.”
+"That's right. That's why I also have doubts. Predicting the chain reactions in finance requires at least ten years of practical experience in the global market."
 
-“Hyun-woo must have fabricated something. Understand him, father. I've met him a few times, and he’s very protective of his personal information.”
+"Hyun-woo must have made it up. Understand, Father. I've met him several times, and he’s very protective of his personal information."
 
-“If he lied, it’s slightly audacious... but I don’t intend to reproach him for that. But I am rather suspicious of him.”
+"If he lied, it’s a bit annoying... but I don't plan to hold it against him. But, you know, I’m rather suspicious of that guy."
 
-“Yes? What do you mean... Could Hyun-woo be Nostradamus?”
+"Are you saying Hyun-woo is Nostradamus?"
 
 Kim Sung-moo nodded.
 
-“Yes. When I talked with him back then, I felt his understanding of finance and international trade was truly remarkable.”
+"Yes. When I talked to him back then, I felt his understanding of finance and international trade was exceptional."
 
-“Hmm...”
+"Hmm..."
 
-“Even if he isn’t Nostradamus, his capabilities make me crave him. What do you think? How about keeping him by your side later on?”
+"Because of this, I became more interested in him, even if he isn’t Nostradamus. What do you think about having him by your side in the future?"
 
-“……!”
+"……!"
 
 
 ----

@@ -5,209 +5,207 @@ tags:
 ---
 
 
-This morning, Lee Hyun-woo received a call from Kim Ah-young on his way to work.
+This morning, Lee Hyun-woo received a call from Kim Ah-young while heading to work.
 
-Since he was planning to drop by Kim Sung-moo’s house after work, he gladly pressed the call button, and she said she was coming to Jungle.
+It was timely because he had to visit Kim Sung-moo's house after work, so he happily pressed the call button and found out that she was coming to Jungle.
 
-‘Is she worried about me?’
+'Is she worried about me?'
 
 Lee Hyun-woo, who has lived for half a century and returned to the past.
 
-He had met all kinds of people and experienced tremendous events, and he managed to navigate through those situations successfully, so even the head of Guseong Group couldn't take the lead in conversations and set the tone.
+He had met all kinds of people and experienced incredible events, and even in those situations, he had navigated well and risen to the top, so no matter how much the head of Guseong Group he was, he could take the lead in the conversation and set the tone.
 
 But would Kim Ah-young understand these circumstances?
 
-A little later, she approached Lee Hyun-woo with a flushed face as she saw him in front of the company.
+A moment later, she approached him with a flushed face after seeing him in front of the company.
 
 Lee Hyun-woo still had a relaxed expression.
 
-"Did you wait outside in the cold? Let's go up."
+“Did you wait outside in the cold? Let’s go up.”
 
-"Huh? Oh, okay."
+“Oh? Oh.”
 
-Even in the CEO's office, he personally brewed coffee and handed a mug to Kim Ah-young with a soft voice.
+The same continued in the CEO's office. After brewing coffee himself and pouring it into a mug, he handed it to Kim Ah-young with a gentle voice.
 
-"Here is your warm morning coffee."
+“Here’s your warm morning coffee.”
 
-"Thanks."
+“Thank you.”
 
-Kim Ah-young took the cup he handed her and warmed her hands.
+Kim Ah-young took the cup he handed her and warmed her hands. But without taking a sip, she urgently asked Lee Hyun-woo.
 
-But without taking a sip, she urgently asked Lee Hyun-woo,
+“You’re coming to our house today, right?”
 
-"You said you're coming to our house today, right?"
+“Yes, that’s right. I heard the chairman wants to see me.”
 
-"Yes, that's right. I heard the chairman wants to meet me."
+“Yes. I was surprised to hear that from my father this morning. I’m curious why he suddenly wants to see you, but I’m a bit worried.”
 
-"Yeah, I was surprised when my father mentioned it this morning. I'm curious why he suddenly wants to see you; I'm a bit worried."
+“Don’t worry too much. There’s only one reason.”
 
-"Don't worry too much. There's only one reason."
+Kim Ah-young's eyes widened like a rabbit’s.
 
-Kim Ah-young's eyes widened like a rabbit's.
+“Huh? What is it?”
 
-"Huh? What is it?"
+“He wants to know Nostradamus’s identity. That’s what he’s curious about.”
 
-"The identity of Nostradamus. It seems he wants to know about it."
+“Really? How do you know that?”
 
-"Really? How do you know that?"
+“It’s my intuition. The reason I got this feeling is that last time your oppa wanted to see me, it was for the same reason, right? Even before that, you were curious about it.”
 
-"It's a hunch. But the reason I have this feeling is because the last time your oppa wanted to see me, it was for the same reason. And you were the same before."
+Kim Ah-young retraced her memory and realized it was true.
 
-Kim Ah-young briefly reminisced about the past.
+“You’re right.”
 
-Upon reflection, it was true.
+“This time, I’ll ask. Why is your family so curious about Nostradamus?”
 
-"That's right."
+“Well….”
 
-"This time, I'll ask. Why is your family so curious about Nostradamus?"
+Kim Ah-young couldn’t give a hasty answer.
 
-"Well...."
+Seeing this, Lee Hyun-woo shared his opinion.
 
-Kim Ah-young couldn't easily answer.
+“I think it’s because there’s a strong desire to hold and control information. There’s a saying in the business world: Guseong’s information is on par with the National Intelligence Service.”
 
-Then Lee Hyun-woo shared his opinion.
+“Is there really such a saying?”
 
-"I think it's because they have a strong desire to grasp and control information. In the business world, there's a saying. The information of Guseong is at the level of the National Intelligence Service."
-
-"Is there really such a saying?"
-
-"Of course. This saying is known among the public and even to journalists."
+“Of course. It’s well-known among the public and even journalists.”
 
 Although slightly exaggerated, it was close to the truth.
 
-Kim Sung-moo, as well as the previous founder, highly valued information.
+Kim Sung-moo, as well as the previous founder, valued information highly.
 
-In the past, organizations that held such information belonged to the state.
+In the past, organizations holding such information belonged to the state.
 
-But gradually, conglomerate groups started to seize information, and eventually, they even merged with media companies skilled in handling information.
+But gradually, conglomerate groups started to grasp information, and eventually, they even merged with media companies skilled in information.
 
-For a simple example, just mentioning the relationship between Guseong Group and Sejong Ilbo would make people nod in agreement.
+For example, just mentioning the relationship between Guseong Group and Sejong Ilbo would make people nod in understanding.
 
-"That's why they are curious about the existence of Nostradamus. Moreover, it's not just an ordinary blogger; the information provided is beyond imagination. It's not only accurate about domestic information but also about international information."
+“That’s why they’re curious about Nostradamus’s existence. Moreover, it would be one thing if it were just a mere blogger, but the information he provides is beyond imagination. It’s incredibly accurate, not only about domestic affairs but also international ones.”
 
-"Now I see..."
+“I see…”
 
-Kim Ah-young nodded as if she finally understood and looked intently at Lee Hyun-woo.
+Nodding as if she finally understood, Kim Ah-young gazed intently into Lee Hyun-woo’s eyes.
 
-"Then what will you say if my father asks about the identity of Nostradamus?"
+“Then what will you say if my father asks about Nostradamus’s identity?”
 
-"Well, I haven't decided yet."
+“Well, I haven’t decided yet.”
 
-"So, it means you know who Nostradamus is."
+“So that means you know who Nostradamus is.”
 
-"Of course, I do."
+“Of course, I know.”
 
-After a brief pause, Lee Hyun-woo smiled and spoke again.
+Taking a beat, Lee Hyun-woo smiled and opened his mouth again.
 
-"It's me."
+“It’s me.”
 
-"What?"
+“What?”
 
-"I'm Nostradamus."
+“I’m Nostradamus.”
 
-"...!"
+“……!”
 
-Kim Ah-young's eyes danced in disbelief.
+For a moment, Kim Ah-young’s eyes danced.
 
-She was so shocked that she asked Lee Hyun-woo again.
+She was so shocked.
 
-"You're Nostradamus?"
+She was so surprised that she asked Lee Hyun-woo again.
 
-"Yes, it's me. And now, besides me, the only person who knows this is..."
+“You’re Nostradamus?”
 
-"..."
+“Yes, it’s me. And besides me, now….”
 
-"Only you."
+“…….”
 
-The shock began to blend with a sweet emotion.
+“You’re the only one who knows.”
 
-She wanted to smile because she felt good, but she held back and said,
+From astonishment, a sweet emotion began to seep in.
 
-"So, you might tell my father that you are Nostradamus."
+Feeling pleased but holding back a smile, she said,
 
-"Maybe, maybe not. But if I do tell him, it would be very troublesome."
+“So you might tell my father that you’re Nostradamus.”
 
-"You're right. And he might not like it very much. So, Hyun-woo...."
+“I might, or I might not. But if I do tell him, it’ll be really bothersome.”
 
-At this point, she seemed to have made up her mind, took a deep breath, and continued.
+“Right. And he might not like it very much. So, Hyun-woo….”
 
-"I just thought of this, but tell my father that I am Nostradamus."
+At this point, she seemed to have made up her mind and took a deep breath before continuing.
 
-"Huh?"
+“I just thought of this, but tell my father that I’m Nostradamus.”
 
-This time, Lee Hyun-woo's eyes widened.
+“Huh?”
 
-Kim Ah-young explained why he should reveal her as Nostradamus.
+Now it was Lee Hyun-woo’s turn for his eyes to widen.
 
-"If you tell him that, it might save you from trouble."
+Kim Ah-young explained her reason for saying she was Nostradamus.
 
-"That could be true, but what about you? Some of the things Nostradamus mentioned are related to Guseong. There's also the case with the Boham Group...."
+“If you say that, you won’t be bothered.”
 
-"I know. I might get scolded a bit. I can handle that."
+“That might be true, but what about you? Some of the things Nostradamus mentioned are related to Guseong. There’s also the Bohang Group incident….”
 
-"They will also ask for your motives. Why did you do it?"
+“I know. I might get a little scolded. I can handle that.”
 
-"Well...."
+“But he’ll also ask for the motive, why you did it?”
 
-Since it was a spontaneous decision, she couldn't answer Lee Hyun-woo’s question.
+“That…”
 
-Maybe that’s why Lee Hyun-woo quickly helped her.
+Since it was a spontaneous decision, she couldn’t answer Lee Hyun-woo’s question.
 
-"Tell them you wanted to understand the economic trends both domestically and internationally."
+Perhaps because of this, Lee Hyun-woo quickly helped her.
 
-"Huh?"
+“Say you wanted to understand the economic trends both domestically and internationally.”
 
-"Predicting the strong dollar and Japan's financial policies was a remarkable feat. The chairman will be amazed at your intuition."
+“Huh?”
 
-"That's true. But knowing my father, I don't think he will ask for a reason."
+“It’s quite a feat to have predicted the strong dollar and Japan’s financial policies. The chairman might be impressed by your intuition.”
 
-"Really?"
+“That makes sense. But knowing my father, he probably won’t ask for a reason.”
 
-"He will either say don't do it or do it. It will be one of the two, without any explanation."
+“Really?”
+
+“He’ll just say either do it or don’t. Without further explanation.”
 
 Lee Hyun-woo nodded.
 
-Come to think of it, he had seen similar words in Kim Sung-moo’s autobiography.
+Thinking about it, he recalled a passage from Kim Sung-moo’s autobiography.
 
-— My father always accompanied me to the front lines of management and ordered me to do many things directly. But he never explained them in detail.
+― My father always took me along in business matters and ordered me to handle many things directly. However, he never explained them in detail.
 
 Perhaps Kim Sung-moo was educating his children in the same way his father, the founder, had taught him?
 
-‘I’m not sure if it’s similar, but one thing is certain.’
+‘Whether it’s similar or not, one thing is certain.’
 
-Nostradamus needs to be sealed from now on.
+Nostradamus would have to be sealed from now on.
 
-Anyway, after talking with Kim Ah-young, Lee Hyun-woo visited Kim Sung-moo's house in the evening and revealed the identity of Nostradamus.
+Anyway, after talking with Kim Ah-young, Lee Hyun-woo visited Kim Sung-moo’s house in the evening and revealed the identity of Nostradamus.
 
 * * *
 
-Kim Sung-moo, who rarely showed surprise, widened his eyes and seemed to be at a loss for words for a moment.
+Kim Sung-moo, who rarely showed surprise, widened his eyes and seemed at a loss for words for a moment.
 
-But this was brief; as expected, the giant showed a different reaction.
+But soon, as expected of the giant, he showed a different side.
 
-Kim Sung-moo naturally changed the topic and discussed domestic and international situations with Lee Hyun-woo.
+Kim Sung-moo naturally shifted the topic and discussed the domestic and international situation with Lee Hyun-woo.
 
-After the solo meeting in the office ended, Kim Sung-moo said he hoped to see him again, to which Lee Hyun-woo responded with a smile.
+Eventually, the private meeting in the office ended, and as Kim Sung-moo expressed hope to meet again later, Lee Hyun-woo smiled and said,
 
-“Lunar New Year is coming soon. It might be late, but I wish you a Happy New Year in advance.”
+“Lunar New Year is coming soon. Although it might be too early or too late, Happy New Year.”
 
-“Come to pay your respects next time.”
+“Come by next time for the New Year’s bow.”
 
 “Yes, I will.”
 
-Lee Hyun-woo laughed at the ambiguous term "next time."
+Lee Hyun-woo smiled at the ambiguous term “next time.”
 
-He didn't know if it meant the upcoming Lunar New Year or next year.
+He couldn’t tell if it referred to the upcoming Lunar New Year or the following year.
 
-‘This family celebrates the Solar New Year.’
+‘So this family celebrates the solar New Year.’
 
-In any case, seeing each other frequently is essential to changing the mindset of the head of a conglomerate.
+In any case, frequent visits would be necessary to change the mindset of the head of the conglomerate.
 
-Thinking that he should approach this with an "if it doesn't work out, never mind" attitude, he left the room.
+Thinking that he should approach it with an “if it doesn’t work out, never mind” attitude, he stepped out of the office.
 
 * * *
 
-When Lee Hyun-woo came out of the office, the people of the house gathered around again.
+When Lee Hyun-woo came out of the office, the family members of the house gathered again.
 
 Among them, Kim Tae-hyun asked,
 
@@ -215,137 +213,137 @@ Among them, Kim Tae-hyun asked,
 
 “Yes, haha.”
 
-“Shall we have a little chat?”
+“Then can we talk for a moment?”
 
 “Sure.”
 
-It was now time to talk with Kim Tae-hyun.
+This time, it was Kim Tae-hyun's turn to talk.
 
-At that moment,
+But at that moment,
 
-“A-young, come in for a moment.”
+“Ah-young, come here for a moment.”
 
-Kim Sung-moo calling Kim Ah-young caught everyone's attention, including Lee Hyun-woo’s.
+Kim Sung-moo called Kim Ah-young, which caught the attention of everyone, including Lee Hyun-woo.
 
-Naturally, people were curious.
+Naturally, curiosity began to arise among the people.
 
-Why did Kim Sung-moo, who had just met Lee Hyun-woo alone, suddenly call Kim Ah-young?
+Why did Kim Sung-moo, who had met privately with Lee Hyun-woo, suddenly call Kim Ah-young?
 
 What did they talk about?
 
-Especially, the second daughter, Kim A-jin, and the youngest, Kim Na-yoon, had wild imaginations.
+Especially, the second daughter Kim Ah-jin and the youngest Kim Na-yoon imagined wildly.
 
-‘Is it possible that father liked this guy and is encouraging my sister to date him?’
+‘Could it be that our father likes this guy and is encouraging unnie to date him?’
 
-On the other hand, Kim Tae-hyun, who was interested in a different topic, pulled Lee Hyun-woo to his room and asked related questions.
+On the other hand, Kim Tae-hyun, who was interested in different matters, dragged Lee Hyun-woo to his room and asked related questions.
 
-“What did you say? Why is he calling An-young suddenly? Is there a problem with our joint venture in Japan?”
+“What did you say? Why did he suddenly call Ah-young? There’s no problem with our joint venture in Japan, is there?”
 
-“No way. I just received a call from Japan today, saying that progress is faster than expected and that we might start the portal site and online shopping next month.”
+“No way? I got a call from Japan today, and they said progress is faster than expected, so we might be able to start the portal site and online shopping next month.”
 
-“That’s good news. Then why is father calling An-young?”
+“That’s good to hear. So why did father call Ah-young?”
 
-Lee Hyun-woo quickly shrugged.
+Lee Hyun-woo shrugged quickly.
 
-“I really don’t know.”
+“I’m not sure either?”
 
 “Really?”
 
-“Yes, our conversation was mostly about the economic trends domestically and internationally.”
+“Yes, we just talked about the domestic and international economic trends.”
 
-Although it was true, he didn't mention revealing the identity of Nostradamus.
+It was true, but he didn’t mention revealing Nostradamus’s identity.
 
 Even if Kim Tae-hyun found out later, he wouldn’t feel bad.
 
-His sibling was the one who hid more from Lee Hyun-woo, so the feeling of betrayal would likely be directed in that direction.
+His sister had kept more from him than Lee Hyun-woo had, so any sense of betrayal would flow in that direction.
 
-‘But isn’t this making An-young take too much upon herself?’
+‘But this way, Ah-young will have to bear too much?’
 
-It wasn’t the desired direction, and there was no need for Kim Ah-young to go this far.
+It wasn’t the direction he wanted, and there was no need for Kim Ah-young to do this for him.
 
-‘I feel bad for her.’
+‘I feel bad for no reason.’
 
-Lee Hyun-woo thought he should do something nice for Kim Ah-young later.
+Lee Hyun-woo thought he’d have to make it up to Kim Ah-young somehow later.
 
-Also, through this, he could read Kim Ah-young’s feelings once more.
+Also, he could read Kim Ah-young’s mind again this time.
 
-‘She definitely has feelings for me.’
+‘She definitely seems to have feelings for me.’
 
-On his way home after talking with Kim Tae-hyun, he briefly indulged in imagination.
+As he finished talking with Kim Tae-hyun and headed home, he briefly let his imagination run wild.
 
-What if he had a ‘passionate romance’ with Kim Ah-young?
+What if he had a “hot romance” with Kim Ah-young?
 
-Firstly, he would always have a bodyguard with him.
+First, he’d always have a bodyguard with him.
 
-Secondly, Chairman Kim Sung-moo might recommend studying abroad to him.
+Second, Chairman Kim Sung-moo might encourage him to study abroad.
 
-Thirdly, Guseong might start the process of absorbing Jungle.
+Third, Guseong might begin the process of absorbing Jungle.
 
-Fourthly, the eldest son, Kim Tae-hyun, might keep a close watch on him.
+Fourth, the eldest son, Kim Tae-hyun, might become very wary of him.
 
-Although these conclusions were ‘might happen,’ it wasn't entirely impossible.
+Though these were all hypothetical, they weren’t entirely impossible.
 
-At least in his previous life, the person who became Kim Ah-young’s husband had to study abroad due to Kim Sung-moo’s insistence and endured tremendous stress to qualify as a son-in-law.
+At least in his past life, Kim Ah-young’s husband had gone abroad to study due to Kim Sung-moo’s pressure and had undergone tremendous stress to qualify as a son-in-law.
 
-‘Oh dear, I need to think this through a bit more.’
+‘Oh, I need to think this through a bit more.’
 
-Lee Hyun-woo suddenly felt that troublesome things might come his way and took a deep breath.
+Feeling that a bothersome situation might arise, Lee Hyun-woo took a deep breath.
 
-Even though he dreamed of a passionate romance in his new life, he didn't want to achieve it while being very troubled.
+In his reborn life, he had dreamed of a passionate romance but didn’t want to realize it while feeling very bothered.
 
-With these thoughts, as soon as he reached home, his phone rang.
+As he arrived home with these thoughts, his phone rang.
 
-‘It must be A-young.’
+‘It must be Ah-young.’
 
-His premonition pointed to her, and indeed, it was Kim Ah-young when he answered the call.
+His intuition pointed to her, and indeed, when he answered, it was Kim Ah-young.
 
 (Hyun-woo, it’s me.)
 
-“Oh, A-young.”
+“Oh, Ah-young.”
 
 Lee Hyun-woo was curious.
 
-What did Kim Sung-moo talk about with her?
+What did she talk about with Kim Sung-moo?
 
-‘Did he really not ask why she did that?’
+‘Did he really not ask why she did it?’
 
-But he decided to wait until Kim Ah-young shared.
+But he decided to wait until she told him.
 
 Anyway, he didn’t have to wait long.
 
-Kim Ah-young immediately told Lee Hyun-woo about her conversation with Kim Sung-moo.
+Kim Ah-young immediately shared what she talked about with Kim Sung-moo.
 
-(I called because I thought you might be worried. Father asked if I was Nostradamus and didn’t say much else.)
+(I called because I thought you might worry, but my father asked if I was Nostradamus and didn’t say anything else.)
 
 “Really?”
 
-(Yes, he didn’t say not to do it either. Instead, he said he trusts me.)
+(Yes, he didn’t tell me not to do it either. Instead, he said he trusts me.)
 
 “Ah….”
 
-Once again, the contents of Kim Sung-moo’s autobiography came to mind.
+Once again, Lee Hyun-woo recalled something from Kim Sung-moo’s autobiography.
 
-Although he loved all his children, Kim Sung-moo especially cherished his eldest daughter.
+Although no parent has a finger that doesn’t hurt, Kim Sung-moo particularly cherished his eldest daughter.
 
-When Kim Ah-young first joined to inherit the hotel, he stayed at Seorabeol Hotel for a month, openly showing his concern.
+When Kim Ah-young first joined the hotel to inherit it, he stayed at Seorabeol Hotel for a month, openly showing his concern.
 
-It was very rare for him to give such support to his own child.
+Such support for his children was very rare.
 
-It never happened with his eldest son, Kim Tae-hyun, or his second daughter, Kim A-jin.
+It hadn’t happened with his eldest son Kim Tae-hyun or his second daughter Kim Ah-jin.
 
-‘This wasn’t favoritism but a result of feeling sorry for not being able to be there for A-young during her childhood compared to his other children.’
+‘It wasn’t favoritism but rather guilt for not being able to be with her as much compared to his other children.’
 
-Unlike her siblings, Kim Ah-young's childhood was during a time when Kim Sung-moo was fiercely fighting for succession and couldn't pay much attention to her.
+Unlike her siblings, during Kim Ah-young’s childhood, Kim Sung-moo couldn’t pay much attention to her due to intense succession battles.
 
-She must have been his sore spot since then, and later, her marriage and divorce with a bodyguard would have only deepened that feeling.
+She had undoubtedly been his aching finger since then, and her marriage to a bodyguard and subsequent divorce must have made her an even more painful memory.
 
-‘Thinking about it this way, I feel sorry for A-young.’
+‘Thinking about it makes me feel sorry for Ah-young.’
 
-It was a fleeting moment, but these thoughts occurred to him.
+It was a long thought, but it was just a fleeting moment.
 
-After these thoughts ended, he felt he should treat her well.
+When the thought ended, he resolved to treat her well.
 
-Like this, Lee Hyun-woo wavered.
+Like this, Lee Hyun-woo also wavered.
 
 Why? Because relationships between men and women never go as planned.
 

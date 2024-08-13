@@ -5,225 +5,229 @@ tags:
 ---
 
 
-Lee Hyun-woo felt uneasy, so he went to see Kim Ah-young after work the next day.
+Lee Hyun-woo felt uneasy, so the next day after work, he went to see Kim Ah-young.
 
-It seemed like it was his first time going to 【Seorabeol Hotel】 without any particular purpose.
+In his memory, it seemed like it was the first time he visited Seorabeol Hotel without any specific purpose.
 
-Then, the following day, Kim Ah-young came to see him without any particular purpose.
+Then the next day, Kim Ah-young came to him without any specific purpose.
 
-‘Maybe meeting like this every day will lead to a relationship somewhere between friends and lovers?’
+‘Maybe by seeing each other like this every day, a relationship between friends and lovers might form?’
 
-Strictly speaking, she could still be called a female friend.
+If he had to classify it, she could still be considered just a female friend.
 
-Lee Hyun-woo thought that this kind of relationship wouldn't be bad.
+Lee Hyun-woo thought that this kind of relationship wouldn’t be bad.
 
-If they were to define their relationship, it seemed like it would be burdensome for both of them.
+If their relationship was defined, it seemed like it would become burdensome for both of them.
 
-‘Eventually, a moment of decision will come.’
+‘Someday, a moment of decision will come.’
 
 * * *
 
 The next day, Woo Sang-won and Jang Yoo-chul departed for Germany.
 
-They planned to visit two research institutes before returning.
+They planned to return after visiting two research institutes.
 
-One was 【Dachshund Institute】, where a forum on the openness of portal sites would be held.
+One was the Dachshund Institute, where a forum on the openness of portal sites was being held.
 
-The other was 【Front Hof Institute】.
+The other was the Front Hoff Institute.
 
-Since it was the place that developed MPEG, it was essential to visit it to justify the legitimacy of 【Jungle Music】, which services MP3s.
+It was the place that developed MPEG, and they had to visit it for the legitimacy of Jungle Music, which serviced MP3s.
 
-On the way back after dropping them off at the airport, Lee Hyun-woo told Lee Jung-woo about it.
+On the way back from taking them to the airport with his younger brother, Lee Hyun-woo told Lee Jung-woo about it.
 
-“From now on, copyrights should be treated as valuable assets.”
+“From now on, copyrights are assets that cannot be handled carelessly.”
 
-“I know. It's something you consider very important, hyung. That's why you were running around for the rights of copyright holders last time.”
+“I know. It’s something you take really seriously. That’s why you’ve been running around for the rights of copyright holders.”
 
-This referred to the 50% distribution rate given to singers, composers, and lyricists when a song is sold.
+This referred to the 50% distribution rate given to singers, composers, and lyricists when selling songs.
 
-“It seems like more singers are debuting since then.”
+“Since then, it seems like more singers are debuting.”
 
-“Ayy, they must have been preparing originally.”
+“Well, it’s probably people who were originally preparing.”
 
 “That might be true, but Team Leader Han said that the number of people dreaming of becoming singers, composers, and lyricists has increased tremendously.”
 
 “Really?”
 
-“Yes.”
+“Yeah.”
 
-So, in this life, will he see new faces of singers more often?
+So, in this life, will he see more new faces of singers?
 
-Maybe he could accelerate the spread of Hallyu even earlier.
+Maybe he could advance the Korean Wave even earlier.
 
-Thinking this, Lee Hyun-woo smiled brightly and said,
+With this thought, Lee Hyun-woo smiled broadly and said.
 
-“It wouldn't be bad for us if many appear.”
+“If many appear, it won’t be bad for us.”
 
-“Right. Currently, the structure is that as much as is supplied, it is sold. By the way, what's with this song?”
+“That’s right. Currently, as much as is supplied is being sold. By the way, what’s with this song?”
 
-“Huh? What's wrong?”
+“Huh? What?”
 
-“The song is kind of... never mind.”
+“This song is a bit… never mind.”
 
 Lee Hyun-woo frowned slightly as he listened to the song playing on the radio.
 
-The song was by DJ Brothers,
+The song was by DJ Brothers.
 
-‘It sounds similar yet different.’
+‘It’s similar yet different.’
 
-It was similar to a song he heard in his past life but had some differences.
+It seemed similar to the songs he heard in his past life, but there were differences.
 
-Such songs had become more frequent recently.
+Recently, there had been many songs like this.
 
-He wondered if this phenomenon occurred because he returned to the past.
+Maybe it was a phenomenon that occurred because Lee Hyun-woo returned to the past.
 
-Although the world he was reborn into seemed like a parallel universe, not everyone could act or speak in the same way.
+Even though the world he was reborn into looked like a parallel world, not everyone could act or speak the same way.
 
-Just as his younger brother’s character had changed, so had the creative works.
+Just like how his younger brother’s character had changed.
+
+Creative works also began to change.
 
 Songs, dramas, movies, novels, etc.
 
-‘Tch, reruns are better for these things.’
+‘Tch, reruns are better for this.’
 
-As he aged, Lee Hyun-woo enjoyed the 90s sentiment more.
+Lee Hyun-woo, who enjoyed the sentiment of the 90s more as he aged.
 
-But since his return, he had lived immersed in that sentiment.
+And then, he indulged in that sentiment while living after his return.
 
 ‘Sigh.’
 
-Maybe he had to live in a new world where the songs he heard wouldn’t play, and the movies he watched wouldn’t be released.
+Maybe he had to live in a new world where the songs he heard didn’t play and the movies he watched didn’t premiere.
 
-That was quite... disappointing.
+That was quite… disappointing.
 
 * * *
 
-When he got home and logged into 【Jungle Music】, it had gotten worse.
+When he got home and logged into Jungle Music, it became even more pronounced.
 
 ‘Wow, I don’t know any of the recent songs.’
 
-It seemed that last year’s songs were released as they had been prepared beforehand.
+Last year’s songs were probably released as they had been prepared.
 
-However, since Lee Hyun-woo appeared, the preparation process seemed to have changed.
+But from the point when Lee Hyun-woo appeared, the preparation process might have changed.
 
 ‘Is this some kind of butterfly effect?’
 
-Just as the flap of a small butterfly's wings can create a hurricane, it seemed Lee Hyun-woo’s influence had completely spread to the music industry, drastically reducing the chances of appreciating the masterpieces of the era.
+Just like the flap of a butterfly’s wings could create a hurricane, Lee Hyun-woo’s influence seemed to have completely spread to the music industry, making it very unlikely to enjoy the masterpieces of the era.
 
-Looking more closely, the songs that should have been released at the end of last year didn’t exist.
+After looking more closely, he found that songs that should have been released at the end of last year didn’t exist.
 
-‘Damn.’
+‘Damn it.’
 
-Then, a sudden thought struck him.
+Then a thought struck him.
 
-If a song was a hit in his past life, wouldn’t it be popular in this life too?
+If it was a hit in his past life, wouldn’t it also be a hit in this life?
 
-‘Then I just need to make it come out.’
+‘Then I should make it come out.’
 
 Not that he planned to make money by creating songs.
 
-He just wanted some of the songs he enjoyed listening to in this life to be released. So he picked up the phone and called someone.
+He just wanted some of the songs he enjoyed listening to in this life to come out, so he picked up the phone and called somewhere.
 
 (Hello?)
 
-It was a female singer he knew, Kim Yoon-sun, who answered.
+It was answered by a female singer Lee Hyun-woo knew, Kim Yoon-seon.
 
-“Are you busy right now?”
+“Are you busy?”
 
-(No, I’m taking a break from recording.)
+(No, I’m fine. I was just taking a break from recording.)
 
-During New Year's, they had exchanged texts, and Kim Yoon-sun had mentioned that she was working on an album aiming for next month.
+Last Lunar New Year, while exchanging texts, Kim Yoon-seon told Lee Hyun-woo that she was working on an album aiming for next month.
 
 (Do you have something to say?)
 
-“Yeah, I suddenly remembered a song, but I’m not sure if I heard it somewhere or if it’s just in my head.”
+“Yeah, a song suddenly came to mind, and I’m not sure if I’ve heard it somewhere.”
 
 (What?)
 
-“I’ll sing a bit of it. Can you listen and tell me if it’s a song that already exists?”
+“I’ll sing a bit, so could you listen and tell me if you’ve heard it before?”
 
 (…….)
 
-The silence from the other end suggested she found it a bit absurd.
+A somewhat baffled silence came from the other end of the line.
 
-But Lee Hyun-woo didn’t care and started singing.
+But Lee Hyun-woo started singing without caring.
 
-“Because of that man, I might lose a friend~ The friend I relied on in difficult times.”
+“Because of that man, I might lose a friend~ The friend I leaned on whenever I was having a hard time~”
 
-He recalled this part of the chorus.
+This was the chorus he remembered.
 
 The title was "Love Forgiven by Heaven."
 
-“This is the highlight... Have you heard it before?”
+“This part is the highlight… have you heard it before?”
 
 (No?)
 
-“Ah, really?”
+“Oh, really?”
 
-He contacted Kim Yoon-sun to check if he had missed anything,
+Lee Hyun-woo contacted Kim Yoon-seon to confirm if he might have missed something.
 
-(But it sounds good? Is it a guy’s song?)
+(But it’s good? Is it a man’s song?)
 
-She seemed to think it was a man’s song since he sang it in a lower key.
+Her evaluation was positive.
 
-So Lee Hyun-woo decided to go for it.
+Since he sang it in a lower key, she seemed to think it was a man’s song.
 
-“No, no. Actually, the melody and lyrics keep lingering in my head.”
+So Lee Hyun-woo went for it.
+
+“No, no. Actually, it’s been lingering in my head. The melody and lyrics.”
 
 (Really?)
 
-“Yes, I keep checking 【Jungle Music】, wondering if I heard it somewhere... Do you know the feeling of humming a song you think you’ve heard before but can’t quite place?”
+“Yeah, I’ve been checking Jungle Music whenever I have time. Because of this, I wonder if I’ve heard it somewhere… Do you know that feeling? When you keep humming a song that sounds familiar but can’t place it.”
 
-(Of course. And if you can’t figure out what it is, it drives you crazy. Anyway, while we’re at it, keep singing the other parts.)
+(Of course. And it drives you crazy if you don’t know what song it is. Anyway, go ahead and sing the other parts.)
 
-“I don’t have the full lyrics, and earlier, I just made them up as I went along. Should I just hum it?”
+“This doesn’t have proper lyrics, and I just made them up earlier. Should I just hum it?”
 
 (Sure, go ahead.)
 
-“Alright. Even if I’m tone-deaf, please understand.”
+“Okay. Even if I’m tone-deaf, bear with me.”
 
-(As I mentioned before, your low voice is really charming. Keep singing in that key.)
+(I told you before, your low voice is really attractive. So keep singing in that key.)
 
-Encouraged by her words, Lee Hyun-woo began to hum with greater confidence.
+Lee Hyun-woo, encouraged by her words, began to hum with renewed confidence.
 
-“Hmm, hmm, hmm, hmm, drawn to him, hmm, hmm, hmm, hmm, I wished for it.”
+“Hmm, hmm, hmm, hmm, drawn to him, hmm, hmm, hmm, hmm, hmm, hmm, hmm, I wished.”
 
-Interspersing some remembered lyrics, he continued singing, and he could hear Kim Yoon-sun’s breathing become quieter.
+As he sang, occasionally inserting the lyrics he remembered, there was no sound of breathing from Kim Yoon-seon.
 
-Lee Hyun-woo seemed determined to revive this song.
+It seemed Lee Hyun-woo was determined to revive this song.
 
-He was doing something over the phone that he wouldn’t have done in his previous life.
+He was doing something he wouldn’t have done in his past life, singing into the phone.
 
-‘Anyway, doing things I didn’t do in my previous life is the goal of this life.’
+‘Anyway, trying everything I didn’t do in my past life is the goal of this life.’
 
-Thinking this, Lee Hyun-woo finished singing.
+Thinking this, Lee Hyun-woo finished the song.
 
 (Wow, this song is really good.)
 
 “Really?”
 
-(Did you... create this song?)
+(Did you… by any chance, make this song?)
 
 “I don’t know.”
 
 (What do you mean you don’t know?)
 
-“As I said earlier, I might have heard it somewhere. It might have been in a dream.”
+“Like I said earlier, I might have heard it somewhere. It feels like I heard it in a dream.”
 
-(That’s nonsense.)
+(No way.)
 
-“It’s true. Also, it feels like a woman sang it in my dream. So can you sing it in your key and record it? You can piece the lyrics together as you see fit.”
+“Really. And in the dream, it felt like a woman was singing it. So could you record it in your key? And piece the lyrics together.”
 
-This was actually Lee Hyun-woo’s plan.
+Actually, this was Lee Hyun-woo’s plan.
 
-‘Although she’s not the original singer, I can listen to this song recorded in Yoon-sun’s voice in the future, right?’
+‘Even though you’re not the original singer, I can keep listening to this song recorded in Yoon-seon’s voice.’
 
-With a meaningful smile, he waited for her response, and an unexpected proposal came.
+With a meaningful smile, he waited for her answer, and an unexpected proposal came out.
 
-(Hyun-woo, I suddenly got a strong feeling about this song. If it really has no owner, can I sing it?)
+(Hyun-woo, I suddenly got a ‘feel’ for this song. If it really doesn’t have an owner, can’t I sing it?)
 
-“Sure, I called you to sing and record it.”
+“That’s why I asked you to record it.”
 
-(No, I mean I want to include it in my next album.)
+(No, I mean, I want to include it in my next album.)
 
 “What? Really?”
 
@@ -231,115 +235,113 @@ With a meaningful smile, he waited for her response, and an unexpected proposal 
 
 “Haha…”
 
-It would be a lie to say he hadn’t imagined this scenario.
+If he denied this development, that would be a lie.
 
-But he didn’t expect it to progress so quickly.
+He just didn’t expect it to proceed so quickly.
 
-Originally, he intended for Kim Yoon-sun to keep singing the song until she got used to it, then subtly suggest including it in her album.
+Originally, he hoped that once Kim Yoon-seon got used to singing the song, she would consider including it in her album.
 
-‘It’s unfolding so smoothly!’
+‘Everything is going smoothly from the start!’
 
-With a clenched fist, a smile spread across Lee Hyun-woo’s face.
+Lee Hyun-woo clenched his fist and smiled.
 
-“Then I guess we can’t keep talking over the phone? When you have time, come to our office.”
+“Then we can’t keep talking on the phone. When you have time, come to our company.”
 
-(Okay. I’ll go to your office tomorrow.)
+(Great. I’ll go to your company tomorrow.)
 
-She seemed to genuinely like the song, given her eagerness.
+Seeing her rush, it seemed she really liked the song.
 
 ‘But what about the lyrics?’
 
-That part was somewhat disappointing.
+That part was a bit disappointing.
 
-No matter how good Lee Hyun-woo’s memory was, he couldn’t remember all the lyrics of a particular song.
+No matter how good Lee Hyun-woo’s memory was, he couldn’t remember all the lyrics of a specific song.
 
-But the charm of this song lay in its lyrics.
+But the charm of this song was in its lyrics.
 
-The theme included a touch of taboo, about falling in love with a friend’s man.
+A theme with a touch of taboo about falling for a friend’s boyfriend.
 
 ‘I’ll have to explain it in detail tomorrow.’
 
 * * *
 
-The next day, unexpectedly, Kim Ah-young ended up listening too.
+The next day, unexpectedly, Kim Ah-young also ended up listening to it.
 
-Since she had been coming almost daily without any particular purpose, he couldn’t stop her, and things turned out that way.
+Since she came almost every day without any specific purpose, he couldn’t stop her, and that’s how it turned out.
 
-‘Oh dear.’
+‘This is awkward.’
 
-Lee Hyun-woo realized it took more courage to do it in front of someone than not seeing their face.
+Realizing it required more courage to sing in front of someone than over the phone, Lee Hyun-woo still used the karaoke machine microphone in the basement cafe to sing, mixing the ‘hmm, hmm’ sounds and lyrics.
 
-Nevertheless, he used the karaoke machine microphone in the basement cafe, mixing ‘hmm hmm’ sounds with lyrics to sing.
+Both Kim Yoon-seon and Kim Ah-young clapped their hands in delight.
 
-Both Kim Yoon-sun and Kim Ah-young clapped and liked it.
-
-“Hey, this is good, right?”
+“Hey, this is good.”
 
 “Right? Right?”
 
-“It kept lingering in my head and on the tip of my tongue, driving me crazy. I thought it would be better for a current singer to sing it, so I called you yesterday.”
+“It kept lingering in my head and on the tip of my tongue, driving me crazy. I thought it would be better for a professional singer to sing it, so I called you yesterday.”
 
-“You did well, Hyun-woo.”
+“Well done, Hyun-woo.”
 
-“I can’t wait to hear this song recorded in Yoon-sun’s voice.”
+“I can’t wait to hear this song recorded in Yoon-seon’s voice.”
 
-Today, Lee Hyun-woo had introduced the two as friends right away when they met.
+Today, Lee Hyun-woo introduced the two as friends as soon as they met.
 
-It was to create a natural and comfortable conversation atmosphere.
+It was to create a natural conversation atmosphere without any awkwardness.
 
-So, Kim Ah-young spoke informally to Kim Yoon-sun without hesitation, and Kim Yoon-sun smiled warmly, creating a friendly scene.
+So Kim Ah-young spoke casually to Kim Yoon-seon, and Kim Yoon-seon also smiled brightly, showing a harmonious scene.
 
-“For reference, I searched all day yesterday to see if there was an original creator of this song, but I couldn’t find one. I even searched foreign songs just in case.”
+“By the way, I checked all day yesterday to see if this song had an original creator, but I couldn’t find any. I even searched through foreign songs just in case.”
 
 “Really? Is that possible?”
 
-“Yes, our company’s search engine is very smart. If you enter the commands correctly, it will find it.”
+“Yes, our company’s search engine is very smart. If you type in the right command, it will come up.”
 
-Although it didn’t quite make sense, Kim Yoon-sun seemed to believe him with a somewhat naive look.
+Though it didn’t make much sense, Kim Yoon-seon seemed to believe it with a naive look.
 
-Without missing a beat, Lee Hyun-woo quickly explained the meaning of the song.
+Without missing the moment, Lee Hyun-woo quickly explained the meaning of the song.
 
 Then he added,
 
 “I’ll leave the rest of the lyrics to you.”
 
-“To me?”
+“Me?”
 
-“Yes, this time, you can take credit for both composing and writing the lyrics.”
+“Yes, this time you can both compose and write the lyrics.”
 
-“How can I do that? The song is practically made by you.”
+“No, how can I do that? The song is practically made by you.”
 
-“How would I know about composing? I just sang what came to my mind. I was the worst at music in school, you know. I don’t even know musical notes well. You put the notes together and complete it properly, okay?”
+“How would I know how to compose? I just sang what came to mind. I was the worst at music in school. I don’t even know the musical notes well, so you can put the notes together properly and complete it. Got it?”
 
-“……”
+“…….”
 
-Kim Yoon-sun stared silently at Lee Hyun-woo.
+Kim Yoon-seon looked at Lee Hyun-woo silently.
 
-Then she turned her gaze to Kim Ah-young.
+Then she suddenly turned her gaze to Kim Ah-young.
 
-As if she needed her approval too.
+As if she needed her permission too.
 
-It was unclear how she interpreted it, but Kim Ah-young continued in a bright voice,
+Whatever that meant, Kim Ah-young, reading it, spoke brightly,
 
-“I’m looking forward to it. I really want to hear you sing this song. Will you do it?”
+“I’m looking forward to it. I definitely want to hear this song sung by you. Will you do it?”
 
-Kim Yoon-sun smiled bashfully and nodded.
+Kim Yoon-seon smiled bashfully and nodded.
 
-“Alright. I’ll raise the pitch to fit a female key and try it. And I’ll attach proper lyrics.”
+“Okay. I’ll raise the key to a female pitch as you sang and try it. And I’ll properly attach the lyrics.”
 
-“How long will it take? Ah, I’m asking out of excitement, not impatience. I’m looking forward to it.”
+“How long will it take? Oh, I’m not hurrying you. I’m just curious.”
 
-When Lee Hyun-woo asked again, Kim Yoon-sun responded with a confident voice while still smiling,
+When Lee Hyun-woo asked again, Kim Yoon-seon answered with a confident voice without losing her smile.
 
 “I have a feeling it won’t take long.”
 
-Her voice was filled with certainty.
+Her voice was full of conviction.
 
 The reason was simple.
 
-Today, seeing the interaction between Lee Hyun-woo and Kim Ah-young, she felt that their relationship was not ordinary.
+Seeing Lee Hyun-woo and Kim Ah-young’s interaction today, she felt that the two had something special going on.
 
-‘For some reason, I feel like I can perfectly incorporate my current feelings into this song.’
+‘Somehow, I feel like I can properly put my current feelings into this song.’
 
 
 ----

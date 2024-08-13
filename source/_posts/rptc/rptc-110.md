@@ -5,39 +5,39 @@ tags:
 ---
 
 
-Kim Tae-hyun, who came outside to the yard, responded to Kim Sung-moo's recommendation by saying he would think about it.
+Kim Tae-hyun, who came out to the yard with a response to think about Kim Sung-moo's suggestion.
 
-‘Father was thinking similarly to me.’
+‘Father had similar thoughts to mine.’
 
-However, keeping Lee Hyun-woo by his side wasn't an easy task.
+However, keeping Lee Hyun-woo by his side was not an easy task.
 
-Since it was impossible for him to leave Jungle, Guseong had to acquire that company.
+Since it was impossible for him to leave Jungle, Guseong would have to acquire that company.
 
-In the past, it could have been bet at a reasonable price, but now its value was increasing day by day.
+In the past, they could have bet at an appropriate price, but now the value was increasing daily.
 
-Therefore, it was clear that the second method was being considered.
+Therefore, it was clear that he had the second method in mind.
 
-‘Ah-young’s partner?’
+‘A match for Ah-young?’
 
-Kim Tae-hyun was well aware that the two had been getting closer recently.
+Kim Tae-hyun was also well aware that the two had been getting close recently.
 
 And he thought about having Lee Hyun-woo as his brother-in-law.
 
 ‘Not bad.’
 
-Strategic marriages were frequent in chaebol families.
+Arranged marriages were common among chaebols.
 
-It was clear that one day both Kim Tae-hyun and Kim Ah-young would be tied to other chaebol groups as needed.
+Someday, both Kim Tae-hyun and Kim Ah-young would certainly be tied to other chaebol families out of necessity.
 
-Although Lee Hyun-woo wasn't from a chaebol family, he was showing abilities that surpassed that background.
+Although Lee Hyun-woo was not from a chaebol family, he was showing abilities that surpassed such a background.
 
-Moreover, it seemed that Kim Ah-young didn't dislike him.
+Moreover, it seemed that Kim Ah-young did not dislike him.
 
-‘Good. I'll help speed up the relationship between the two of you.’
+‘Alright. I'll help speed up the relationship between you two.’
 
 After thinking this far, Kim Tae-hyun picked up the phone and found Lee Hyun-woo's number.
 
-The phone didn't ring for long before he answered.
+It didn't take many rings before he answered.
 
 (Hello?)
 
@@ -45,327 +45,325 @@ The phone didn't ring for long before he answered.
 
 (Oh, hyung.)
 
-“You’re doing well, right?”
+“How have you been?”
 
 (Of course. I miss you.)
 
-This was one of Lee Hyun-woo's great points.
+This was one of Lee Hyun-woo's remarkable traits.
 
-Even when he was just saying it, it somehow made one feel good.
+Although it was just a casual remark, it somehow felt good.
 
 “Nonsense?”
 
-(It’s not nonsense. There are many things I want to ask.)
+(It's not nonsense. I have a lot to ask you.)
 
 “Really?”
 
-(Yes, please make some time.)
+(Yes, please make some time for me.)
 
-For some reason, he smelled something fishy this time.
+For some reason, there was a hint of suspicion this time.
 
-But he couldn't refuse.
+But it was impossible to refuse.
 
 Kim Tae-hyun also wanted to meet him.
 
-“Perfect. I wanted to see you too.”
+“That's great. I wanted to see you too.”
 
-(Really? Because of what….)
+(Really? For what reason...)
 
-“I want to introduce you to someone who would be good for you to know.”
+“I wanted to introduce you to someone you might get along with.”
 
-(Can't it be just the two of us?)
+(Can't it just be the two of us?)
 
-“No, what do you want to ask this time?”
+“No, what are you planning to ask?”
 
-(It’s nothing special. I'm just curious if Guseong is really jumping into the acquisition of Geukdong Gas.)
+(Nothing special. I was just curious if Guseong is really jumping into the acquisition of Geukdong Gas.)
 
-“You are very interested in our family matters. That’s not something I can talk about carelessly. I'll tell you when we get closer.”
+“You're very interested in our family's affairs. That's not something I can casually talk about, but I'll tell you once we get closer.”
 
-(That’s disappointing. It sounds like we aren't that close.)
+(That's disappointing. It sounds like we're not that close.)
 
-“Never mind, just concede this time.”
+“Enough, this time you have to concede.”
 
-(Haha…)
+(Haha...)
 
-He laughed awkwardly, indicating he didn't like it.
+His awkward laughter indicated reluctance.
 
-Indeed, from what he had seen, the guy was a workaholic.
+Indeed, from what he saw, the guy was a workaholic.
 
-He denies it, but that’s deceiving himself.
+He might deny it, but that was deceiving himself.
 
-“Aren't you tired of always talking about work? It seems like you work day and night anyway. Take this opportunity to enjoy life a bit. Okay?”
+“Aren't you tired of always talking about work? It seems like you work day and night. Why don't you take this chance to enjoy life a bit, huh?”
 
-(What do you mean I only work? I love having fun.)
+(What do you mean always working? I love having fun.)
 
-“Then you’ll make time, right?”
+“Then you'll make time, right?”
 
-(Well… yes, I understand. But specifically who are you introducing?)
+(Well... Yes, I understand. But who exactly are you introducing me to?)
 
-“Our peers among our relatives. You’ll probably like them when you meet them.”
+“Our peers. You'll probably like them once you meet them.”
 
-The advantage of chaebol children was that they were generous to others.
+The advantage of chaebol children was their generosity.
 
-The disadvantage was that they were generous even when it wasn't wanted.
+The downside was that they gave even when it wasn't wanted.
 
-Kim Tae-hyun was no different, and he had a simplistic belief that if he gave, the other person would unconditionally like it.
+Kim Tae-hyun was the same, believing that if he offered, the other party would unquestionably appreciate it.
 
-So, it created uncomfortable situations when rejected,
+Hence, rejecting it would create an awkward situation.
 
-(Okay. Let me know the time and date.)
+(Alright. Let me know the time and date.)
 
-Fortunately, Lee Hyun-woo gave an okay sign.
+Fortunately, Lee Hyun-woo gave the okay sign.
 
-‘Why am I worrying about this guy?’
+‘Why am I being so anxious about this guy?’
 
-This wasn’t how it started, but somehow he had lost the initiative.
+This wasn't how it started, but somehow the initiative had been taken away.
 
-So, he pulled himself together and said,
+So he snapped out of it and said,
 
-“Oh, I’ll call you again later about that. Okay?”
+“Ah, I'll call you back with the details later. Alright?”
 
 (Yes, hyung.)
 
-After hanging up the phone, Kim Tae-hyun pressed the end button.
+After ending the call, Kim Tae-hyun pressed the end button.
 
-Just then, someone’s voice was heard.
+At that moment, he suddenly heard someone's voice.
 
 “Oppa! What are you doing?”
 
 Turning around, it was Kim Ah-young.
 
-“You scared me. How much did you hear?”
+“Wow, since when did you hear?”
 
 “Hyun-woo, it's me.”
 
-“Oh, you heard everything from the beginning. Why are you eavesdropping on the phone like a cat?”
+“Ah, you heard from the beginning. Why do you sneak up on phone calls like a cat?”
 
-“Why are you calling the relatives and involving Hyun-woo with them?”
+“Why are you calling relatives and including Hyun-woo?”
 
-“Why don’t you try fixing your habit of only saying what you want to say?”
+“Why do you always insist on speaking your mind without thinking?”
 
-“Hurry and tell me why you're calling them.”
+“Just tell me why you called them.”
 
 “Because it would be beneficial for both sides.”
 
-“Don’t you know how rude they are? They look down on people like it’s nothing. How can you call Hyun-woo to such a place?”
+“Don't you know how rude they can be? How can you bring Hyun-woo to such a place?”
 
-“Well, they are the ones who will take over their own companies eventually. It would be good for Hyun-woo to get acquainted with the advertisers.”
+“Well, they are the ones who will inherit their companies someday. It would be good for Hyun-woo to meet the advertisers.”
 
-Of course, he was also calling Lee Hyun-woo to show off a bit, but there was another purpose.
+Of course, there was also the intention of showing off to Lee Hyun-woo, but there was another purpose as well.
 
 ‘If he becomes part of our family later, he needs to get used to the atmosphere.’
 
-But he didn’t say that to Kim Ah-young.
+However, he didn't say that to Kim Ah-young.
 
 Instead,
 
-“Honestly, we owe Hyun-woo a bit. I think this is a good way to repay him.”
+“Honestly, we did get some help from Hyun-woo. I think this is a good way to repay him.”
 
-As he spoke soothingly, Kim Ah-young showed a complicated expression.
+When he spoke soothingly, Kim Ah-young showed a complex expression.
 
-‘You have nothing to say, right? Because what I’m saying is true.’
+‘You have nothing to say, right? Because what I'm saying is true.’
 
-Come to think of it, his sister seemed to like Lee Hyun-woo.
+Anyway, it seemed that his younger sister liked Lee Hyun-woo.
 
-When he talked about something good for Lee Hyun-woo, she, who always refuted, kept her mouth shut.
+When he mentioned something good for Lee Hyun-woo, her usual argumentative self remained silent.
 
-Right now, he strangely envied her.
+At this moment, he strangely envied her.
 
-‘Damn, can I also marry a woman I like?’
+‘Damn, will I ever get to marry a woman I love?’
 
-Somehow, he felt he couldn't.
+For some reason, it didn't seem likely.
 
-‘Sigh…’
+‘Sigh...’
 
-He sighed inwardly.
+A sigh escaped inwardly.
 
 * * *
 
 That afternoon, Lee Hyun-woo received another call from Kim Tae-hyun.
 
-The date was the next day, and the location was the Seorabeol Hotel.
+The date was the next day, and the place was Seorabeol Hotel.
 
-‘This is it.’
+‘Oh boy.’
 
-Honestly, it wasn't something he was thrilled about.
+To be honest, it wasn't something he was particularly keen on.
 
-It felt like he was getting more entangled with the Guseong family.
+It felt like he was getting increasingly entangled with the Guseong family.
 
-Even though he felt uneasy, there was a reason he accepted.
+Despite the uneasy feeling, there was a reason he accepted.
 
 He wanted to know if Guseong was really acquiring Geukdong Gas.
 
-If that happened, their entry into the automobile industry would be delayed, and the risk of over-investment in the future would be reduced.
+If that happened, their entry into the automobile industry would be delayed, and the risk of overinvestment later would be reduced.
 
-In his past life, due to Guseong's entry into the automobile industry, other domestic automobile companies executed more development and facility investments.
+For reference, in his previous life, Guseong's entry into the automobile industry led other domestic car companies to spend more on development and facility investments.
 
-So, if these parts headed in a different direction, he felt that the small flutter of a butterfly's wings could calm the storm of the financial crisis.
+So, if this part could be directed differently, the small flap of a butterfly's wings might quell the storm of the financial crisis.
 
-‘And for Ah-young's sake, I’ll go along this time.’
+‘And for Ah-young, I'll let it slide this time.’
 
-Last year and this year.
+Last year, and this year.
 
-He realized that she was changing a lot to match him.
+He realized that she was trying to change a lot to match him.
 
-Watching that process, he found Kim Ah-young slowly entering his heart.
+Watching the process, Kim Ah-young gradually entered his heart.
 
-‘At this rate, I might actually fall for her.’
+‘At this rate, we might really fall in love.’
 
-Now, instead of thinking ‘why it can't work,’ he started thinking ‘is there really a reason it shouldn't work?’
+Now, instead of thinking about the ‘reasons it can't happen,’ the thought of ‘is there really a reason it can't happen’ started to dominate his mind.
 
-Then he heard the phone ring again and chuckled.
+Then, hearing the phone ring again, he chuckled.
 
-‘Since her oppa called, the younger sister will contact me again.’
+‘Since oppa called, now the younger sister will call me.’
 
-This morning, Kim Ah-young had said the same thing.
+Even this morning, Kim Ah-young had said,
 
-Telling him there was no need to listen to her brother.
+‘There's no need to listen to oppa.’
 
-But since he had already made up his mind, he thought of telling her he had made his decision as he answered the phone,
+But since he had already made up his mind, he thought he would tell her that he decided and answered the phone.
 
 (Hello?)
 
-Unexpectedly, it was Choi Sun-hwa from the Aejung Group.
+Unexpectedly, it was Choi Sun-hwa from Aejeong Group.
 
 “Oh? Long time no see.”
 
-(It’s not really been that long. Every time I’ve called to ask you to make some time, you’ve always turned me down.)
+(It hasn't been that long. Every time I call and ask you to spare some time, you always refuse.)
 
-Suddenly, he recalled the times he had received Choi Sun-hwa's calls last year and this year.
+Suddenly, scenes of receiving calls from Choi Sun-hwa from last year to this year came to mind.
 
-Strangely, something had always come up on those days.
+Strangely, something was always going on those days.
 
 Recently, it was the day Lee Jung-woo and Oh Min-woo returned from abroad.
 
-― You told me to contact you after work, but today doesn’t work either.
+― You told me to call after work, but it seems today doesn't work either.
 
-― Really sorry. Contact me in advance next time.
+― I'm really sorry. Please contact me in advance next time.
 
-So, she must have contacted him before he even got off work today.
+So, she must have called before work ended today.
 
 ‘Coincidentally, something always came up.’
 
-Feeling sorry, he thought he should make it up.
+Feeling sorry, he couldn't refuse.
 
-“Ah, I’m sorry. I should treat you to something big.”
+“Ah, I'm sorry. I owe you a big one.”
 
-(Oh, trying to act nice without even checking if I’m available today.)
+(Oh, without even asking if I'm available today.)
 
-It felt like she was saying,
+It sounded as if she meant,
 
-So you thought I would just come running?
+‘Did you think I'd come running just because you said so?’
 
-Lee Hyun-woo smiled as he responded to her words.
+Lee Hyun-woo chuckled and responded.
 
-“I didn’t mean today. Of course, today works too. Oh, and tomorrow won’t work. Thinking about it, the day after tomorrow won’t work either.”
+“I wasn't talking about today. Although today works too, tomorrow is off the table. Now that I think about it, the day after tomorrow doesn't work either.”
 
-(Tch… Fine. I’ll come over now.)
+(Tch... Okay. I'll come now.)
 
-Eventually, Choi Sun-hwa gave up.
+Eventually, Choi Sun-hwa gave in.
 
-(But you owe me a drink today.)
+(But you have to buy me a drink today.)
 
 * * *
 
-Choi Sun-hwa was a huge client of Jungle.
+Choi Sun-hwa was a significant customer of Jungle.
 
-Not only because of the advertising, but also because the low-priced cosmetics had become a big hit, making her one of the most influential figures in online shopping.
+Not only for advertising, but her low-cost cosmetics were a hit, making it one of the most popular items on online shopping platforms.
 
-However, she had never exercised power over Lee Hyun-woo.
+However, she had never mistreated Lee Hyun-woo.
 
-Rather, she had called him several times to treat him to delicious food, thanks to his advice that led to her success.
+Rather, having succeeded with Lee Hyun-woo's advice, she had called several times to treat him to a nice meal.
 
-After all those failed attempts, today she got to have a drink with him.
+Since all those attempts had failed, today, she could get a drink from Lee Hyun-woo.
 
-And it was at a bar in Gangnam.
+At a bar in Gangnam, no less.
 
-“Did I suggest too fancy a place?”
+“Did I suggest too expensive a place?”
 
-“No, it’s fine.”
+“No, it's fine.”
 
-“Alright then. You make a lot of money, so you must treat me today.”
+“Alright. You make a lot of money, so you should definitely treat me today.”
 
-Sometimes she was too straightforward, but that was her charm.
+Sometimes she was too straightforward, but her honesty was her charm.
 
 Lee Hyun-woo smiled and nodded.
 
-“Of course I should. But you’re doing quite well too. These days, I see MISS. A ads everywhere I go.”
+“Of course. But you're doing pretty well too. These days, Miss. A is everywhere on the streets.”
 
-MISS. A is Aejung Cosmetics' low-cost brand.
+Miss. A was the low-cost brand of Aejeong Cosmetics.
 
-Catching the change in consumer trends accurately, it was gaining sensational popularity among teenage and twenty-something women.
+By capturing the change in consumer trends, it was wildly popular among teenage and young women.
 
-“It’s all thanks to your advice. Like you said, a moment's choice determines a decade of success. Because I followed your advice to plan a low-cost brand, this is the result.”
+“It was all thanks to your advice. As the saying goes, a moment's choice decides ten years, your suggestion to design a low-cost brand led to this outcome.”
 
-“Wow, so you’re admitting you’re making a lot of money. No, you should treat me.”
+“Wow, you're admitting you make a lot of money. I changed my mind. You should treat me.”
 
-“Okay, you rascal.”
+“Alright, you rascal.”
 
-Though they had met the least number of times, thanks to her straightforward personality, they quickly became close.
+Although he had met Choi Sun-hwa the least, her straightforward personality quickly brought them close.
 
-Maybe that's why Lee Hyun-woo felt like he was meeting a male friend rather than a female one.
+Maybe that's why, but Lee Hyun-woo felt more like he was meeting a male friend than a female one.
 
-“By the way, did you expect the low-cost brand to become this popular?”
+“Did you expect it to take off like this? The low-cost brand?”
 
-“Of course. Cosmetics are too expensive, especially for teenagers and those in their twenties. But if you remove just a bit of the markup, it would catch on quickly. As you know, the markup is ridiculous. The sales commission alone accounts for over 40% of the consumer price.”
+“Of course. Cosmetics are too expensive. They're out of reach for teenagers and young adults. But if you trim the fat a bit, they would immediately catch on. You know how inflated the prices are. The sales commission alone takes up over 40% of the consumer price.”
 
-“Wow, you know so much.”
+“Wow, you know this very well.”
 
-“I know a bit. Plus, the advertising and promotional costs are 25%, and distribution and marketing costs are another 25%. So, they’re inflating the price tenfold.”
+“Of course. Plus, advertising and promotional costs are 25%, distribution and marketing costs are another 25%. So, it’s like inflating it tenfold.”
 
-“You should also subtract the research and development costs.”
+“Don't forget about R&D costs.”
 
-“Research and development costs? In the premium market, R&D costs are significant, but for low-cost cosmetics, they replace the ingredients with more economical ones.”
+“R&D costs? Premium markets spend a lot on R&D, but low-cost cosmetics just replace ingredients with economical ones.”
 
-“This is crazy. I can’t deceive you.”
+“This is crazy. I can't deceive you.”
 
-Though speaking casually, Choi Sun-hwa was increasingly surprised.
+Though speaking casually, Choi Sun-hwa was increasingly amazed.
 
 Lee Hyun-woo was only twenty-eight.
 
-What on earth had he done before to know so much about the pricing and distribution structure of cosmetics?
+What did he do before to know so much about the pricing and distribution structure of cosmetics?
 
-“And recently, door-to-door sales aren't as effective, and the premium market in department stores is relatively in a slump, right?”
+“And recently, the door-to-door sales aren't as effective, and the premium market in department stores is relatively in a slump, right?”
 
-“Did you ever work for a cosmetics company?”
+“Did you work in a cosmetics company?”
 
-“No. I studied it a bit in college.”
+“No. I studied this in college.”
 
-“You studied that?”
+“You studied this?”
 
-“Yes, I researched the cases of different products.”
+“Yes, I researched case studies of different products.”
 
-It was hard to believe, but that’s what he said, so what could she do?
+It was hard to believe, but he said so, so what could she do?
 
 However,
 
-“Theory and practice are different, aren’t they?”
+“Theory and practice are different, aren't they?”
 
-This was the lingering question.
+This doubt remained.
 
-“Has anyone succeeded in applying theory to practice as much as I have?”
+“Is there anyone who has successfully applied theory to practice as much as I have?”
 
-“So, all your businesses were like that?”
-
-“Of course.”
-
-“Honestly, I have nothing else to say but amazing.”
+“Were all your businesses like that?”
 
 “Of course.”
 
-“Then what's the next big thing? What do you think will be the next big hit?”
+“I can only say you're amazing.”
 
-“Do you think I’ll reveal such secrets for free?”
+“That’s also a given.”
 
-“No way. Drink! Drink! Spill some secrets after drinking.”
+“So, what's the next big hit? What do you think will be the next big success?”
 
-Today, it was expensive whiskey.
+“Do you think heavenly secrets are revealed for free?”
 
-She was determined to get him to treat her, so she ordered it, and as she sipped it bit by bit, her eyes began to show a slight flush.
+“That's not fair. Drink up! Drink up! Drink and spill some heavenly secrets.”
 
-Seeing that, Lee Hyun-woo flinched.
+Tonight, it was expensive whiskey.
 
-Recently, Kim Ah-young had shown him a similar look.
+She ordered it, determined to get him to buy her a drink, and now, seeing her eyes slightly tinged with a flush from sipping it, Lee Hyun-woo flinched.
+
+Kim Ah-young had shown him such eyes not long ago.
 
 
 ----
