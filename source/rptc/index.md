@@ -88,9 +88,39 @@ date: 2024-08-05 11:10:54
 [Chapter 78](/rptc/rptc-78/)
 [Chapter 79](/rptc/rptc-79/)
 [Chapter 80](/rptc/rptc-80/)
+[Chapter 81](/rptc/rptc-81/)
+[Chapter 82](/rptc/rptc-82/)
+[Chapter 83](/rptc/rptc-83/)
+[Chapter 84](/rptc/rptc-84/)
+[Chapter 85](/rptc/rptc-85/)
+[Chapter 86](/rptc/rptc-86/)
+[Chapter 87](/rptc/rptc-87/)
+[Chapter 88](/rptc/rptc-88/)
+[Chapter 89](/rptc/rptc-89/)
+[Chapter 90](/rptc/rptc-90/)
+[Chapter 91](/rptc/rptc-91/)
+[Chapter 92](/rptc/rptc-92/)
+[Chapter 93](/rptc/rptc-93/)
+[Chapter 94](/rptc/rptc-94/)
+[Chapter 95](/rptc/rptc-95/)
+[Chapter 96](/rptc/rptc-96/)
+[Chapter 97](/rptc/rptc-97/)
+[Chapter 98](/rptc/rptc-98/)
+[Chapter 99](/rptc/rptc-99/)
+[Chapter 100](/rptc/rptc-100/)
+[Chapter 101](/rptc/rptc-101/)
+[Chapter 102](/rptc/rptc-102/)
+[Chapter 103](/rptc/rptc-103/)
+[Chapter 104](/rptc/rptc-104/)
+[Chapter 105](/rptc/rptc-105/)
+[Chapter 106](/rptc/rptc-106/)
+[Chapter 107](/rptc/rptc-107/)
+[Chapter 108](/rptc/rptc-108/)
+[Chapter 109](/rptc/rptc-109/)
+[Chapter 110](/rptc/rptc-110/)
 
-<!-- for i in {31..50}; do echo "[Chapter $i](/rptc/rptc-$i/)"; done -->
-<!-- for i in {31..50}; do hexo new rptc "rptc-$i"; done -->
+<!-- for i in {81..110}; do echo "[Chapter $i](/rptc/rptc-$i/)"; done -->
+<!-- for i in {81..110}; do hexo new rptc "rptc $i"; done -->
 
 ----
 
