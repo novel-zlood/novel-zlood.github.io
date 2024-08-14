@@ -269,7 +269,7 @@ date: 2024-08-05 11:10:54
 [Chapter 259](/rptc/rptc-259/)
 [Chapter 260](/rptc/rptc-260/)
 
-<!-- for i in {231..260}; do echo "[Chapter $i](/rptc/rptc-$i/)"; done -->
+<!-- for i in {261..270}; do echo "[Chapter $i](/rptc/rptc-$i/)"; done -->
 <!-- for i in {231..260}; do hexo new rptc "rptc $i"; done -->
 
 ----
