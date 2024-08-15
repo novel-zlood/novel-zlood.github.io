@@ -5,273 +5,271 @@ tags:
 ---
 
 
-The following conversation between key personnel of 【Jungle】 to prevent Lee Hyun-woo's early retirement is quite dramatic.
+The following conversation between key members of Jungle to prevent Lee Hyun-woo's early retirement is nothing short of captivating.
 
-"So, we'll hold on with Jamie Wang next week, then solidify our stance with the web browser war until the end of the year, and then meet Steven Job to enter the portal site war?"
+“So, for now, we hold out with Jamie Wang next week, set the mood with the web browser war until the end of the year, and then meet Steven Job to get into the portal site war?”
 
-"That's very likely. It seems like he's already started the portal site fight. He emphasized design to me, so it feels like he's preparing for a war with 【Pineapple】."
+“That’s likely. It seems like the portal site fight has already begun. He’s been emphasizing design to me, preparing for the war with 【Pineapple】.”
 
-"That war is going to be really intense."
+“That war is going to be intense.”
 
-The voice of Oh Min-woo followed that of Jang Yoo-chul and Woo Sang-won.
+Following Jang Yoo-chul and Woo Sang-won’s statements, Oh Min-woo spoke up.
 
-"It seems the others are not going to take it lying down. Both 【Macro Soft】 and 【Pineapple】, and even 【Give and Take】, aren't staying still."
+“The opponent isn’t planning to just take it quietly. Neither 【Macro Soft】 nor 【Pineapple】, and even 【Give and Take】, are just sitting still.”
 
-Everyone turned their gaze to Oh Min-woo's face at the mention of the three companies in succession.
+Everyone turned their eyes to his face at the mention of the three companies.
 
-His expression clearly indicated that something significant was unfolding.
+Oh Min-woo’s expression conveyed that something significant was happening.
 
-As if admitting this, Oh Min-woo began to talk about his recent chat with Mikhail Face.
+Acknowledging this, Oh Min-woo brought up a recent chat he had with Mikhail Pace.
 
-Woo Sang-won tilted his head and asked, "Mikhail? You mean Mikhail Face, the founder of 【Give and Take】?"
+Woo Sang-won tilted his head and asked, “Mikhail? You mean Mikhail Pace, the founder of 【Give and Take】?”
 
-"Yes, that's right."
+“Yes, that’s right.”
 
-"Damn, what did that guy say? Because of him, our 【Jungle Music】's revenue is dropping."
+“Damn, what did that guy say? Because of him, our 【Jungle Music】 revenue is dropping.”
 
-Jang Yoo-chul, who was obsessed with MP3, got excited.
+Jang Yoo-chul, who is obsessed with MP3s, got agitated.
 
-In fact, P2P sites were being created in Korea these days, and due to the 'Give and Take' which was their prototype, illegal uploads and downloads were increasing.
+In fact, P2P sites were being created in Korea these days, and due to the ‘Give and Take’ that originated them, illegal uploads and downloads were increasing.
 
-Oh Min-woo, calming his excitement, continued to speak.
+Oh Min-woo calmed his excitement and continued.
 
-"Hold on for a moment. I have something to say. That guy declared war on us."
+“Just hold on. I need to tell you something. That guy declared war on us.”
 
-"What kind of war declaration?"
+“What kind of declaration?”
 
-"Don't be surprised. To overthrow 【Jungle】, three companies have united: 【Macro Soft】, 【Pineapple】, and 【Give and Take】."
+“Don’t be surprised. To defeat 【Jungle】, three companies have united. 【Macro Soft】, 【Pineapple】, and 【Give and Take】.”
 
-"What?"
+“What?”
 
-"……!"
+“……!”
 
-"No way…"
+“No way…”
 
-Even Woo Sang-won seemed shocked.
+Woo Sang-won also seemed surprised.
 
 He asked again to confirm.
 
-"Are you serious?"
+“Is that true?”
 
-"Yes, it's true. It will soon be in the news. The three companies are challenging the 【Jungle】 and 【Yaho】 alliance with a jointly developed search engine."
+“Yes, it’s true. It’ll be in the news soon. They’re challenging the 【Jungle】 and 【Yaho】 alliance with a jointly developed search engine.”
 
-"Alliance? We're just using 【Yaho】's search engine."
+“Alliance? It’s just that 【Yaho】 is using our search engine.”
 
-"Still, the announcement to the public was that we would jointly research a better search engine in the future."
+“Still, the official announcement said we’re joining hands to research a better search engine together.”
 
-Han Se-jin, who was always courteous, rarely spoke informally.
+Han Se-jin, always polite, rarely spoke informally. This was no exception.
 
-This time was no different.
+He continued, eyes sparkling as he discussed joint research.
 
-Gleaming eyes while talking about joint research, he continued to share his opinion.
+“Why don’t we join forces this time?”
 
-"But how about we join hands at this opportunity?"
+“With whom? Jamie Wang?”
 
-"With whom? With Jamie Wang?"
+“Yes, if those three companies unite, it’ll be no joke. Honestly, we need allies too.”
 
-"Yes, if those three companies unite, it would be serious, and honestly, we need allies too."
+“You mean a strategic alliance. Not a bad idea.”
 
-"You mean to form a strategic alliance. Not a bad idea."
+“What’s the use if only we think so? The CEO hyung has to think the same.”
 
-"But what good is it if only we think that way? The CEO hyung-nim must think the same too."
-
-"Strength in unity. We should advise all at once. Then even the stubborn hyung-nim will surely accept it."
+“Strength in unity. If we all advise him together, even the stubborn hyung will surely accept.”
 
 * * *
 
-Indeed, after spending the weekend, they went to Lee Hyun-woo together on Monday.
+Indeed, after the weekend, they all went together on Monday to talk to Lee Hyun-woo.
 
-They suggested that if the three companies unite, an enormous synergy effect would surely occur, so they should join hands with 【Yaho】 for a joint response.
+They said that if the three companies united, there would be tremendous synergy, so they should join hands with 【Yaho】 for a joint response.
 
-Lee Hyun-woo's eyebrows raised.
+Lee Hyun-woo raised his eyebrows.
 
-"Joint response?"
+“Joint response?”
 
-"Yes, we need to join hands with Jamie Wang. We are in a crisis now."
+“Yes, we need to join hands with Jamie Wang. It’s a crisis situation.”
 
-"Also, the atmosphere is not bad. Last time in Taiwan, they agreed on a cooperative competitive relationship, and in Hong Kong, it was Jamie Wang who immediately accepted our search engine. They will surely accept our proposal."
+“Also, the mood isn’t bad. Last time in Taiwan, we agreed on a cooperative competition, and in Hong Kong, Jamie Wang promptly accepted our search engine. She will surely accept our proposal.”
 
-"It seems we can't fight alone. After all, we lack capital power."
+“We can’t fight alone. We lack the capital.”
 
-"I also 100% agree with the directors' thoughts."
+“Yes, I 100% agree with the directors’ thoughts.”
 
-Finally, as Woo Sang-won declared, Lee Hyun-woo remained silent for a moment.
+Finally, Woo Sang-won declared, and Lee Hyun-woo kept his mouth shut for a moment.
 
-'Originally, I was planning to guide Jamie Wang on a tour to places like Gyeongbokgung Palace when she arrives.'
+‘Originally, I planned to guide Jamie Wang on a tour to places like Gyeongbokgung Palace when she arrived.’
 
-Of course, Jamie Wang had her 【Yaho Korea】 promotion duties, but she had already entrusted a day's schedule to Lee Hyun-woo, making it possible.
+Of course, Jamie Wang had her 【Yaho Korea】 promotional duties, but as she had already entrusted Lee Hyun-woo with her daily schedule, it was possible.
 
-But to talk about work there?
+Talking business while there?
 
-"Just to clarify, I'm not suggesting meeting solely for business. According to the two secretaries I asked earlier, you were planning to visit Gyeongbokgung Palace that day, right? You can talk enough while seeing the palace and then respond together to the alliance of 【Macro Soft】. I came to you because I thought it wouldn't be bad. If it was too sudden, I truly apologize."
+“I’m saying this to avoid misunderstanding, but I don’t mean to meet just for business. I heard from the two secretaries that you planned to go to Gyeongbokgung that day, right? You can discuss it while touring the palace, and then join hands to respond to the 【Macro Soft】 alliance. We came to you together because we thought it wouldn’t be bad. If it was too sudden, we’re really sorry.”
 
-As expected, a position makes a person, Woo Sang-won not only organized well but also gave Lee Hyun-woo a reason and some leeway.
+As expected, the position makes the person; Woo Sang-won not only organized well but also gave Lee Hyun-woo justification and relaxation.
 
-With no other choice, Lee Hyun-woo smiled.
+With no choice, Lee Hyun-woo smiled.
 
-"Alright. I'll talk with her."
+“Alright. I’ll talk to her.”
 
-The four people in the CEO's office smiled with satisfaction.
+The four people left the CEO’s office with satisfied smiles on their faces.
 
 * * *
 
 After work that day.
 
-"It feels like something has reversed between me and my company's employees."
+“I feel like something has reversed between me and the employees of our company.”
 
 Lee Hyun-woo lamented with a smile to Kim Ah-young.
 
-"Reversed? Why?"
+“Reversed? Why?”
 
-"They keep bringing work to me. It's like they're driving the company into an explosive atmosphere."
+“They keep bringing work to me. They’re pushing the company into a tense atmosphere.”
 
-"Something happened?"
+“Something happened?”
 
-When she asked, Lee Hyun-woo told her about the three companies teaming up to block 【Jungle】.
+When she asked, Lee Hyun-woo told her about the three companies uniting to block 【Jungle】.
 
-"Wow… really?"
+“Wow… really?”
 
-"Yeah, that's how it turned out. But even if the three companies unite to jointly research a search engine, the end is already determined."
+“Yes, that’s how it’s gone. But even if those three unite to co-develop a search engine, the end is already set.”
 
-"The end is determined?"
+“The end is set?”
 
-"I mean the level of technology will eventually become similar, and then it will be a content battle."
+“What I mean is, the level of technology will become similar, and it’ll eventually be a content battle.”
 
-As always, this time too, Lee Hyun-woo's voice showed a hint of ease and confidence.
+As usual, Lee Hyun-woo’s voice had a hint of leisure and confidence.
 
-If caught up in technology, they would win with content.
+If they catch up with technology, he’ll win with content.
 
-"Ah, of course, it's not that I don't want to talk business with Jamie Wang. Of course, it would be better if we join hands with 【Yaho】."
+“Oh, it’s not that I don’t want to discuss business with Jamie Wang. Of course, joining hands with 【Yaho】 would be better.”
 
-"And?"
+“But?”
 
-"What people want is to win in the web browser war, portal site war, search engine war, etc. But as you know, these wars never end. Won't another war arise after that? Your 【Guseong】 and 【GB】 are the same. You've been in a back-and-forth battle for quite some time."
+“What people want is to win in the web browser war, portal site war, search engine war, etc.? But as you know, there’s no end to such wars. Won’t there be another war after that? Isn’t it the same with your 【Guseong】 and 【GB】? You’ve been at it for quite a while.”
 
-"True. But are you saying you don't want to fight? Maybe you're afraid of losing?"
+“That’s right. But do you hate fighting? Are you afraid you’ll lose?”
 
-It felt like Kim Ah-young was provoking him, but Lee Hyun-woo, after choosing his words carefully, shook his head.
+It felt like Kim Ah-young was provoking him, but Lee Hyun-woo shook his head after choosing his words.
 
-"No. The probability of me losing is close to zero. But I don't know if you know me well, but once I start something, I have to see it through to the end. But as I said earlier, these wars never end. After winning the web browser war, and then the search engine and portal site, what next? Another war will be waiting for me…"
+“No. The chances of me losing are close to zero. But I don’t know if you know me, I’m the type to finish once I start. But as I said, there’s no end to such wars. Winning the web browser war, then the search engine and portal site battles? Another war will be waiting for me…”
 
-"……."
+“……”
 
-"When will I retire… I wonder."
+“When can I retire…”
 
-"Didn't you set the standard last time? You said you would become number one in the information and communication industry, cultivate a successor, and hand over the company."
+“Didn’t you set a standard last time? To be number one in the information and communication industry, nurture a successor, and hand over the company?”
 
-"Yeah, that's true, but…"
+“Yes, that’s right…”
 
-"Then draw the line right there. Just quickly achieve the goal. Isn't that right?"
+“Then just draw the line there. Achieve your goal quickly. Isn’t that right?”
 
-It was a simple but clear answer.
+Simple but clear.
 
-And one that Lee Hyun-woo also knew.
+It was the answer Lee Hyun-woo knew too.
 
-"I guess so?"
+“Should I?”
 
-"If you can't avoid it, enjoy it. It was something you told me sometimes."
+“If you can’t avoid it, enjoy it. Didn’t you tell me that sometimes?”
 
-"Right, I should enjoy it. Okay, then. Decision made. Become number one in the information and communication industry and retire early. Wait, I should set standards for this too. Should it be by market capitalization, revenue, or profit? What should it be?"
+“Right, I should enjoy it. Okay, then it’s decided. Be number one in the information and communication industry and retire early. Wait, I should set a standard for this too. Should it be by market capitalization, sales, or profits? Which one?”
 
-"Of course, it should be all three."
+“Of course, all three.”
 
-Kim Ah-young didn't hesitate.
+Kim Ah-young didn’t hesitate.
 
 There was a reason.
 
-- Sister-in-law, Hyung keeps talking about early retirement, so please try to dissuade him a bit. A company can collapse as quickly as it grows. And with so many companies going under these days.
+- Sister-in-law, Hyung keeps talking about early retirement, can you stop him? Companies can fall as fast as they grow, right? Especially these days, companies are collapsing one after another.
 
-Lee Jung-woo had contacted her before she came here.
+Before coming here, she had received a call from Lee Jung-woo.
 
-But even without his request, Kim Ah-young wanted to keep Lee Hyun-woo in active duty a bit longer.
+But even without his request, Kim Ah-young wanted to keep Lee Hyun-woo in the field a bit longer.
 
 She had her ambitions too.
 
-'Market capitalization, revenue, profit.'
+‘Market capitalization, sales, profits.’
 
-She knew well how hard it was to beat 【Macro Soft】, which was number one in the industry with these three.
+She knew well how hard it would be to beat 【Macro Soft】, which is number one in the industry, in these three aspects.
 
-Yet, Lee Hyun-woo smiled and nodded.
+Yet Lee Hyun-woo nodded with a confident smile.
 
-"Alright, then I'll become number one as quickly as possible and retire."
+“Alright, then I’ll be number one in the shortest time and retire.”
 
-Lee Hyun-woo spoke as if he was retrieving something he'd left behind, showing his confidence.
+Lee Hyun-woo spoke as if he was fetching an item he had left behind, showing his confidence.
 
-It was truly fascinating.
+It’s quite amazing.
 
-When he said such things, it felt like he would really achieve it.
+When he says such things, it really feels like he’ll achieve it.
 
 * * *
 
-Two days later, a major article was published in the United States.
+Two days later, a major article came out in the United States.
 
-『Three IT companies jointly research a search engine!』
+『Three IT Companies Jointly Research Search Engine!』
 
 The mentioned companies were 【Macro Soft】, 【Pineapple】, and 【Give and Take】.
 
-Moreover, the most surprised by this article was Joe Murphy of 【Jungle USA】.
+Also, the person most surprised by this article was Joe Murphy of 【Jungle USA】.
 
-'They're uniting? To confront us?'
+‘They’re joining forces? To challenge us?’
 
-Of course, it was to confront 【Jungle】, known for having the best search engine technology.
+Of course, they joined forces to compete against the technically superior 【Jungle】 search engine.
 
-Consequently, in the stock market, the stock prices of 【Macro Soft】 and 【Pineapple】 were soaring.
+As a result, the stock prices of 【Macro Soft】 and 【Pineapple】 were hitting their upper limits.
 
-Although the main products of the two companies were operating systems and computers respectively, the market perceived that they would dominate the portal site with a technically advanced search engine.
+Although the main products of the two companies were operating systems and computers, the market saw them as clearing the portal sites with a technically strong search engine.
 
-Additionally, Joe Murphy received a call from his former workplace, 【Natural Standard Fund】.
+Even Joe Murphy’s former company, 【Natural Standard Fund】, contacted him.
 
-(Joe, the company is planning to add more investment to 【Give and Take】, is that okay?)
+(Joe, the company is looking to add more investment in 【Give and Take】, do you think it’s a good idea?)
 
-The question itself was very tricky.
+The question itself was extremely difficult.
 
-Saying it was okay felt like admitting that 【Jungle】's search engine could be overtaken.
+If he said it was okay, it would feel like admitting that 【Jungle】’s search engine might be surpassed.
 
-'If I say it's not okay, it would influence the investment.'
+‘If I say it’s not okay, it would affect the investment.’
 
-Joe Murphy gave a vague answer and hung up the phone.
+Joe Murphy gave a vague answer and hung up.
 
 Then he contacted Korea.
 
 The recipient was, of course, Lee Hyun-woo.
 
-Although 【Jungle】 and 【Jungle USA】 were not exactly a head office and a foreign branch, if the origin addressed this matter clearly,
+Although 【Jungle】 and 【Jungle USA】 are not a headquarters and foreign branch concept, if the origin responded clearly to this matter.
 
-'We have no reason to lose.'
+‘There’s no reason for us to lose.’
 
-Joe Murphy's belief in Lee Hyun-woo was solid.
+Joe Murphy’s trust in Lee Hyun-woo was solid.
 
-As expected, Lee Hyun-woo wasn't surprised.
+As expected, Lee Hyun-woo wasn’t even surprised.
 
 No, it seemed he already knew.
 
-(The article has finally come out.)
+(It’s finally in the news.)
 
-"You knew?"
+“You knew?”
 
-(Yes, I happened to hear about it.)
+(Yes, somehow, I heard about it.)
 
-"What kind of response… would be good?"
+“How should we respond?”
 
-(There's no need for a big response. Just give an interview. Or subtly leak something to the press.)
+(There’s no need for a big response. Just give an interview. Or subtly leak something to be reported.)
 
-"What kind of…"
+“Like what…”
 
-Even though he spoke as if it was nothing, it created anticipation.
+He spoke as if it was nothing, but why did it create anticipation?
 
-Lee Hyun-woo's voice was heard again.
+Lee Hyun-woo’s voice was heard again.
 
-(If three companies need to unite, it means 【Jungle】's search engine is amazing. If we can imprint this image on people's minds, won't we gain more than what we lose? Hahaha.)
+(The fact that three companies had to unite shows how great 【Jungle】’s search engine is. If we just imprint this image in people’s minds, we’ll get more than our money’s worth, right? Hahaha.)
 
-At that moment, Joe Murphy's pupils dilated.
+Joe Murphy’s eyes widened.
 
-And he found himself laughing along with Lee Hyun-woo's laughter.
+And he found himself laughing along with Lee Hyun-woo’s laughter.
 
-"Hahaha, that's right. 【Jungle】's search engine is so great that three companies need to focus on it!"
+“Hahaha, that’s true. Three companies are paying attention to how great 【Jungle】’s search engine is!”
 
-One of them is the world's top information and communication company, 【Macro Soft】, another is the past symbol of innovation, 【Pineapple】, and the last one is a recently booming P2P service company, 【Give and Take】. If such companies join hands and shout to overthrow 【Jungle】, the corporate value will surely rise.
+One of them is the world’s top information technology company, 【Macro Soft】; another is the past symbol of innovation, 【Pineapple】, and the last is the recent P2P service sensation, 【Give and Take】. If such companies join hands and shout ‘Down with 【Jungle】,’ the company’s value will undoubtedly rise.
 
-It was a moment when Joe Murphy was infected with Lee Hyun-woo's confidence.
+It was a moment when Lee Hyun-woo’s confidence was contagious to Joe Murphy.
 
 
 ----
