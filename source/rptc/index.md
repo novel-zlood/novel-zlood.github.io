@@ -298,9 +298,39 @@ date: 2024-08-05 11:10:54
 [Chapter 288](/rptc/rptc-288/)
 [Chapter 289](/rptc/rptc-289/)
 [Chapter 290](/rptc/rptc-290/)
+[Chapter 291](/rptc/rptc-291/)
+[Chapter 292](/rptc/rptc-292/)
+[Chapter 293](/rptc/rptc-293/)
+[Chapter 294](/rptc/rptc-294/)
+[Chapter 295](/rptc/rptc-295/)
+[Chapter 296](/rptc/rptc-296/)
+[Chapter 297](/rptc/rptc-297/)
+[Chapter 298](/rptc/rptc-298/)
+[Chapter 299](/rptc/rptc-299/)
+[Chapter 300](/rptc/rptc-300/)
+[Chapter 301](/rptc/rptc-301/)
+[Chapter 302](/rptc/rptc-302/)
+[Chapter 303](/rptc/rptc-303/)
+[Chapter 304](/rptc/rptc-304/)
+[Chapter 305](/rptc/rptc-305/)
+[Chapter 306](/rptc/rptc-306/)
+[Chapter 307](/rptc/rptc-307/)
+[Chapter 308](/rptc/rptc-308/)
+[Chapter 309](/rptc/rptc-309/)
+[Chapter 310](/rptc/rptc-310/)
+[Chapter 311](/rptc/rptc-311/)
+[Chapter 312](/rptc/rptc-312/)
+[Chapter 313](/rptc/rptc-313/)
+[Chapter 314](/rptc/rptc-314/)
+[Chapter 315](/rptc/rptc-315/)
+[Chapter 316](/rptc/rptc-316/)
+[Chapter 317](/rptc/rptc-317/)
+[Chapter 318](/rptc/rptc-318/)
+[Chapter 319](/rptc/rptc-319/)
+[Chapter 320](/rptc/rptc-320/)
 
-<!-- for i in {261..290}; do echo "[Chapter $i](/rptc/rptc-$i/)"; done -->
-<!-- for i in {261..290}; do hexo new rptc "rptc $i"; done -->
+<!-- for i in {291..320}; do echo "[Chapter $i](/rptc/rptc-$i/)"; done -->
+<!-- for i in {291..320}; do hexo new rptc "rptc $i"; done -->
 
 ----
 
