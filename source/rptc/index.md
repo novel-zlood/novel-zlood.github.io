@@ -328,9 +328,27 @@ date: 2024-08-05 11:10:54
 [Chapter 318](/rptc/rptc-318/)
 [Chapter 319](/rptc/rptc-319/)
 [Chapter 320](/rptc/rptc-320/)
+[Chapter 321](/rptc/rptc-321/)
+[Chapter 322](/rptc/rptc-322/)
+[Chapter 323](/rptc/rptc-323/)
+[Chapter 324](/rptc/rptc-324/)
+[Chapter 325](/rptc/rptc-325/)
+[Chapter 326](/rptc/rptc-326/)
+[Chapter 327](/rptc/rptc-327/)
+[Chapter 328](/rptc/rptc-328/)
+[Chapter 329](/rptc/rptc-329/)
+[Chapter 330](/rptc/rptc-330/)
+[Chapter 331](/rptc/rptc-331/)
+[Chapter 332](/rptc/rptc-332/)
+[Chapter 333](/rptc/rptc-333/)
+[Chapter 334](/rptc/rptc-334/)
+[Chapter 335](/rptc/rptc-335/)
+[Chapter 336](/rptc/rptc-336/)
+[Chapter 337](/rptc/rptc-337/)
+[Chapter 338](/rptc/rptc-338/)
 
-<!-- for i in {291..320}; do echo "[Chapter $i](/rptc/rptc-$i/)"; done -->
-<!-- for i in {291..320}; do hexo new rptc "rptc $i"; done -->
+<!-- for i in {321..338}; do echo "[Chapter $i](/rptc/rptc-$i/)"; done -->
+<!-- for i in {321..338}; do hexo new rptc "rptc $i"; done -->
 
 ----
 
