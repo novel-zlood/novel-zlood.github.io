@@ -97,15 +97,15 @@ When new products come out, those who can deploy economies of scale quickly copy
 
 But what happen when affected party files a lawsuit?
 
-If it’s a big company, they might have a chance, but a small company cannot beat [Guseong].
+If it’s a big company, they might have a chance, but a small company cannot beat [Guseong] in legal battle.
 
 Because they use the most competent lawyers in the country.
 
-Even if the opponent is a big company, legal disputes can be dragged endlessy.
+Even if the opponent is a big company, legal disputes can be dragged endlessy, which drain money and energy.
 
-Although he knew this wasn’t morally right, he thought it was better than being eliminated.
+Although he knew this wasn’t morally right, it was better than being left behind.
 
-In that sense, Lee Hyun-woo chose to definitely protect [Alpha Cast].
+In that sense, Lee Hyun-woo chose most reasonable way to protect [Alpha Cast].
 
 If [Guseong] decides to create the MP3 player phone that Lee Hyun-woo suggested earlier,
 
@@ -113,7 +113,7 @@ If [Guseong] decides to create the MP3 player phone that Lee Hyun-woo suggested 
 
 Surely he could have done the embedding of an MP3 player in a phone himself.
 
-‘He handed over the idea and took the smaller but realistic royalty profit.’
+‘He handed over the idea and took the smaller but more realistic royalty profit.’
 
 By now, it’s natural to be wary.
 
