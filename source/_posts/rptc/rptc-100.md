@@ -21,7 +21,7 @@ Specifically, it was news about 【Guseong Group】.
 
 "I thought I should thank you on their behalf, so I asked to see you today. You advised oppa that the demand for servers would increase, didn't you?"
 
-"Ultimately, the responsibility lies with the person who made the decision, not the one who advised. Hyungnim changed directions well."
+"Ultimately, the credit lies with the person who made the decision, not the one who advised. Hyungnim changed directions well."
 
 "I don't know about that, but seeing someone who likes to show off frequently mention you at the breakfast table, it seems like you'll be meeting soon."
 
@@ -73,17 +73,17 @@ That could be the case.
 
 'Especially, the story that Kim Tae-hyun already knew about the existence of the MP3 player when we met last time…'
 
-It could be interpreted as him continuously observing his actions.
+It could be interpreted as Kim Tae-hyun continuously observing his actions.
 
 Therefore, it would also be understood that he intervened to ensure the success of those companies.
 
 Thinking he might be under surveillance could have been upsetting, but Lee Hyun-woo didn't feel that way at all.
 
-'Oh, if this goes well, I might be able to control Kim Tae-hyun to do something.'
+'Oh, if this goes well, I might be able to influence Kim Tae-hyun to do something.'
 
 As someone who has experienced a previous life, Lee Hyun-woo knows well that if 【Guseong】 steps up, there's almost nothing they can't do in Korea.
 
-Therefore, a desire to control 【Guseong】's changes from behind grew in his heart.
+Therefore, a desire to stimulate 【Guseong】's changes from behind grew in his heart.
 
 'If that happens, I can definitely reduce the signs of the current economic crisis.'
 
@@ -93,7 +93,7 @@ They all jump into a field if they think it's good.
 
 Already, there were five companies in mobile communications, and many companies had started producing mobile phones.
 
-Would they listen if warned to control them?
+Would they listen if someone warned them to control their desire?
 
 But what if he subtly implanted a crisis message in 【Guseong】?
 
@@ -109,7 +109,7 @@ The next day after work.
 
 Lee Hyun-woo met Kim Tae-hyun at the Seorabeol Hotel.
 
-"Lee, what's the matter?"
+"CEO Lee, what's the matter?"
 
 "Hyungnim, it's too business-like between us. Just call me by my name."
 
@@ -145,7 +145,7 @@ It was a lie. But would Kim Tae-hyun check that far?
 
 "Operating a business with loans is essential. It can't be helped. But it was quite severe. By the way, Hyun-woo, what's up with you? I thought you were someone who sees these things accurately."
 
-"I roughly predicted it. But I can't do anything about my friend's father."
+"I gave them prediction. But it is up to my friend's father to follow it."
 
 "That's true."
 
@@ -167,13 +167,13 @@ Thinking this far, Lee Hyun-woo stoked the fire again.
 
 "The rumor that many will go bankrupt one after another? I also heard that the next one would be 【Misam Group】."
 
-"What? Is that true?"
+"What? Where did you hear that?"
 
-"Yes, somehow, as I handle portal sites, I receive daily reports on the most frequent words. In the economic sector, 【Bohan Group】 was the most mentioned just before and after its collapse, and recently, I've confirmed that 【Misam Group】 is the next."
+"Yes, somehow, as I handle portal sites, I receive daily reports on the most frequent words. In the economic sector, 【Bohan Group】 was the most mentioned just before and right after its collapse. And recently, I've confirmed that 【Misam Group】 is the next."
 
 He was talking about big data in his own way, and Kim Tae-hyun's eyes widened as soon as he heard that.
 
-Although it was necessary to verify the authenticity, he could sense that Lee Hyun-woo's words included quite a bit of 'accuracy' by observing 【Jungle】 today.
+Although it was hard to verify the authenticity, Kim Tae-hyun could sense that his words included quite a bit of 'accuracy' by observing 【Jungle】 today.
 
 This is because the daily search word rankings recently appeared on a new page.
 
@@ -181,11 +181,11 @@ As someone who has been very interested in 【Jungle】 lately, it became a habi
 
 There were even entertainment news among the top 10, but he could confirm search terms related to the 【Bohan Group】.
 
-'This guy is really interesting.'
+'This guy has interesting ideas.'
 
 Who would have thought to rank the public's interest by using the frequency of search terms?
 
-That's why he trusted Lee Hyun-woo's words more.
+That's why he can trust Lee Hyun-woo's words.
 
 "I guess I'll have to look into it."
 
@@ -273,7 +273,7 @@ For some reason, from the expansion to Japan, adjusting the server production li
 
 Suddenly, Kim Tae-hyun's eyes sparkled.
 
-'Is this because of An-young?'
+'Is this because of Ah-young?'
 
 
 ----

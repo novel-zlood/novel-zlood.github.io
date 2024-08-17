@@ -301,7 +301,7 @@ In response to this question, Kim Sung-moo smiled again and replied.
 
 The youngest, Kim Na-yoon, who was very playful, widened her eyes with curiosity.
 
-"That's right. He's a very decent young man. Promising and close to your brother too. I want to introduce him to you, so don't think about skipping it. Got it?"
+"That's right. He's a very decent young man. Promising and close to your brother too. I want to introduce him to all of you, so don't think about skipping it. Got it?"
 
 At that moment, Kim Ah-young blinked several times and thought.
 

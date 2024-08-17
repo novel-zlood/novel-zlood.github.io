@@ -49,9 +49,7 @@ However, the media continued to cover Nostradamus.
 
 He wondered if he might be investigated by a national agency at this rate.
 
-'I’ve been intentionally writing from an internet cafe these days.'
-
-Lee Hyun-woo, writing and posting from an internet cafe between his workplace and his new home, just in case.
+Lee Hyun-woo has been writing and posting from different internet cafe these days, just in case.
 
 Still, thinking that he should be even more careful, he closed the window.
 
@@ -217,7 +215,7 @@ Woo Sang-won in front of him was no different.
 
 "I will simulate the search term ranking for a few days and then work on the related search terms right away."
 
-"Do so."
+"Please do so."
 
 Although lacking in something that shines compared to the two geniuses, he performs the given tasks flawlessly.
 

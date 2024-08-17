@@ -79,7 +79,7 @@ If he doesn’t feel like working, he won’t, and conversely, if he finds work 
 
 (I think I’ll surprise you later.)
 
-“Alright, got it. Do whatever if I’m not surprised.”
+“Alright, got it. Do your best to make me surprised.”
 
 (You won’t be able to not be surprised.)
 
@@ -119,7 +119,7 @@ So he was about to dial her number when,
 
 He had to stop.
 
-From his faint memory, he recalled that they celebrated New Year’s Day according to the solar calendar.
+From his faint memory, he recalled that her family celebrated New Year’s Day according to the solar calendar.
 
 ‘Damn, should I just spend today with family?’
 
@@ -161,7 +161,7 @@ So he must have done this right after arriving earlier.
 
 “No. When I contact people, they don’t come out, and the ones I can call are limited, so I end up spending lonely nights.”
 
-It felt like he was talking about himself, and Lee Hyun-woo flinched.
+It felt like he was hearing story about himself, and Lee Hyun-woo flinched.
 
 “That’s not loneliness; it’s boredom.”
 
@@ -331,13 +331,13 @@ Hearing his mother’s words, Lee Hyun-woo momentarily had a question mark in hi
 
 But soon realized.
 
-A rich family was fine, but a daughter of a conglomerate group was too much to handle.
+If the family is just rich, it might be fine, but a daughter of a conglomerate group was too much to handle.
 
 Perhaps that’s why the topic changed direction.
 
 Precisely, his mother intentionally turned on the TV.
 
-It seemed like a move to divert attention from the burdensome reality of a massive conglomerate.
+It seemed like a move to divert attention from the burdensome reality of a conglomerate family.
 
 As soon as it was turned on, a news segment his parents liked appeared on screen.
 

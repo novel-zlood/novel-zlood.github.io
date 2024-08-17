@@ -99,7 +99,7 @@ Here, ‘who’ included prominent domestic and foreign companies.
 
 Rather, if they ventured in, it would only expand the market further, so it would be something to welcome with open arms.
 
-‘In that sense, I’m curious. Why is there no news this time about Yahoo entering the domestic market?’
+‘In that sense, I’m curious. Why is there no news this time about Yaho entering the domestic market?’
 
 In the past, there had been articles about Yahoo entering the domestic market as a test.
 
@@ -111,7 +111,7 @@ A sudden realization.
 
 The plan for Jungle to venture into Japan in collaboration with Son Jung-yi had shifted the direction.
 
-In his past life, Yahoo Japan and Yahoo Korea were both joint ventures.
+In his past life, Yaho Japan and Yaho Korea were both joint ventures.
 
 In the end, thinking that he was the main cause made endorphins burst in his head.
 
@@ -207,7 +207,7 @@ So, after roughly wrapping up, he contacted Jung Sung-woo of Alpha Cast next.
 
 “Do you have any loans?”
 
-(We do. But it’s not much. Just over 100 million KRW.)
+(We do. But it’s not much. Just over 100 million won.)
 
 “When’s the maturity?”
 

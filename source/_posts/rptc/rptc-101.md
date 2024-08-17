@@ -11,11 +11,11 @@ However, it was still in the realm of speculation as to what stage their relatio
 
 'But does this proactive help mean that he has feelings for our Ah-young?'
 
-The prediction didn't turn into a question.
+The prediction didn't turn into a direct question.
 
-Such a topic would make things uncomfortable.
+Such topic would make things uncomfortable.
 
-If he did, the chances were high that the recent fun and close relationship with Lee Hyun-woo would become distant.
+If it did, the chances were high that the recent fun and close relationship with Lee Hyun-woo would become distant.
 
 Therefore, he decided to wrap up the conversation appropriately and brought up the topic of the data center.
 
@@ -129,7 +129,7 @@ He had seen firsthand the new information search form called 'Knowledge Service'
 
 When you entered a search term, 'Knowledge Service' would automatically appear as a result, making it impossible not to know.
 
-Then, the previous day, he confirmed the ranking of a search term and realized the power of information.
+Then, the previous day, he saw first hand how to extract information from ranking of a search term and realized the power of information.
 
 ‘Does this mean it could rival a national intelligence agency?’
 

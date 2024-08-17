@@ -15,7 +15,7 @@ To prevent foreign currency from flowing out, they had to start by proving the v
 
 Thus, Lee Hyun-woo began his endeavors in 1997 by welcoming guests from the United States.
 
-They were developers from Al Ta Beast.
+They were developers from [AltaVist].
 
 "I'm James Rice, the CTO."
 
@@ -93,7 +93,7 @@ Lee Hyun-woo continued interpreting with this thought in mind.
 
 "That's why we've put a lot of effort into data storage technology. We store, compress, and then greatly shorten the time it takes to find the desired information."
 
-While conveying his brother's words, Lee Hyun-woo noticed that the eyes of the people from Al Ta Beast were filled with shock.
+While conveying his brother's words, Lee Hyun-woo noticed that the eyes of the people from AltaVist were filled with shock.
 
 Eventually.
 
@@ -165,7 +165,7 @@ Now, all that was left was to confirm how valuable the search engine they had in
 
 * * *
 
-The next day, James Rice, the CTO of Al Ta Beast, was so urgent that he called the CEO, Tim Connor, as soon as he arrived.
+The next day, James Rice, the CTO of AltaVist, was so urgent that he called the CEO, Tim Connor, as soon as he arrived.
 
 Tim Connor, who came to the office, tilted his head and asked James.
 
@@ -193,23 +193,23 @@ That meant they had to use Jungle's search engine entirely.
 
 "This is really... no small matter."
 
-"Yes, but it's a must. As you know, we've been losing ground to Yahoo recently."
+"Yes, but it's a must. As you know, we've been losing ground to Yaho recently."
 
-James Rice, the CTO of Al Ta Beast, was being modest with his words.
+James Rice, the CTO of AltaVist, was being modest with his words.
 
-It wasn't just losing ground; they were basically sitting back and watching Yahoo take everything.
+It wasn't just losing ground; they were basically sitting back and watching Yaho take everything.
 
 How would James Rice, who co-founded the company with Tim Connor, feel?
 
 Losing the search engine market to a latecomer, withering away day by day, feeling like an old man pushed to the sidelines by market forces.
 
-"So, do you think Jungle's search engine is much better than Yahoo's?"
+"So, do you think Jungle's search engine is much better than Yaho's?"
 
-"Of course. It's not even a comparison. Yahoo's search engine has improved on the same type as ours, while Jungle has a tool that searches based on the similarity and relationships between pages. Would you understand better if I compared it to a shovel and a teaspoon?"
+"Of course. It's not even a comparison. Yaho's search engine has improved on the same type as ours, while Jungle has a tool that searches based on the similarity and relationships between pages. Would you understand better if I compared it to a shovel and a teaspoon?"
 
 "No, I think I get the gist. And I understand your point. The problem is, we have quite a few places using our search engine."
 
-"Sooner or later, Yahoo will take them away. We should push our other strengths instead."
+"Sooner or later, Yaho will take them away. We should push our other strengths instead."
 
 "What other strengths?"
 
@@ -243,13 +243,13 @@ After saying that he would soon send his brother Lee Jung-woo and Min-woo Oh for
 
 "It's like we have wings for entering the U.S. market."
 
-Even if business cooperation was set aside, the help of Al Ta Beast was essential for entering the U.S. market.
+Even if business cooperation was set aside, the help of AltaVist was essential for entering the U.S. market.
 
 He could tell just by looking at Kang Dong-ho, who was struggling with no foundation in Taiwan and Hong Kong.
 
 Lee Hyun-woo immediately called Lee Jung-woo and Min-woo Oh to explain the situation.
 
-"Wow, that's great. Al Ta Beast using our search engine."
+"Wow, that's great. AltaVist using our search engine."
 
 "Probably their technical team will visit us often, and we'll also send people there to strengthen exchanges. I think you two should handle this business agreement."
 
