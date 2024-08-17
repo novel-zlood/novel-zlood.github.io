@@ -201,7 +201,7 @@ After downing a glass of soju, Kim Yoon-soo immediately spoke the words he had b
 
 It wasn't difficult to inspire ambition in someone with a receptive ear.
 
-"Moreover, you can continue developing other parts besides network equipment. What will happen then? You can make computers with those parts. As the parts become integrated, the unit cost will naturally drop... ensuring price competitiveness."
+"Moreover, you can continue developing other parts besides network equipment. What will happen then? You can make computers with those parts. As the parts become integrated, the unit cost will naturally drop... ensuring your price competitiveness."
 
 "That's right."
 

@@ -125,13 +125,13 @@ It seemed like this life was progressing smoothly, thanks to knowing a wealthy f
 
 However, there was something that pricked his senses.
 
-'Does An-young really like me?'
+'Does Ah-young possibly like me?'
 
 He thought it was possible.
 
 Why?
 
-Occasionally, when talking to Kim Ah-young, he noticed that it was hard for men to easily approach her.
+Occasionally, when talking to Kim Ah-young, he noticed that it was hard for men to approach her.
 
 'We've spent quite a bit of time together by chance. So, there weren't any other men to particularly win her favor.'
 
@@ -145,7 +145,7 @@ From this voice, Lee Hyun-woo felt that the middle-aged female secretary was som
 
 'That makes sense. But the person to be more cautious of is one of the bodyguards over there.'
 
-Seeing one of the bodyguards behind Kim Ah-young, who had been his spouse in a previous life, brought a playful smile to Lee Hyun-woo's face.
+Seeing one of the bodyguards behind Kim Ah-young, who had been her spouse in a previous life, brought a playful smile to Lee Hyun-woo's face.
 
 “Go ahead. You're in first class, right?”
 
@@ -185,7 +185,7 @@ With an embarrassed look, he said,
 
 Seeing the delighted faces of Oh Min-woo and Lee Jung-woo, Lee Hyun-woo smacked his lips and made a resolution.
 
-'Our company needs to grow bigger. Next time, I want to put all the executives and employees in first class.'
+'Our company needs to grow bigger. Next time, I want to put all the executives in first class.'
 
 * * *
 
@@ -219,7 +219,7 @@ But the same went for Kim Ah-young.
 
 Having a favorable impression of someone and sitting next to Lee Hyun-woo on the way to Jeju Island was a feeling that no adjective could describe.
 
-What was bothersome was the presence of Secretary Park Min-sook and the bodyguards in the back seats, as well as the bodyguards in the middle seats.
+What was bothersome was the presence of Secretary Park Min-sook and the bodyguards in the back seats, as well as the bodyguard in their aisle seat.
 
 It was as if they wanted to hear every conversation between Lee Hyun-woo and Kim Ah-young.
 
@@ -253,7 +253,7 @@ It was an MP3 player he received from 【Alpha Cast】 recently.
 
 “Just wait a moment.”
 
-Lee Hyun-woo connected the earphones to the small hole in the device and put one side in Kim Ah-young's ear.
+Lee Hyun-woo put the rightside earphone in his ear and put the other side in Kim Ah-young's ear.
 
 “Ahem, ahem.”
 
@@ -289,7 +289,7 @@ Quietly singing along to Celine Dion's song.
 
 Was it one of her favorite songs?
 
-Suddenly, Lee Hyun-woo felt like going to a karaoke room with Kim Ah-young.
+Suddenly, Lee Hyun-woo felt the urge to go to a karaoke room with Kim Ah-young.
 
 In fact, it was something he could do anytime.
 
@@ -349,7 +349,7 @@ Not only did she offer to cover the hotel breakfast costs, but she was also like
 
 Lee Hyun-woo tested the waters.
 
-“I hope you invest a lot so 【Alpha Cast】 can quickly develop an MP3 player that can hold dozens of songs. That way, you can transfer and listen to the songs you've downloaded.”
+“I hope you invest a lot so 【Alpha Cast】 can quickly develop an MP3 player that can hold hundreds of songs. That way, you can download and listen to the songs you've bought.”
 
 “……”
 

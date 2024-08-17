@@ -9,13 +9,13 @@ Based on the content that Lee Hyun-woo just shared in more detail, everyone got 
 
 “Wow… Damn! Are you talking about **AltaVista**, the famous portal site in Silicon Valley?”
 
-“Oh, I’ve heard about it too. It was established before **Yahoo**, right?”
+“Oh, I’ve heard about it too. It was established before **Yaho**, right?”
 
 “But are you saying they have been looking at our site?”
 
 “Not only that, but it’s surprising that they proposed a business collaboration.”
 
-“Hey, why are you all so surprised about this? Isn’t it obvious? **Jungle** is the strongest in Asia and can compete with **Yahoo**, which is currently boosting its stock price in the U.S.”
+“Hey, why are you all so surprised about this? Isn’t it obvious? **Jungle** is the strongest in Asia and can compete with **Yaho**, which is currently boosting its stock price in the U.S.”
 
 The final comment was made by the eccentric Oh Min-woo in a cocky manner.
 
@@ -42,10 +42,6 @@ Lee Hyun-woo, who secretly wanted to present Oh Min-woo to the other side, asked
 “Me too. But are you asking because you want to send it to **AltaVista** sooner?”
 
 Oh Min-woo, who is quite perceptive despite his arrogance, immediately read Lee Hyun-woo’s inner thoughts.
-
-‘Yes, that’s right. Others may not know, but you need to go.’
-
-With this thought, Lee Hyun-woo nodded and answered.
 
 “That’s right. Since things have come to this, I want to finish the work quickly and send the research and development team members to **AltaVista** in sequence.”
 
@@ -115,11 +111,11 @@ So, when the email arrived the next day, a sense of pride was etched in Lee Hyun
 
 Indeed, Jungle was an IT company with competitive power in auctions, shopping, and portals.
 
-In terms of technology, it was considered to be on par with **eBay**, **Amazon**, and **Yahoo**.
+In terms of technology, it was considered to be on par with **eBase**, **Amazoness**, and **Yaho**.
 
 Lee Jung-woo seemed to have similar thoughts, as he spoke in an excited tone at home a few days later.
 
-“Hyung, at this rate, won’t our auctions surpass **eBay** and our shopping surpass **Amazon**? And our portal site will beat **Yahoo**.”
+“Hyung, at this rate, won’t our auctions surpass **eBase**? our shopping surpass **Amazoness**? And our portal site will beat **Yaho**.”
 
 “Who says we can’t?”
 
@@ -163,7 +159,7 @@ By building relationships with chaebol friends or friends’ oppas, he started g
 
 Now, the company **Jungle**, which Lee Hyun-woo had built up, was receiving foreign investments and business collaboration proposals from overseas companies.
 
-‘If we control the chaebols and nurture professional managers while definitely reducing the outflow of foreign funds, something really interesting might happen.’
+‘If we manipulate the chaebols and their professional managers while reducing the outflow of foreign funds, something really interesting might happen.’
 
 Lee Hyun-woo thought this as he loosened his stiff expression again.
 
@@ -205,13 +201,13 @@ Lee Hyun-woo shrugged his shoulders unconsciously and continued writing.
 
 First, what if companies that took on debt for over-investment cannot repay the principal or interest? (Look at companies with loans over 5 trillion won. One of them will go bankrupt soon.)
 
-Second, what if the U.S. raises interest rates? (Not interested because it’s not our country? If interest rates rise, money will flow into banks, and domestic demand will temporarily shrink. Then what will happen to countries that actively export to that country?)
+Second, what if the U.S. raises interest rates? (Not interested because it’s not our country? If interest rates rise, money will flow into banks, and domestic demand will temporarily shrink. Then what will happen to a contry that actively export to that country?)
 
 Third, related to the second point, countries with a lot of foreign capital will have an increased amount of debt to repay due to interest rate hikes.
 
-Fourth, related to the second point’s parentheses, to continue exporting, they must secure price competitiveness, and when the currency is devalued, the amount to repay will increase again.
+Fourth, related to the second point’s parentheses, to continue exporting, that exporting counrty must secure price competitiveness, and when the currency is devalued, the amount to repay will increase again.
 
-Fifth, considering the content from the second to the fourth point, our country is currently in a checkmate.
+Fifth, considering the second to the fourth point, that country is currently in a checkmate.
 
 There was more to write, but as he wrote, he started feeling stifled.
 
@@ -257,8 +253,6 @@ But what’s this?
 
 There were quite a lot of new emails.
 
-‘What’s this?’
-
 As he started to look through each one in detail, his eyes widened.
 
 **Joe Max, CEO of Diamond Fund**
@@ -275,11 +269,11 @@ How could so many heads of institutions send emails overnight?
 
 It was clear that someone had mentioned **Jungle**.
 
-Sure enough, upon checking **AltaVista**, he found a story about Son Joong.
+Sure enough, upon checking **AltaVista**, he found a story about Son Jung-yi.
 
-**“In the future, the places that will change the paradigm of the world will be Jungle and Yahoo!”**
+**“In the future, the places that will change the paradigm of the world will be Jungle and Yaho!”**
 
-**“Son confirms investment in Jungle following Yahoo!”**
+**“Son confirms investment in Jungle following Yaho!”**
 
 
 ----

@@ -113,13 +113,13 @@ It was true. In his past life, when 【Samjin】 entered the U.S. market under t
 
 At that time, Lee Hyun-woo had met the chairman of 【Samjin】 and experienced his straightforward personality.
 
-'Would his personality change in this life too?'
+'Would his personality change in this life?'
 
 On the other hand, Han Se-jin's curiosity rose.
 
 What could Lee Hyun-woo possibly not know, who he didn't know, or what he wasn't aware of?
 
-'Well, being so confident and competent, he certainly leads situations even in front of domestic and foreign journalists.'
+'Well, being so confident and competent, he leads situations even in front of domestic and foreign journalists.'
 
 The more he experienced, the more his respect grew.
 
@@ -233,7 +233,7 @@ In his past life, 【Samjin Computer】 had competed with 【Duksung Group】 fo
 
 So why did Lee Hyun-woo seek out Chairman Park Jin-yong?
 
-'Since I inadvertently hindered 【Samjin Computer】's entry into the high-speed internet business with 【Doronet】, I will restore it and accelerate the nationwide network of ADSL.'
+'Since I inadvertently hindered 【Samjin Computer】's entry into the high-speed internet business with 【Doronet】from Duksung, I will restore it and accelerate the nationwide network of ADSL.'
 
 This was Lee Hyun-woo's plan.
 
@@ -263,19 +263,19 @@ But now, he wanted to share his concerns with Lee Hyun-woo.
 
 "Yes, I heard that part as well."
 
-"Talking about it makes me angry. Because 【Daehan Electric】 decided to run the service themselves, our plans fell apart."
+"Talking about it makes me angry. Because suddenly【Daehan Electric】 decided to run the service themselves, our plans fell apart."
 
 "What if you push for it again? Do you think you can persuade those cable operators?"
 
 "I'm not sure about that."
 
-"What about you, Chairman? Have you lost your determination?"
+"What do you reallly think, Chairman? Have you lost your determination?"
 
 "I will definitely do it. When the time is right. But hearing you say now is the right time, my motivation suddenly surged."
 
 Lee Hyun-woo smiled.
 
-'This guy, he's going to start.'
+'This guy is going to start.'
 
 If someone asked him if he expected this outcome, he would obviously say it was fifty-fifty.
 
@@ -283,17 +283,17 @@ But knowing Park Jin-yong's "all or nothing" attitude from the past life, he dec
 
 So, why hadn't Lee Hyun-woo attempted this earlier?
 
-For example, after 【Daehan Electric】 subcontracted the high-speed internet ADSL to 【Samjin Computer】, the scenario might have seemed more natural.
+For example, before the first attempt of 【Daehan Electric】 to subcontract the high-speed internet ADSL to 【Samjin Computer】, the scenario might have seemed more natural.
 
 'Sorry, but it couldn't be helped this time.'
 
 The answer lay in the past life.
 
-【Samjin Computer】 took over two years to push for ADSL.
+【Daehan Electric】 took over two years to push for ADSL.
 
 While the internal situation was unclear, Lee Hyun-woo decided to test the waters with 【Daehan Electric】 first.
 
-Now that the ADSL of 【Daehan Electric】 seemed close to commercialization, he thought it was time to spread it like wildfire through 【Samjin Computer】.
+Now that the ADSL of 【Daehan Electric】 seemed close to commercialization, he thought it was time to spread it like wildfire with the help of 【Samjin Computer】.
 
 'Working with a public enterprise was frustrating.'
 

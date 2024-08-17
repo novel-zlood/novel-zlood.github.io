@@ -37,7 +37,7 @@ Seeing Oh Min-woo jokingly approach him, Lee Hyun-woo smiled.
 
 “In the office, call me CEO, not hyung.”
 
-“Oh, yes, CEO.”
+“Yes, CEO.”
 
 Sometimes, you have to overlook minor mistakes in addressing each other.
 
@@ -137,7 +137,7 @@ He had contacted Kim Ah-young in advance, but for some reason, she was waiting i
 
 “Huh? Why are you out here?”
 
-“Huh? Ah, just.”
+“Huh? Ah, just because.”
 
 Seeing Kim Ah-young, with her bright face and distinct beauty, made him smile naturally.
 
@@ -145,19 +145,19 @@ So, with a smile, Lee Hyun-woo asked.
 
 “You haven’t had dinner yet, right?”
 
-“You said we’d eat together?”
+“Are you inviting me for dinner?”
 
 “Yes, I have something to talk about while we eat.”
 
-“What is it? Is it about the preparations for entering Japan this time?”
+“What is it? Is it about the preparations for entering Japan?”
 
 “Oh, they’ll take care of that themselves.”
 
-While moving with Kim Ah-young, he could confirm another recent task.
+While walking with Kim Ah-young, he was reminded of another task.
 
 It was the departure of developers to Japan for 【Jungle Japan】.
 
-“Wow, we were even preparing to enter Japan. I really have done a lot of work.”
+'Wow, we were even preparing to enter Japan. I really have done a lot of work.'
 
 Now it was time to practice work-life balance.
 

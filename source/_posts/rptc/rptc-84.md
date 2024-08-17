@@ -147,7 +147,7 @@ So he asked,
 
 “Well… you paid my deposit before.”
 
-“But I’ve already paid it back.”
+“But you’ve already paid it back.”
 
 “I can’t live with debt. Money is money, but emotional debt stays with you for life.”
 
@@ -269,7 +269,7 @@ It was unexpected that he didn’t speak informally.
 
 Lee Hyun-woo asked Yoo Jin-young, who was on standby, to bring water.
 
-Then the man in his 70s waited and revealed his name.
+Then the man revealed his name.
 
 “My name is Kim Dong-baek.”
 

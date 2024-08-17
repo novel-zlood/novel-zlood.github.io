@@ -27,7 +27,7 @@ A considerable number of people gathered in Woo Sang-won's development room, whi
 
 "Exactly. Unless it's a chaebol... Huh?"
 
-At the mention of "chaebol," Min-woo Oh turned to look at Lee Hyun-woo. A certain chaebol's daughter came to his mind suddenly.
+At the mention of "chaebol," Oh Min-woo turned to look at Lee Hyun-woo. A certain chaebol's daughter came to his mind suddenly.
 
 Aware of the gaze, Lee Hyun-woo clicked his tongue and shook his head.
 
@@ -57,7 +57,7 @@ Only a rich person could dare to buy them all.
 
 'But I can't just go and ask Ah-young.'
 
-Though he had a hunch, he couldn't pretend to know.
+Though he had a hunch, he could pretend not to know.
 
 It seemed like she was buying these songs to help a friend's company, but...
 
@@ -123,7 +123,7 @@ Thinking this far, he smiled at Jung Sung-woo, the CEO of 【Alpha Cast】, who 
 
 "And the factory? How far along is the preparation?"
 
-"It's not large, but we have a decent facility. We originally made car stereos but scaled down to produce this."
+"It's not large, but we have a decent facility. We scaled down the car stereo facility to produce this."
 
 "Then, what's the daily production capacity... Sorry for asking so many questions."
 
@@ -173,7 +173,7 @@ That goal was "global."
 
 At that time, in Silicon Valley, USA.
 
-Tim Connor, CEO of 【Al Ta Beast】, was accessing 【Jungle】 from afar.
+Tim Connor, CEO of 【AltaVist】, was accessing 【Jungle】 from afar.
 
 He had already promised business cooperation with 【Jungle】 and made it a habit to check in daily.
 
@@ -243,7 +243,7 @@ Curious, Tim Connor eventually gathered his executives.
 
 Everyone fell silent.
 
-They, too, had worked in 【Al Ta Beast】 and Silicon Valley with Tim Connor.
+They, too, had worked in 【AltaVist】 and Silicon Valley with Tim Connor.
 
 Therefore, they knew the challenges of downloading and selling individual songs.
 
@@ -301,7 +301,7 @@ On the other hand, Lee Hyun-woo, who believed in supporting and developing anyon
 
 "Yes, this is Hyun-woo Lee, CEO of 【Jungle】."
 
-(Hello, I am Tim Connor, CEO of 【Al Ta Beast】.)
+(Hello, I am Tim Connor, CEO of 【AltaVist】.)
 
 "Oh? Hello?"
 

@@ -233,7 +233,7 @@ One day, they got inspired during a conversation with Lee Hyun-woo and pushed it
 
 Honestly, the recent success of the portal site 【Jungle】 was largely due to their knowledge service attracting more people.
 
-"Okay, okay. Stop bickering, Jang Team Leader, we need to do the final simulation now."
+"Okay, okay. Stop bickering, Team Leader Jang, we need to do the final simulation now."
 
 "Yes, Team Leader."
 

@@ -49,7 +49,7 @@ Judging by the organized details, it seemed there had been many discussions. Han
 
 "Will the singers win? Or will the agencies win?"
 
-He meant which side had more numbers.
+It will be down to which side has more money.
 
 Naturally, the latter.
 
@@ -57,7 +57,7 @@ Naturally, the latter.
 
 "Oh, that's great. Then we can support the singers."
 
-"CEO, isn't it a bit too much to draw a line with the agencies?"
+"CEO, isn't it a bit too much to pick fights with the agencies?"
 
 "No, we need to change this strange settlement practice disguised as a custom. That way, the singers won't be exploited. Don't worry. The end is in sight now."
 

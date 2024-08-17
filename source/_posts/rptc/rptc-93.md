@@ -7,11 +7,11 @@ tags:
 
 Lee Hyun-woo seems to have caught on.
 
-‘Was I too blatant in receiving all the songs?’
+‘Was I too blatant in buying all the songs?’
 
-Even a man who is usually insensitive would look for someone in his circle of acquaintances who could receive such an enormous amount of songs, and among them, a wealthy acquaintance would inevitably be a candidate.
+Even a man who is usually insensitive would look for someone in his circle of acquaintances who could buy such an enormous amount of songs, and among them, a wealthy acquaintance would inevitably be a candidate.
 
-So it seemed like he was testing her, but Kim Ah-young feigned ignorance until the end.
+So it seemed like he was testing her, but Kim Ah-young want to feign ignorance until the end.
 
 Simultaneously, she glanced back and made eye contact with Chief Secretary Park Min-sook.
 
@@ -43,7 +43,7 @@ This time, they moved away from uncomfortable topics and talked about Jungle Jap
 
 “Oh, I’ve been reading in the papers that places in the USA and Germany are also interested in your company?”
 
-“That’s right. Everything is in progress. So, I’ve been busier lately, and my philosophy of life has been shaken several times.”
+“That’s right. Everything is in progress. So, I’ve been very busy lately, and my philosophy of life has been shaken several times.”
 
 “Your philosophy of life? Oh… enjoying evening time after work?”
 
@@ -111,7 +111,7 @@ He had built Jungle Soft with his bare hands and controlled assets worth trillio
 
 However, she was worried that if they continued their relationship and got married in this way, Lee Hyun-woo might treat Kim Ah-young poorly.
 
-“A woman has to raise her value. The more you approach him, the more the CEO will keep a proper distance and step back.”
+“A woman has to raise her value. The more you blatantly approach him, the more the CEO will feel burdened and step back.”
 
 “If I don’t approach, he rarely contacts me.”
 
@@ -127,7 +127,7 @@ However, she was worried that if they continued their relationship and got marri
 
 “I don’t think Hyun-woo would do that…”
 
-“Men are all the same. Listen to me. You have to trust me, Director.”
+“Men are all the same. Please listen to me. You have to trust me, Director.”
 
 Although they were director and chief secretary, their relationship was actually very old.
 

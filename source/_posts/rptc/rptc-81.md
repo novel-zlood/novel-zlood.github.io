@@ -13,7 +13,7 @@ Lee Hyun-woo argued that since the testing phase was over, it was time to quickl
 
 In fact, 【Dae Han Electricity】, which had laid power towers and transmission lines everywhere, was ready to jump in at any moment.
 
-However, they were always wary of 【Dae Han Telecom】, but after confirming that Lee Hyun-woo's argument and public opinion were strongly in favor.
+However, they were always wary of 【Dae Han Telecom】, but after confirming that Lee Hyun-woo's argument and public opinion were strongly in favor,
 
 『【Dae Han Electricity】 completes ADSL testing and begins commercialization!』
 
@@ -39,7 +39,7 @@ At least it was fortunate that the situation developed differently from the prev
 
 At this point, Lee Hyun-woo thought about the future of 【Dae Han Telecom】.
 
-“Will you continue with ISDN?”
+“Will they continue with ISDN?”
 
 * * *
 
@@ -199,7 +199,7 @@ With this thought, he stepped outside and happened to run into Kim Yoon-soo, the
 
 Kim Yoon-soo showed a sense of alertness whenever he heard about a computer company.
 
-Since 【Won Computer】's growth was achieved with 【Jungle】's interest and affection, he was anxious that Lee Hyun-woo's focus might shift to another competitor.
+Since 【One Computer】's growth was achieved with 【Jungle】's interest and affection, he was anxious that Lee Hyun-woo's focus might shift to another competitor.
 
 “Why? Is there an event?”
 
@@ -219,13 +219,13 @@ Han Se-jin thought to himself and smirked as he turned around.
 
 He could guess why Kim Yoon-soo was worried.
 
-He was probably concerned that 【Jungle】 might partner with 【Samjin Computer】 instead of 【Won Computer】.
+He was probably concerned that 【Jungle】 might partner with 【Samjin Computer】 instead of 【One Computer】.
 
 Seeing his anxiety, Han Se-jin couldn't help but laugh.
 
 “I don't think he needs to worry so much.”
 
-Lee Hyun-woo always wished for the growth of 【Won Computer】.
+Lee Hyun-woo always wished for the growth of 【One Computer】.
 
 He later learned the reason.
 
@@ -235,7 +235,7 @@ Also, when deciding on an office, he even paid the deposit, and he accepted what
 
 Because of this, 【Jungle】 achieved rapid growth in the early stages, as Lee Jung-woo and Jang Yoo-chul often said.
 
-Having observed Lee Hyun-woo for a long time, Han Se-jin knew that he would never replace 【Won Computer】 with 【Samjin Computer】 in the computer sector.
+Having observed Lee Hyun-woo for a long time, Han Se-jin knew that he would never replace 【One Computer】 with 【Samjin Computer】 in the computer sector.
 
 “Of course, since he always plans things that we can't imagine, it's best not to make hasty assumptions.”
 
@@ -277,7 +277,7 @@ It seemed they had frequently heard about Lee Hyun-woo’s exploits from Han Se-
 
 Watching the busy person in charge go up to find someone, Han Se-jin smiled slightly.
 
-“Well, I did talk a lot about 【Won Computer】.”
+“Well, I did talk a lot about 【One Computer】.”
 
 Considering the position of 【Samjin Computer】 in the same industry, the shock they felt was incomparable to Kim Yoon-soo’s.
 

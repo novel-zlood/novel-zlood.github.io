@@ -49,7 +49,7 @@ Next year, it was certain to be between 170 million and 180 million won.
 
 "And then you'll increase working hours?"
 
-"No way. You brought me to the best restaurant in Jeju Island. Can you take me to just any place next time?"
+"No way. You brought me to the best restaurant in Jeju Island. Will you take me to just any place next time?"
 
 "Of course not."
 
@@ -99,7 +99,7 @@ Inevitably, she decided to stay close to him to learn more in the future.
 
 The next day, the shift personnel arrived.
 
-In other words, the first 50 people returned to Seoul, and the remaining 50 came in.
+In other words, the first 50-something people returned to Seoul, and the remaining 50-something came in.
 
 The team leaders who came with them were Woo Sang-won, Jang Yoo-chul, and Kang Dong-ho.
 
@@ -187,7 +187,7 @@ As the daily use of high-speed internet increased, both individuals and companie
 
 "Switching the computer production line to a server production line was a stroke of genius."
 
-Changing the production line wasn't easy, but since computers and servers had very similar structures, it wasn't difficult.
+Changing the production line wasn't easy, but since computers and servers had very similar structures, it wasn't difficult either.
 
 Moreover, as the year-end approached, computer supply was heading towards excess, so it seemed timely to switch, and the company was reevaluating his abilities.
 
@@ -213,7 +213,7 @@ After making an impromptu decision, he flew to Jeju Island the next day.
 
 When he arrived at the hotel, it was just lunchtime, so he set up a separate meeting with Lee Hyun-woo.
 
-"I heard from An-young that you're having a workshop here?"
+"I heard from Ah-young that you're having a workshop here?"
 
 "Yes, that's right."
 
@@ -233,7 +233,7 @@ After listening to his explanation, Kim Tae-hyun's eyes widened.
 
 "And it seems like we'll also place a special order for servers from 【Guseong Electronics】."
 
-"This is an enormous client. It's three affiliates. But to handle this together, the three need to come together."
+"This is an enormous project involving three affiliates."
 
 "That's why I'm requesting you, hyung. I was going to tell you when I went to Seoul."
 
@@ -249,7 +249,7 @@ Consumer goods companies focusing on wholesale and retail were gradually transfo
 
 If this accelerated, what other changes would start to happen?
 
-"It's interesting, really interesting."
+'It's interesting, really interesting.'
 
 Meanwhile, Kim Tae-hyun also had a genuinely amused expression.
 
@@ -265,7 +265,7 @@ So I can keep influencing you not to end up in court later.
 
 After saying this to himself, Lee Hyun-woo took something out of his pocket.
 
-"Ah, hyung. I also showed this to An-young. Want to see it?"
+"Ah, hyung. I also showed this to Ah-young. Want to see it?"
 
 "Hmm? What's this?"
 

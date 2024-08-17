@@ -5,7 +5,7 @@ tags:
 ---
 
 
-In [Structure], what is the probability that the MP3 player will not come out?
+In [Guseong], what is the probability that the MP3 player will not come out?
 
 It is probably close to zero.
 
@@ -57,13 +57,13 @@ At the same time, he asked Kim Tae-hyun.
 
 This is what is called a fast-follower strategy.
 
-“Once [Structure] starts producing, it has to be mass-produced, so it’s like doing market research without spending money.”
+“Once [Guseong] starts producing, it has to be mass-production, so this first version is like doing market research without spending money. Instead, I will pay for the patent properly. At least [Alpha Cast] won’t starve.”
 
-“Instead, I will pay for it properly. At least [Alpha Cast] won’t starve.”
+This means making a living through royalties.
 
-This also means making a living through royalties.
+“And I’m going to prepare the MP3 phone you just mentioned right away. Then I have to pay another fee for the core technology, so the president will be happy." 
 
-“And I’m going to prepare the MP3 phone you just mentioned right away. Then I have to pay another fee for the core technology, so the president will be happy. In that sense, thank you.”
+"In that sense, thank you.”
 
 “No need to thank me. In the end, it will be a win-win for both of us.”
 
@@ -95,27 +95,25 @@ It’s true.
 
 When new products come out, those who can deploy economies of scale quickly copy them.
 
-But what if the affected party files a lawsuit?
+But what happen when affected party files a lawsuit?
 
-If it’s a big company, it’s different, but a small company cannot beat [Structure].
+If it’s a big company, they might have a chance, but a small company cannot beat [Guseong].
 
 Because they use the most competent lawyers in the country.
 
-Even if the opponent is a big company, time flows endlessly if legal disputes continue.
+Even if the opponent is a big company, legal disputes can be dragged endlessy.
 
 Although he knew this wasn’t morally right, he thought it was better than being eliminated.
 
 In that sense, Lee Hyun-woo chose to definitely protect [Alpha Cast].
 
-If [Structure] decides to create the MP3 player phone that Lee Hyun-woo suggested earlier,
+If [Guseong] decides to create the MP3 player phone that Lee Hyun-woo suggested earlier,
 
 ‘They’ll have to pay the core technology fee.’
 
-Surely someone could have thought of embedding an MP3 player in a phone.
+Surely he could have done the embedding of an MP3 player in a phone himself.
 
-But would they think to share it?
-
-‘He handed over the idea and took the realistic profit.’
+‘He handed over the idea and took the smaller but realistic royalty profit.’
 
 By now, it’s natural to be wary.
 
@@ -131,15 +129,13 @@ To such Kim Tae-hyun, the existence of Lee Hyun-woo has recently approached in a
 
 ‘Let’s watch a bit more.’
 
-I still don’t know.
-
-Whether Lee Hyun-woo will continue to be like a friend or change like other chaebol heirs who tried to surpass the prince of [Structure] in the past.
+I still don’t know whether Lee Hyun-woo will continue to be like a friend or change like other chaebol heirs who tried to surpass the prince of [Guseong] in the past.
 
 I think I need to watch more with time.
 
 * * *
 
-Meanwhile, that evening, Lee Hyun-woo spent a life with Kim Ah-young.
+Meanwhile, Lee Hyun-woo spent that evening with Kim Ah-young.
 
 He confided to Kim Ah-young about what happened during lunchtime.
 
@@ -153,7 +149,7 @@ He confided to Kim Ah-young about what happened during lunchtime.
 
 “Using oppa’s feelings?”
 
-“[Structure] is bound to make an MP3 player sooner or later. Whether they create it with fair compensation to [Alpha Cast] or handle it afterwards depends on the management of [Structure]. Don’t you think so?”
+“[Guseong] is bound to make an MP3 player sooner or later. Whether they create it with fair compensation to [Alpha Cast] or using backhanded methods depends on the management of [Guseong]. Don’t you think so?”
 
 Kim Ah-young’s mouth opened wide.
 
@@ -161,31 +157,31 @@ It was undeniable truth in Lee Hyun-woo’s words.
 
 Her face flushed slightly.
 
-If [Structure] had always been upright, it wouldn’t be embarrassing, but they had often done what Lee Hyun-woo mentioned.
+If [Guseong] had always been upright, it wouldn’t be embarrassing, but they had often done what Lee Hyun-woo mentioned.
 
 “It’s embarrassing.”
 
-“There’s nothing to be embarrassed about. You didn’t do it. And most companies have grown that way. I hope the day will come when copyrights and patents are protected, but it’s not easy in this era.”
+“There’s nothing to be embarrassed about. You didn’t do it. And most companies have grown that way. I hope the day will come when copyrights and patents are protected, but that day is not today.”
 
 “You sound like you’re from the future.”
 
 “Do I? Haha.”
 
-Lee Hyun-woo, who laughed a few times as if he were from the future.
+Lee Hyun-woo laughed a few times as if he were from the future.
 
 However.
 
-“Who knows. Maybe I really am from the future or reborn.”
+“Who knows. Maybe I have really lived in the future then reborn.”
 
 “Then tell me about my future.”
 
-Even if he reveals the truth, the other party takes it lightly.
+Even if he reveals the truth, the other party always take it lightly.
 
 “Well, what do you want to know?”
 
 “Who I’ll date, who I’ll marry, and how I’ll live.”
 
-“You sound like a fortune teller.”
+“You make me sound like a fortune teller.”
 
 “I’ll pay you generously.”
 
@@ -215,17 +211,17 @@ Although she didn’t fully understand why she had to keep it, she decided to ac
 
 She held back and returned to the original topic.
 
-“I don’t know if I can do it, but I’ll try to ensure our company can use other companies’ copyrights and patents properly in the future.”
+“I don’t know if I have the authority, but I’ll try to ensure our company will use other companies’ copyrights and patents properly in the future.”
 
 Hearing that, Lee Hyun-woo just smiled.
 
 ‘That’s not an easy task.’
 
-Honestly, even Lee Hyun-woo finds it hard to confidently say he won’t infringe on others’ work in the future.
+Honestly, even Lee Hyun-woo finds it hard to confidently say he himself won’t infringe on others’ work in the future.
 
 For someone who has already lived in the future, everything was a resource.
 
-There would probably be moments of hesitation everywhere.
+There would probably be potential violations everywhere.
 
 Whether to attempt something based on ideas that came from others.
 
@@ -253,7 +249,7 @@ Then what about Lee Hyun-woo’s feelings?
 
 No, he surely started to have feelings for her.
 
-The problem was that [Structure Group] was not an easy place.
+The problem was that [Guseong Group] was not an easy place.
 
 What if the media, which keeps focusing on Lee Hyun-woo’s fame, notices that he often meets Kim Ah-young?
 
@@ -299,7 +295,7 @@ Fortunately, his brother played along well.
 
 In Japan, good news is expected soon regarding portal sites and online shopping.
 
-In the U.S., there are plans to collaborate with [Al Ta Beast] and participate in the [Stanford University] forum, with Lee Jung-woo and Oh Min-woo handling the schedule and assessing market entry.
+In the U.S., there are plans to collaborate with [AltaVist] and participate in the [Stanford University] forum, with Lee Jung-woo and Oh Min-woo handling the schedule and assessing market entry.
 
 In Germany, Woo Sang-won and Jang Yoo-chul will attend the [Dachshund Institute] forum and also visit another German research institute, [Front Hoff Institute], that developed MPEG.
 

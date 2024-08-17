@@ -7,7 +7,7 @@ tags:
 
 Have you ever felt overwhelmed by what to read first?
 
-They must all be emails and news filled with good news.
+These emails and news must be filled with good news.
 
 "Let's just go in order."
 
@@ -23,13 +23,13 @@ They invited Lee Hyun-woo to hold a forum.
 
 "This is interesting. Let's keep them all for now."
 
-Next, he read the news from Yahoo.
+Next, he read the news from Yaho.
 
 The article mentioned that Son Jung-yi went to Korea to meet with Lee Hyun-woo and reached an agreement.
 
 However, the article focused more on the confirmation of the investment rather than specific details.
 
-Son Jung-yi maintained some confidentiality while promoting Jungle, Yahoo, and Software Bank.
+Son Jung-yi maintained some confidentiality while promoting Jungle, Yaho, and Software Bank.
 
 Since the article was published in the U.S., it wouldn't be different in Japan.
 
@@ -99,7 +99,7 @@ He had recently considered dropping out.
 
 But...
 
-"If I drop out now, it feels like a bad idea."
+'If I drop out now, it feels like a bad idea.'
 
 Developing software in collaboration with Jungle at his alma mater?
 
@@ -107,7 +107,7 @@ He didn't know what it would entail, but it seemed really fun.
 
 Thus, Oh Min-woo decided to reconsider dropping out.
 
-"This hyung knows how to handle me too well."
+'This hyung knows how to handle me too well.'
 
 It felt like he had finally met a proper mentor.
 
@@ -141,7 +141,7 @@ This was part of the research he did with his brother, Lee Jung-woo, who often s
 
 He believed that the two would grow much more if they visited the birthplace of IT in America.
 
-"My second life is truly on a smooth path. Everything is going so well."
+'My second life is truly on a smooth path. Everything is going so well.'
 
 Indeed, everything unfolding before Lee Hyun-woo's eyes seemed smooth in every direction.
 
@@ -165,7 +165,7 @@ Lee Hyun-woo felt a surge of emotion welling up inside.
 
 It was inevitable, considering how much his parents had struggled.
 
-"Now it's the end of hardships and the beginning of happiness."
+'Now it's the end of hardships and the beginning of happiness.'
 
 Seeing his parents with this thought brought tears to his eyes.
 
@@ -193,11 +193,11 @@ The last words felt like they were directed at himself.
 
 Living this life again, wasn't he making money too easily?
 
-He should be thankful to someone, but that someone was a high-ranking official in the afterlife.
+He should be thankful to someone, but that someone is a high-ranking official in the afterlife.
 
 This thought reminded him of the incident where he saved a pregnant woman from a car accident by chance.
 
-"Yes, helping others has brought me this fortune."
+'Yes, helping others has brought me this fortune.'
 
 So, he should continue to help others in this life.
 
@@ -217,7 +217,7 @@ Did Jang Yoo-chul contact him?
 
 Guessing this, Lee Hyun-woo started designing a different version of Alpha Cast from his previous life.
 
-"Alpha Cast was tricked by a large company into transferring its patent rights and then went bankrupt. This caused key technology to fall into the wrong hands."
+'Alpha Cast was tricked by a large company into transferring its patent rights and then went bankrupt. This caused key technology to fall into the wrong hands.'
 
 Lee Hyun-woo smiled and said.
 

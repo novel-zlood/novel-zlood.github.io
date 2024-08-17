@@ -49,7 +49,7 @@ So after Jung Sung-woo left, he asked Woo Sang-won,
 
 “Then we should inform 【DaeHan Power】.”
 
-“Anyway, someone comes every day to check the speed.”
+“Someone already come every day to check the speed.”
 
 “The downside of public enterprises is that it takes a long time to go from bottom to top.”
 
@@ -123,7 +123,7 @@ Information and communication news were included in the economy section and ofte
 
 “Oh…”
 
-“And the news will be produced by reporters, right? We need to do interviews right away.”
+“And the news will be produced by reporters, right? They need to interview someone to get story.”
 
 This meant he would personally go out for interviews soon.
 
@@ -137,7 +137,7 @@ From the day he talked to Woo Sang-won, he decided to call in the reporters righ
 
 Of course, only a few reporters came when called, but most could be summoned with a few simple words.
 
-Lee Hyun-woo called in front of Han Se-jin and Kang Dong-ho, who would be working with him shortly.
+Lee Hyun-woo called in front of Han Se-jin and Kang Dong-ho, who need to work with him on this.
 
 “Hello? Reporter Heo? Ah, I heard you moved to the economic department this time? The thing is, I want to do an interview.”
 
@@ -149,11 +149,11 @@ News is a place where new information is circulated.
 
 Lee Hyun-woo continues to explain why he’s acting as if he’s doing the reporter a favor by giving an interview.
 
-“Our 【Jungle】 recently signed an investment agreement with Sohn Joong-ui from 【Software Bank】. And we’re on the verge of signing a mutual business cooperation contract with 【AltaVista】. Ah, we’ve also been contacted by 【Diamond Fund】 and 【Nobuyuki Securities】 wanting to invest. Of course, we’re not thinking of taking all of it… Oh, I’m talking too much. Anyway, there are so many stories to tell that you must come.”
+“Our 【Jungle】 recently signed an investment agreement with Son Jung-yi from 【Software Bank】. And we’re on the verge of signing a mutual business cooperation contract with 【AltaVista】. Ah, we’ve also been contacted by 【Diamond Fund】 and 【Nobuyuki Securities】 wanting to invest. Of course, we’re not thinking of taking all of it… Oh, I’m talking too much. Anyway, there are so many stories to tell that you must come.”
 
-After hearing the conversation, people started contacting the reporters they knew at a copy-and-paste level.
+After hearing the conversation, the two people in front of him started contacting the reporters they knew at a copy-and-paste level.
 
-The ones who originally frequented the press were not Lee Hyun-woo, but these people.
+The ones who originally frequented the press were not Lee Hyun-woo, but these two people.
 
 Lee Hyun-woo merely contacted the reporter he had previously interviewed with.
 
@@ -163,9 +163,9 @@ What’s important here is not clinging to the reporters but throwing out plenty
 
 Lee Hyun-woo soon listened to people’s voices.
 
-“Hello. Ah, Reporter Kim? I’m calling because I’m worried that you might not come, unlike other reporters. Our representative is going to do an interview. He’s been invited by 【Dachshund Institute】 in Germany and 【Stanford University】.”
+“Hello. Ah, Reporter Kim? I’m calling because I’m worried that you might not come and got left by other reporters. Our representative is going to do an interview. He’s been invited by 【Dachshund Institute】 in Germany and 【Stanford University】.”
 
-“Reporter Cho? There will be an interview at our headquarters the day after tomorrow. Ah, several newspapers keep asking our representative for interviews. Oh? Didn’t you know? Then check 【Yahoo】. It says there that Sohn Joong-ui is investing in 【Jungle】.”
+“Reporter Cho? There will be an interview at our headquarters the day after tomorrow. Ah, several newspapers keep asking our representative for interviews. Oh? Didn’t you know? Then check 【Yaho】. It says there that Son Jung-yi is investing in 【Jungle】.”
 
 Listening from the side, they apply it well.
 
@@ -173,7 +173,7 @@ Sometimes, there were reporters who already knew this fact.
 
 “You knew? Then you haven’t heard about other investments, right?”
 
-“You saw that article? If you come this time, you’ll get a lot of good information. You should properly cover it, rather than just translating the English version of the article on 【Yahoo】.”
+“You saw that article? If you come this time, you’ll get a lot of good information. You should properly cover it, rather than just translating the English version of the article on 【Yaho】.”
 
 When did they grow so much?
 
@@ -195,7 +195,7 @@ Somehow, calls came in after hearing the news.
 
 It was immediately foreign press.
 
-The phone calls primarily from correspondents in Korea were received by Kang Dong-ho and then handed over to Lee Hyun-woo.
+The phone calls from foreign correspondents in Korea were received by Kang Dong-ho and then handed over to Lee Hyun-woo.
 
 It wasn’t just one; they kept coming in.
 
@@ -269,15 +269,13 @@ Is there anything more surprising?
 
 There is.
 
-It’s that he leads the conversation as he wishes.
-
-“Reporters, isn’t today really interesting? I only contacted one person, and our two team leaders only contacted some of the reporters they knew. But look at how many people are here. And there are foreign reporters too. What does this mean? It means the world has changed. The speed of information delivery is incredibly fast compared to before.”
+“Reporters, isn’t today really interesting? I only contacted one person, and our two team leaders only contacted some of the reporters they knew. But look at how many people are here. And there are foreign reporters too. It make me feel like the world really has changed. The speed of information delivery is incredibly fast compared to before.”
 
 “……”
 
 “I now argue that we need to attach rockets to this speed of information delivery. In other words, I’m talking about changing the speed of the world. That’s ADSL.”
 
-He also uses a speech style that reporters love.
+He uses a speech style that reporters love.
 
 That is, subtly hinting at the core headline within the content of the conversation.
 

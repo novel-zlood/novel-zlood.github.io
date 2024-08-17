@@ -243,13 +243,13 @@ The reason this was possible was that Lee Hyun-woo's reputation was growing.
 
 In the meantime, the media covered 【Jungle】's activities daily,
 
-"【Jungle】 partners with Son Joong-eui to enter Japan!"
+"【Jungle】 partners with Son Jung-yi to enter Japan!"
 
 "【Jungle】's core developers head to Japan to establish a portal site and online shopping mall!"
 
-"【Jungle】 prepares for business collaboration with the American portal site 【Al Ta Beast】!"
+"【Jungle】 prepares for business collaboration with the American portal site 【Alta Vista】!"
 
-"【Jungle】's core developer to visit 【Al Ta Beast】 next month to explore new business opportunities."
+"【Jungle】's core developer to visit 【Alta Vista】 next month to explore new business opportunities."
 
 The amounts of money involved in these headlines were no joke.
 

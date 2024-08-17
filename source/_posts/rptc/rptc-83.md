@@ -127,9 +127,9 @@ Then, a sudden thought made him frown.
 
 "Modems. Whether it's ADSL or cable, the demand for modems will be enormous. Can we supply them properly?"
 
-"Are you talking about the modems we have in our company?"
+"Are you talking about the modems like the one we have in our company?"
 
-"Yes, the ones we got from 【Dae-han Electric】 for speed tests. As far as I know, those modems are made in Belgium..."
+"Yes, the ones we got from 【Dae-han Electric】 for testbeds. As far as I know, those modems are made in Belgium..."
 
 "Really? I didn't know that."
 
