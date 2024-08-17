@@ -133,7 +133,7 @@ At this point, she heard the concluding explanation from Kang Dong-ho.
 
 “Oh, I see.”
 
-“Since Son Joong-ui manages that site, it was difficult for us to intervene. But he poured a lot of money into TV and newspaper promotions, so the initial interest was huge. Our company doesn’t yet have that level of financial power, so we’re trying to mix the two strategies.”
+“Since Son Jung-yi manages that site, it was difficult for us to intervene. But he poured a lot of money into TV and newspaper promotions, so the initial interest was huge. Our company doesn’t yet have that level of financial power, so we’re trying to mix the two strategies.”
 
 He had already explained the definition of ‘viral’ marketing.
 

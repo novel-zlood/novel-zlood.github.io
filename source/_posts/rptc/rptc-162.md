@@ -259,7 +259,7 @@ Woo Sang-won also proposed a big picture.
 
 “Really?”
 
-“Yes, otherwise, Son Jung-ui, who serves in Japan, will feel neglected.”
+“Yes, otherwise, Son Jung-yi, who serves in Japan, will feel neglected.”
 
 People say business is not done with emotions, but in reality, there's no business without emotions.
 
@@ -269,7 +269,7 @@ As long as the choices aren't wrong, you can establish lifelong business partner
 
 Woo Sang-won smiled and picked up the phone.
 
-In fact, he planned to have a deep conversation with Son Jung-ui today.
+In fact, he planned to have a deep conversation with Son Jung-yi today.
 
 ‘Until when does the CEO have to care about foreign affairs?’
 

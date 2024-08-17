@@ -5,7 +5,7 @@ tags:
 ---
 
 
-"The investment of $100 million by the 【Natural Standard Fund】 is exactly the same amount as Son Jung-ui's investment in 【Yaho】. However, the nature of the investments is different. Son Jung-ui invested in 【Yaho】's main base in the United States, while the 【Natural Standard Fund】 invested to support 【Jungle】's expansion into the U.S."
+"The investment of $100 million by the 【Natural Standard Fund】 is exactly the same amount as Son Jung-yi's investment in 【Yaho】. However, the nature of the investments is different. Son Jung-yi invested in 【Yaho】's main base in the United States, while the 【Natural Standard Fund】 invested to support 【Jungle】's expansion into the U.S."
 
 "Does it really say 'main base'?"
 
@@ -15,7 +15,7 @@ These were the voices of two people that Lee Hyun-woo could hear on the plane ba
 
 Oh Min-woo was interpreting the 【Wall Street Journal】 as soon as he read it, with Lee Jung-woo asking questions in between.
 
-"Of course, there is another similarity. Son Jung-ui decided the investment while sharing cola and pizza with Jamie Yang, and Joe Murphy decided while having pasta and wine with Lee Hyun-woo."
+"Of course, there is another similarity. Son Jung-yi decided the investment while sharing cola and pizza with Jamie Yang, and Joe Murphy decided while having pasta and wine with Lee Hyun-woo."
 
 "Isn't that completely made up?"
 

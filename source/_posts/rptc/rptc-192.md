@@ -19,7 +19,7 @@ Then Lee Hyun-woo smiled and nodded.
 
 An example of this was the United States and Japan.
 
-Both countries poured money into marketing with the capital power of Son Joong-ui and the 【Natural Standard Fund】.
+Both countries poured money into marketing with the capital power of Son Jung-yi and the 【Natural Standard Fund】.
 
 Because of this, they compressed the period during which 【Jungle】 established itself in Korea and secured many users in a short time.
 
@@ -81,7 +81,7 @@ Even if that wasn't the case, her mother, satisfied with 【Aejung Cosmetics】'
 
 Moreover, she felt like she had found a guide for 【Jungle】's expansion into Hong Kong and Taiwan, which she was somewhat worried about, so today was a double success.
 
-Riding this momentum, she contacted Son Joong-ui and Joe Murphy after returning to the company.
+Riding this momentum, she contacted Son Jung-yi and Joe Murphy after returning to the company.
 
 She also sent emails to the fund companies, and another day passed.
 

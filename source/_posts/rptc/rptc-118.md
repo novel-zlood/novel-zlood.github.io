@@ -63,13 +63,13 @@ The higher-ups fixated on details, saw the negatives, and thought they’d be ma
 
 ‘Sigh….’
 
-At times like this, the person who came to mind was Son Jung-ui.
+At times like this, the person who came to mind was Son Jung-yi.
 
 He was Ito’s closest friend, and no matter how successful he was, he would never refuse a dinner request from Ito.
 
 * * *
 
-The next day, such an occasion was arranged for lunch, and Son Jung-ui, after observing Ito’s expression for a while, smiled and said,
+The next day, such an occasion was arranged for lunch, and Son Jung-yi, after observing Ito’s expression for a while, smiled and said,
 
 “They said no?”
 
@@ -105,7 +105,7 @@ The next day, such an occasion was arranged for lunch, and Son Jung-ui, after ob
 
 “Yes, saying this might hurt your pride as a Japanese, but right now, we need to learn from Korea. Since last year, their information and communication sector has caught up rapidly, and now they’ve practically overtaken us.”
 
-Son Jung-ui’s words were undeniable, and Ito didn’t feel any loss of pride.
+Son Jung-yi’s words were undeniable, and Ito didn’t feel any loss of pride.
 
 “You’re right. The Korea I visited this time was truly astonishing. New dot-com companies were springing up every day.”
 
@@ -113,7 +113,7 @@ Son Jung-ui’s words were undeniable, and Ito didn’t feel any loss of pride.
 
 “Indeed. Truly amazing.”
 
-Ito nodded in agreement, clearly recognizing that Son Jung-ui was referring to 【Jungle】.
+Ito nodded in agreement, clearly recognizing that Son Jung-yi was referring to 【Jungle】.
 
 “Perhaps that place seems to prioritize execution even more than your company. Their obsession with goals also seems superior.”
 
@@ -127,7 +127,7 @@ Originally, they had only planned to collaborate with 【Jungle】 on the portal
 
 Then they got greedy for online shopping, and later, seeing the birth and success of 【Jungle Music】, they decided to integrate it in Japan too.
 
-Son Jung-ui believed that it was best to launch everything at once.
+Son Jung-yi believed that it was best to launch everything at once.
 
 So, when rumors started that 【NTC】 would implement high-speed internet, he had planned to inquire about the two additional businesses with Lee Hyun-woo immediately.
 
@@ -139,7 +139,7 @@ Originally, March was the scheduled date.
 
 However, they postponed it to April, so Lee Hyun-woo might now have doubts about the current business.
 
-Son Jung-ui was someone who believed that trust was the most important thing in business.
+Son Jung-yi was someone who believed that trust was the most important thing in business.
 
 If there were even a hint of doubt, how would Lee Hyun-woo, who trusted him and sent his development team to Japan, feel?
 
@@ -155,7 +155,7 @@ After parting with Ito, he immediately contacted him.
 
 Fortunately, there was no trace of doubt in Lee Hyun-woo’s voice.
 
-After hanging up the phone, Son Jung-ui had a subtle expression.
+After hanging up the phone, Son Jung-yi had a subtle expression.
 
 ‘Starting an information and communication business in Japan is not easy.’
 
@@ -181,7 +181,7 @@ The detailed report, which recorded market research, future prospects, and the i
 
 Of course, this news was brought to 【Jungle】's development team responsible for technical operations at 【Alta Vista】.
 
-Upon learning the content, Son Jung-ui felt more confident when meeting Lee Hyun-woo.
+Upon learning the content, Son Jung-yi felt more confident when meeting Lee Hyun-woo.
 
 “Several telecommunications companies in the U.S. have decided to jump into the high-speed internet business.”
 
@@ -189,7 +189,7 @@ Upon learning the content, Son Jung-ui felt more confident when meeting Lee Hyun
 
 “Yes, I heard about it yesterday too.”
 
-This was the second time Son Jung-ui saw Lee Hyun-woo.
+This was the second time Son Jung-yi saw Lee Hyun-woo.
 
 He seemed more straightforward this time.
 
@@ -209,7 +209,7 @@ He seemed more straightforward this time.
 
 “Of course, we sincerely accept them. That’s what the customer service team is for. What I mean is, if you’re afraid of complaints and don’t enter the high-speed internet business, later on, you’ll hear complaints that your speed is slower than other countries.”
 
-Son Jung-ui nodded.
+Son Jung-yi nodded.
 
 He thought that if there were no channels to vent complaints, Japanese users who knew that their internet speed was slower than Korea’s would find some way to express it.
 
@@ -221,7 +221,7 @@ He thought that if there were no channels to vent complaints, Japanese users who
 
 “Yes, if you proceed, I would like to invest as well.”
 
-Son Jung-ui’s eyes widened.
+Son Jung-yi’s eyes widened.
 
 Invest? How much capital would be needed for such an infrastructure project?
 
@@ -257,13 +257,13 @@ Small cable TV stations, which are afraid of incurring losses, welcome anyone wh
 
 Japan would probably be no different.
 
-Perhaps because of this, Son Jung-ui said with a look that suggested he had found an answer.
+Perhaps because of this, Son Jung-yi said with a look that suggested he had found an answer.
 
 “I need to look into this immediately.”
 
 * * *
 
-Perhaps it’s because the DNA of Koreans is fundamentally different, but even Son Jung-ui, who grew up as a Japanese, seemed to have absorbed the ‘ppalli-ppalli’ (fast-paced) mindset.
+Perhaps it’s because the DNA of Koreans is fundamentally different, but even Son Jung-yi, who grew up as a Japanese, seemed to have absorbed the ‘ppalli-ppalli’ (fast-paced) mindset.
 
 Inspired by Lee Hyun-woo, he first inquired about leasing communication lines from 【NTC】 after returning to Japan.
 
@@ -289,7 +289,7 @@ Having a reliable backup, he almost made up his mind and contacted Lee Hyun-woo,
 
 (I’m all in.)
 
-Son Jung-ui’s eyes sparkled with determination.
+Son Jung-yi’s eyes sparkled with determination.
 
 “Alright, let’s aim for a trial test within the first half of this year and commercialize it by year’s end.”
 

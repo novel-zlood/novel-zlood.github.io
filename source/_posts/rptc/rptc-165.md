@@ -59,7 +59,7 @@ After telling them to be quiet, he casually brought up a topic he wanted to disc
 
 "That guy has really grown up."
 
-"He has. Recently, Son Joong-ui came to Korea and announced in an interview that 【Jungle】 is entering the online shopping and music business."
+"He has. Recently, Son Jung-yi came to Korea and announced in an interview that 【Jungle】 is entering the online shopping and music business."
 
 "Yeah, I saw that in the newspaper... But you and Ah-young weren't involved this time."
 
@@ -71,7 +71,7 @@ Kim Ah-young remained silent while Kim Tae-hyun quickly offered an explanation.
 
 Kim Ah-young countered.
 
-"The music service is supposed to launch after autumn. By then, download speeds in most areas of Tokyo should be secured. And for logistics and delivery, Son Joong-ui is partnering with other companies, just like how 【Jungle】 teamed up with logistics companies like 【Korea Express】."
+"The music service is supposed to launch after autumn. By then, download speeds in most areas of Tokyo should be secured. And for logistics and delivery, Son Jung-yi is partnering with other companies, just like how 【Jungle】 teamed up with logistics companies like 【Korea Express】."
 
 "But the geography of Japan and our country is different. In this case, the smaller the country, the more advantageous it is, Father."
 

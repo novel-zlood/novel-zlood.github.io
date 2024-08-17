@@ -93,7 +93,7 @@ Jamie Yang once gave an interview in Korea.
 
 He said he was a very lucky person.
 
-In Japan, he met Son Jung-ui and achieved great success with 【Yaho Japan】, and in China, he coincidentally met Ma Won and invested in 【Alababa】.
+In Japan, he met Son Jung-yi and achieved great success with 【Yaho Japan】, and in China, he coincidentally met Ma Won and invested in 【Alababa】.
 
 For reference, even though 【Yaho】 later went into decline, the $1 billion invested in 【Alababa】 in 2004 returned $30 billion, making Jamie Yang a director of 【Alababa】.
 

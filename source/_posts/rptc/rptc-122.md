@@ -181,7 +181,7 @@ When reading, something surprising stood out.
 
 Multiple media outlets detailed it, but it seemed the other side was eagerly seeking business cooperation.
 
-【Altavista】 was like that, and it was the same with Japan’s Son Jung-ui.
+【Altavista】 was like that, and it was the same with Japan’s Son Jung-yi.
 
 Eventually, due to their eagerness, 【Jungle Japan】 was planned, and with 【Altavista】, they confirmed sharing 【Jungle】’s search engine technology and utilizing the accumulated database of the other party.
 
@@ -235,7 +235,7 @@ But to 【Jungle】, that money had a different relative value.
 
 ‘That guy can do anything with that money.’
 
-He was the one who brought in Son Jung-ui without spending a penny.
+He was the one who brought in Son Jung-yi without spending a penny.
 
 And that too by bringing in his son and daughter.
 
@@ -273,7 +273,7 @@ Kim Ah-young made a meaningful statement at the breakfast table.
 
 “Yes, after visiting 【Mido Hotel】 in Tokyo, I plan to visit the headquarters of 【Software Bank】.”
 
-“You mean you’re going to meet Son Jung-ui in person?”
+“You mean you’re going to meet Son Jung-yi in person?”
 
 “Yes, of course with Hyun-woo. Since 【Jungle】’s portal site is launching, we decided to have a look together.”
 

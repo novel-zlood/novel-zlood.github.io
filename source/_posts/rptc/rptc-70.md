@@ -13,11 +13,11 @@ So he asked without reducing the size of his eyes.
 
 "Why?"
 
-"It's hard to succeed greatly without involving a company based in Japan. Instead, I will lower Son Jung-ui's shares."
+"It's hard to succeed greatly without involving a company based in Japan. Instead, I will lower Son Jung-yi's shares."
 
-"If we lower Son Jung-ui's shares? What about our shares?"
+"If we lower Son Jung-yi's shares? What about our shares?"
 
-"Basically, Hyungnim and Son Jung-ui's shares need to be over 51%. As you know, Japan has a considerable barrier against foreign companies."
+"Basically, Hyungnim and Son Jung-yi's shares need to be over 51%. As you know, Japan has a considerable barrier against foreign companies."
 
 "Of course. So we should go with Japan's 【Guseong】 investing."
 
@@ -27,7 +27,7 @@ Especially since you have to follow the laws of that country, you need to think 
 
 Kim Tae-hyun was no different now.
 
-If his shares and Son Jung-ui's combined to 51%, and 【Jungle】's shares were 40%?
+If his shares and Son Jung-yi's combined to 51%, and 【Jungle】's shares were 40%?
 
 'Total 91%.'
 
@@ -53,9 +53,9 @@ He was still amazed.
 
 Kim Tae-hyun had already done some research on 【Jungle】 before visiting.
 
-Although he had heard from his younger sister, Kim Ah-young, last time, exact figures are necessary to invest.
+Although he had heard from his younger sister last time, exact figures are necessary to invest.
 
-So he reviewed the reports that came up over the past few days and confirmed that even though Kim Ah-young's words were slightly exaggerated, it was definitely worth investing in.
+So he reviewed the reports that came up over the past few days and confirmed that even though Kim Ah-young's figures were slightly exaggerated, it was definitely worth investing in.
 
 Based on that information, he came today to have a conversation, and now he could understand the recent rapid growth of 【Jungle】.
 
@@ -71,7 +71,7 @@ So he nodded and concluded.
 
 "Then the specific investment amount..."
 
-"We haven't conducted a feasibility study yet, and we need to meet and discuss with Son Jung-ui. I'll let you know after that."
+"We haven't conducted a feasibility study yet, and we need to meet and discuss with Son Jung-yi. I'll let you know after that."
 
 "......"
 
@@ -109,7 +109,7 @@ Considering all the years he had lived through ups and downs, to think he would 
 
 'From pure and innocent Ah-young's perspective, I guess I've already been quite corrupted...'
 
-Even Lee Hyun-woo had not avoided or not received any hospitality in his previous life.
+In his previous life, Lee Hyun-woo had not avoided nor he refused to receive any hospitality coming his way.
 
 Of course, in his current life, he didn't particularly enjoy such practices anymore.
 
@@ -123,7 +123,7 @@ At Lee Hyun-woo's words, the two others stood up as well.
 
 "We weren't planning to do it, but my mother insisted."
 
-"Hahaha, you should listen to your mother. I always do. Anyway, you should put something in the pig's mouth."
+"Hahaha, you should listen to your mother. I always do. Anyway, we should put something in the pig's mouth."
 
 Kim Tae-hyun's words sparked curiosity.
 
@@ -187,7 +187,7 @@ To be precise, it seemed they had to decide the next person based on the people'
 
 Everyone was looking at Kim Tae-hyun.
 
-'Yes, the son of the country's top chaebol should do it.'
+'Yes, the heir of the country's top chaebol should do it.'
 
 'Right, if I step up recklessly, it might seem inappropriate.'
 
@@ -241,7 +241,7 @@ Although she was also a second-generation chaebol, she couldn't help but feel aw
 
 'Why are they giving so much?'
 
-But she couldn't hesitate forever, so she quickly took out checks and placed them in the pig's mouth.
+But she couldn't hesitate either, so she quickly took out checks and placed them in the pig's mouth.
 
 Instead of one, she placed several.
 
@@ -273,7 +273,7 @@ Since Kim Tae-hyun and Kim Ah-young had already given ten million won, the place
 
 As the check parade continued, Lee Hyun-woo had to repeatedly ask people to give a reasonable amount.
 
-Finally, the extravaganza ended when Oh Min-woo appeared, looking half-asleep, and gave a thousand won.
+Finally, the extravaganza ended when Oh Min-woo appeared, looking half-asleep, and putting in a thousand won.
 
 After that, people could give without feeling pressured.
 
@@ -297,7 +297,7 @@ But Kim Ah-young showed no intention of leaving.
 
 "Me too."
 
-"Alright? I'll call you later then."
+"Is that so? I'll call you later then."
 
 Kim Tae-hyun's buttery smile made Choi Sun-hwa's face turn awkward.
 
@@ -311,9 +311,9 @@ At the same time, she hardened her expression and asked with a touch of resentme
 
 "When did you two become so close? You're even on first-name terms."
 
-"Oh, Hyungnim? We decided to be on first-name terms a little while ago. Since he's friends with Ah-young, it’s more comfortable that way."
+"Oh, Hyungnim? We decided to be on first-name terms a little while ago. Since he's close with Ah-young, it’s more comfortable that way."
 
-"I'm friends with Ah-young too."
+"I'm close with Ah-young too."
 
 "......"
 
@@ -333,11 +333,11 @@ Honestly, he was now so tired of everything that he wanted to skip all the tedio
 
 Having recently made two female friends of the same age, he could foresee the upcoming processes.
 
-Kim Yoon-sun was uncertain, but Kim Ah-young drank, went to nightclubs, and often came to the company these days.
+Nothing happened with Kim Yoon-sun, but with Kim Ah-young they drank, went to nightclubs, and often came visit each other's company these days.
 
 Would Choi Sun-hwa be the same?
 
-He wasn't sure, but she was an incredibly adaptive friend.
+He wasn't sure, but she seems like an incredibly adaptive friend.
 
 "Oh, right. I talked with Team Leader Han Se-jin, and he said they'll hold an event at the brand hall."
 
@@ -347,7 +347,7 @@ It wasn't bad.
 
 After all, Choi Sun-hwa was the one who provided the first banner for the portal site.
 
-In return, it was good, so he couldn't help but advise.
+It was a good thing, so he couldn't help but advise.
 
 "If you target the Chinese and Southeast Asian markets with low-priced cosmetics, it'll be a big success."
 

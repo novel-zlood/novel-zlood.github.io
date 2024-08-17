@@ -119,7 +119,7 @@ With the opening of the larger Japanese market compared to the Korean market, tr
 
 Public institutions and some companies in Japan wanted to use the search engine, and large corporations were slowly emerging that wanted to partner with 【Jungle】 for online shopping and music services.
 
-Lee Hyun-woo seemed to think there was no need to partner with anyone else since Son Joong-ui, the current business partner in Japan, was handling things well.
+Lee Hyun-woo seemed to think there was no need to partner with anyone else since Son Jung-yi, the current business partner in Japan, was handling things well.
 
 Rather, he modified parts of the business plan that were discussed in the U.S.
 

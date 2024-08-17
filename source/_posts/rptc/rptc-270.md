@@ -23,7 +23,7 @@ Even if that wasn't the case, he recently confirmed that Lee Hyun-woo had no tho
 
 Therefore, Kim Tae-hyun had a strong intention to utilize Lee Hyun-woo’s ideas for practical benefits.
 
-“Oh, right! I recently got a call from Chairman Son Joong. He mentioned the data center.”
+“Oh, right! I recently got a call from Chairman Son Jung-yi. He mentioned the data center.”
 
 “Really?”
 
@@ -153,7 +153,7 @@ As he headed towards Suwon, he received a call from Jamie Wang, but people were 
 
 Thus, upon returning, Lee Hyun-woo talked to Woo Sang-won about the data center.
 
-“Even Son Joong and Jamie Wang have finally recognized it.”
+“Even Son Jung-yi and Jamie Wang have finally recognized it.”
 
 He let out a voice of admiration.
 

@@ -7,13 +7,13 @@ tags:
 
 The next day.
 
-Lee Hyun-woo met Son Joong-ui again.
+Lee Hyun-woo met Son Jung-yi again.
 
 Specifically, he visited just before the opening of 【Jungle Japan】 to fully experience the atmosphere.
 
 But perhaps it should be said that there is a difference between someone who has lived once and someone who hasn't?
 
-Son Joong-ui, who greeted Lee Hyun-woo, was completely different from the previous day.
+Son Jung-yi, who greeted Lee Hyun-woo, was completely different from the previous day.
 
 “Phew, I'm nervous.”
 
@@ -31,7 +31,7 @@ On the other hand, Lee Hyun-woo was relaxed.
 
 “Of course.”
 
-Son Joong-ui looked at Lee Hyun-woo with a slightly calmer expression.
+Son Jung-yi looked at Lee Hyun-woo with a slightly calmer expression.
 
 Then he started to speak negatively again.
 
@@ -43,7 +43,7 @@ The core of what Lee Hyun-woo wanted to convey was the network hub.
 
 This is an abstract concept rather than a visible device or facility.
 
-Surprisingly, Son Joong-ui understood exactly what he meant.
+Surprisingly, Son Jung-yi understood exactly what he meant.
 
 “Come to think of it, through a portal site hub, the public will get to know Korea in more detail soon. A new world where an information revolution takes place.”
 
@@ -53,7 +53,7 @@ Surprisingly, Son Joong-ui understood exactly what he meant.
 
 Yesterday, he was talking about online shopping, and today he brings up a music site.
 
-It seemed like Son Joong-ui had a lot he wanted to do.
+It seemed like Son Jung-yi had a lot he wanted to do.
 
 “Someday, we'll be able to download songs from that site, right?”
 
@@ -63,7 +63,7 @@ At this point, we must acknowledge this.
 
 Aside from the 2.5 times population difference, Japan is a better market for selling music in terms of the music market and copyright awareness.
 
-Would Son Joong-ui understand even this?
+Would Son Jung-yi understand even this?
 
 “Then, can we bring in 【Jungle Music】 to our 【Software Bank】 once again?”
 
@@ -79,7 +79,7 @@ Lee Hyun-woo’s words were an expression of his confidence.
 
 What makes him so confident?
 
-Son Joong-ui looked at Lee Hyun-woo with curious eyes.
+Son Jung-yi looked at Lee Hyun-woo with curious eyes.
 
 But soon enough, the proof of what Lee Hyun-woo had said began to unfold.
 
@@ -91,7 +91,7 @@ But soon enough, the proof of what Lee Hyun-woo had said began to unfold.
 
 “Oh, look at this buffering.”
 
-Son Joong-ui, who had been speaking negatively until just now, looked at Lee Hyun-woo in a panic.
+Son Jung-yi, who had been speaking negatively until just now, looked at Lee Hyun-woo in a panic.
 
 Lee Hyun-woo, still with a relaxed expression, seemed to have the answer.
 
@@ -103,7 +103,7 @@ Lee Hyun-woo, still with a relaxed expression, seemed to have the answer.
 
 “……”
 
-This time, Son Joong-ui looked at Lee Hyun-woo with a resentful gaze.
+This time, Son Jung-yi looked at Lee Hyun-woo with a resentful gaze.
 
 Seeing this, Lee Hyun-woo smiled slightly.
 
@@ -123,7 +123,7 @@ This time, his voice was full of resentment.
 
 It had a nuance of why he didn’t give advice yesterday and just watched from the other side of the river.
 
-But Lee Hyun-woo ignored Son Joong-ui's gaze and looked elsewhere with his hands behind his back.
+But Lee Hyun-woo ignored Son Jung-yi's gaze and looked elsewhere with his hands behind his back.
 
 ‘Whether it’s good or bad, humans can only develop through trial and error based on experience.’
 
@@ -137,7 +137,7 @@ That evening.
 
 Lee Hyun-woo enjoyed a date walking through the streets of Tokyo with Kim Ah-young.
 
-“You were playing with Son Joong-ui?”
+“You were playing with Son Jung-yi?”
 
 “Me? Come on, that’s a misunderstanding. How could I play with someone who’s making headlines as the representative of Japan’s 21st century?”
 
@@ -145,7 +145,7 @@ Lee Hyun-woo enjoyed a date walking through the streets of Tokyo with Kim Ah-you
 
 “Isn’t it too early to say it’s a success? You can’t know until you open the lid.”
 
-“Son Joong-ui must have prepared the servers in advance. But the traffic exceeded that, didn’t it? If that’s not a success, what is? And when we were about to leave, he asked with an urgent expression if he could start preparing for the IPO right away.”
+“Son Jung-yi must have prepared the servers in advance. But the traffic exceeded that, didn’t it? If that’s not a success, what is? And when we were about to leave, he asked with an urgent expression if he could start preparing for the IPO right away.”
 
 What Kim Ah-young said was true.
 
@@ -153,7 +153,7 @@ Whether the promotion was done properly, the number of Japanese netizens trying 
 
 The number of accesses leads to advertisements, and though it may be a bubble, it will drive the momentum for the IPO.
 
-Perhaps buoyed by that outcome, Son Joong-ui waited for Lee Hyun-woo's answer with a look as if he would go public immediately.
+Perhaps buoyed by that outcome, Son Jung-yi waited for Lee Hyun-woo's answer with a look as if he would go public immediately.
 
 Since he wanted it, there was no need to stop him.
 

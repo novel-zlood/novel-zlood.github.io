@@ -57,7 +57,7 @@ In other words, the upcoming release of 【Space War】, combined with the favor
 
 (Thanks to you. You told me early on that Windows 97 would be coming out, so we accelerated our production plans in China and increased the scale.)
 
-Come to think of it, it was Lee Hyun-woo who had informed Kim Yoon-soo about Windows 97 as soon as he heard it from Son Jung-ui.
+Come to think of it, it was Lee Hyun-woo who had informed Kim Yoon-soo about Windows 97 as soon as he heard it from Son Jung-yi.
 
 At the time, Kim Yoon-soo, who was planning production in China, must have made a bolder decision after hearing that information.
 
@@ -157,7 +157,7 @@ When all the explanations were finished, he clapped vigorously.
 
 Sellers often claim they're at a loss, but this time, it was almost true.
 
-"Think of it as an investment. Instead, make sure to secure Jamie Wang and Son Jung-ui as clients."
+"Think of it as an investment. Instead, make sure to secure Jamie Wang and Son Jung-yi as clients."
 
 "I'm sure that will happen."
 

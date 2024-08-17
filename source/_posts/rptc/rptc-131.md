@@ -81,17 +81,17 @@ As soon as he arrived at work, Oh Min-woo was glued to him, asking questions and
 
 After a while.
 
-In the meeting, Lee Hyun-woo revealed that he discussed the entry of Jungle Online and Jungle Music into the Japanese market with Son Joong-ui.
+In the meeting, Lee Hyun-woo revealed that he discussed the entry of Jungle Online and Jungle Music into the Japanese market with Son Jung-yi.
 
 And when he mentioned that the other party was very enthusiastic, people's expressions brightened.
 
-"Son Joong-ui fully acknowledges Jungle's business model."
+"Son Jung-yi fully acknowledges Jungle's business model."
 
 "Indeed. And it's clear he considers us an ally."
 
 "An ally? He's like a godsend. Honestly, what does Software Bank have besides game distribution? But our company has created diversity through the internet."
 
-"I completely agree with Team Leader Lee. We don't need to think naively. From what I’ve seen, Son Joong-ui seems like someone who monopolizes information and moves based on practical gains. The only difference is that he makes decisions quickly. Although, even that is slower than our CEO."
+"I completely agree with Team Leader Lee. We don't need to think naively. From what I’ve seen, Son Jung-yi seems like someone who monopolizes information and moves based on practical gains. The only difference is that he makes decisions quickly. Although, even that is slower than our CEO."
 
 As Jang Yoo-chul and Oh Min-goo spoke, Lee Jung-woo and Woo Sang-won, who went to Japan with them, added their opinions.
 
@@ -101,7 +101,7 @@ Previously, they were happy when things went well and wondered why. Now, they qu
 
 However, Oh Min-woo, who did not go to Japan, expanded his thoughts further.
 
-"But for Jungle Shopping and Jungle Music to establish themselves in Japan, won’t they need infrastructure support? Logistics, network, and the processes handled in Korea will conflict with Japanese logistics companies or music producers. Does Son Joong-ui have the capability to achieve this?"
+"But for Jungle Shopping and Jungle Music to establish themselves in Japan, won’t they need infrastructure support? Logistics, network, and the processes handled in Korea will conflict with Japanese logistics companies or music producers. Does Son Jung-yi have the capability to achieve this?"
 
 Then Lee Hyun-woo finally spoke up again.
 
@@ -115,7 +115,7 @@ Then Lee Hyun-woo finally spoke up again.
 
 "And it might take longer."
 
-"We had no choice but to rely on Chairman Son Joong-ui."
+"We had no choice but to rely on Chairman Son Jung-yi."
 
 "Yes, we had no choice. And we will have to keep partnering with local companies to enter new markets. That's the surest way to save time."
 
@@ -155,7 +155,7 @@ Even Oh Min-woo, who always talked about outrageous goals, stuck out his tongue.
 
 This time, people let out a chorus of admiration.
 
-Even a simple comparison made it clear that Jungle was bound to grow more than Son Joong-ui's company.
+Even a simple comparison made it clear that Jungle was bound to grow more than Son Jung-yi's company.
 
 "Exactly. Surpassing Software Bank is just a matter of time. With our entry into the music business through Jungle Music after portal sites and online shopping, the weapons we have are enormous. The cloud also shows promising signs."
 

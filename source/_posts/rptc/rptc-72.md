@@ -27,7 +27,7 @@ Lee Hyun-woo sighed with relief internally and finally spoke in a relaxed tone.
 
 “Absolutely not. So don't joke around saying I'm Nostradamus. What if someone hears and misunderstands? They might think I'm the owner of that blog.”
 
-“Oh, right? I saw comments saying you might be a National Intelligence Service (NIS) agent.”
+“Oh, right? I saw comments saying they might be a National Intelligence Service (NIS) agent.”
 
 “I was shocked when I saw stories about the CIA and North Korean spies.”
 

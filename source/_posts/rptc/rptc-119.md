@@ -5,13 +5,13 @@ tags:
 ---
 
 
-At the same time that Son Jung-ui resolved to enter the high-speed internet business by the end of the year, Korea was launching a similar high-speed internet service.
+At the same time that Son Jung-yi resolved to enter the high-speed internet business by the end of the year, Korea was launching a similar high-speed internet service.
 
 Specifically, 【Samjin Computer】 rented cable lines to start the service.
 
 Lee Hyun-woo’s phone was busy that day.
 
-Following Son Jung-ui, Park Jin-yong, the chairman of 【Samjin Computer】, also called.
+Following Son Jung-yi, Park Jin-yong, the chairman of 【Samjin Computer】, also called.
 
 It’s always nerve-wracking after the first shovel hits the ground.
 
@@ -193,7 +193,7 @@ Park Jin-yong asked again, eyes wide open.
 
 “You mean you’re going to start a high-speed internet business in Japan?”
 
-“Exactly. 【Software Bank】 will do it. Son Jung-ui said he would, and I decided to invest partially.”
+“Exactly. 【Software Bank】 will do it. Son Jung-yi said he would, and I decided to invest partially.”
 
 “Uh…”
 
@@ -211,7 +211,7 @@ Park Jin-yong asked again, eyes wide open.
 
 “Why do you say I have no plan? The total cost will be high, but the monthly expenses will be divided into N parts, right? Then I can pay the investment with the monthly earnings.”
 
-In fact, that’s what he agreed on with Son Jung-ui.
+In fact, that’s what he agreed on with Son Jung-yi.
 
 Since 【Software Bank】 would take the lead, 【Jungle】’s investment stake was set at 15%.
 

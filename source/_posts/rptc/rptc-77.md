@@ -33,15 +33,15 @@ Shortly after, Oh Min-woo, who was preparing to leave work, approached him, curi
 
 "You're speaking informally too."
 
-"Tch, I can't talk to you."
+"Tch, I don't have time to talk to you."
 
 "What's up? Tell me, tell me. Did you pick up a girl at the nightclub or something?"
 
-"Your thinking... No, it's something much better."
+"That brain of yours... No, it's something much better."
 
 "Much better than that?"
 
-"I have a dream now. To go for an MBA in the U.S. later. Not basketball, but M! B! A! You might have heard of it."
+"I have a dream now. To go for an MBA in the U.S. later. Not the basketball league, but M! B! A! You might have heard of it."
 
 Oh Min-woo's eyes sparkled.
 
@@ -53,31 +53,31 @@ Oh Min-woo's eyes sparkled.
 
 "As expected... You must be a genius. It's amazing how you read and interpret English so fluently."
 
-"Would you really call that genius? Anyway, our books are in the original language."
+"Would you really call that genius? Our textbooks are in the original language."
 
-"That's true, but it's related to your major, so you're used to the terms now. By the way, listening to you makes me realize, I didn't even know what an MBA was when I told our CEO I wanted to go."
+"That's true, but it's related to our major, so we're used to the vocabs now. By the way, listening to you makes me realize, I didn't even know what an MBA was when I told our CEO I wanted to go."
 
-"When?"
+"You are going?"
 
-"After dropping out of college. You also told him you were quitting school."
+"After dropping out of college. I also told him you were quitting school."
 
 Oh Min-woo immediately exploded in frustration.
 
 "Hey! How could you bring that up?"
 
-"I had no choice. You understand."
+"I had no choice. Hope you understand."
 
-"Damn, you always blab."
+"Damn, you always blab..."
 
-With a displeased expression, Oh Min-woo spoke again.
+With a displeased expression, Oh Min-woo continued.
 
-"And you're ignorant. Do you know that an MBA is a graduate program? You need a college degree and work experience to get in."
+"...and ignorant. Do you know that an MBA is a graduate program? You need a college degree and work experience to get in."
 
 "I know, I heard from my brother. Listening to him, I realized how hard it is to find information."
 
 Lee Jung-woo easily acknowledged.
 
-He seemed determined to have a broad mindset since he was going to be the head of 【Jungle】's U.S. branch anyway.
+He seemed determined to have a broad mindset if he was going to be the head of 【Jungle】's U.S. branch.
 
 Then he spoke.
 
@@ -105,7 +105,7 @@ Lee Jung-woo's expression turned serious.
 
 "Talk about this and then leave? No way. If something interrupts in the middle, I can't sleep."
 
-"Shall we talk together then?"
+"Shall we work on it together then?"
 
 "Deal!"
 
@@ -137,11 +137,11 @@ It was his brother Lee Jung-woo and Oh Min-woo.
 
 "Then we might need a new section for questions and answers."
 
-"Yes, with hyperlinks. Also, increasing visibility could help boost visitor numbers. What do you think?"
+"Yes, with footnote hyperlinks. Also, increasing visibility could help boost visitor numbers. What do you think?"
 
 Listening to their ping-pong conversation, admiration flashed in Lee Hyun-woo's eyes.
 
-"The aspects of portal services from my past life keep resurfacing."
+'The aspects of portal services from my past life keep resurfacing.'
 
 After hearing their entire proposal, Lee Hyun-woo responded with satisfaction.
 
@@ -189,17 +189,17 @@ Listening to their conversation, Lee Hyun-woo smiled and made a decision.
 
 "Martial arts, fantasy literature, and such. Comics, serialized manga, and games are all considered subcultures."
 
-"Talking to you makes my knowledge feel shallower."
+"Talking to you makes my knowledge feel shallower, hyung."
 
-"Not brother, CEO."
+"Not hyung, CEO."
 
-"This guy, you call him brother sometimes too!"
+"Hey, you call him hyung sometimes too!"
 
 "Not lately."
 
 As they bickered again, Lee Hyun-woo intervened.
 
-"Alright, enough. Don't forget to separate work and personal matters. Be the team leaders you are."
+"Alright, enough. Don't forget to separate work and personal matters. Act as the team leaders you are."
 
 "Yes, CEO."
 
@@ -211,9 +211,9 @@ As they bickered again, Lee Hyun-woo intervened.
 
 "Right. Plus, we’ve hired new employees, so we have extra manpower."
 
-"That's not true."
+"Technically that's not true."
 
-"We do."
+"We certainly do."
 
 "Again, again... in front of me, separate work and personal matters strictly and stop arguing."
 
@@ -261,11 +261,11 @@ Multiple thoughts swam in his mind.
 
 It was 1996, and although there weren't many portal sites globally, it was unexpected for a small Korean portal site to be on the radar of a U.S. company.
 
-"No, I should have expected it. How else would Son Joo-yi have known about us?"
+"No, I should have expected it. How else would Son Jung-yi have known about us?"
 
 For a Korean IT company to be known overseas, it had to be proven through marketability.
 
-Though short-lived, 【Jungle】 had rapidly grown, changing the hegemony of the Korean information and communications era.
+Though newly-formed, 【Jungle】 had rapidly grown, changing the hegemony of the Korean information and communications era.
 
 The successful landing of ADSL had already been demonstrated through test trials.
 
@@ -283,7 +283,7 @@ Third, if both parties agree, we can proceed with the business collaboration.
 
 Fourth, once the business collaboration is confirmed, we will send people to 【Alta Vista】, and they should send people to us as well.
 
-Fifth, even if the business collaboration isn't confirmed, we want to start mutual visits and personnel exchanges.
+Fifth, even if the business collaboration isn't confirmed, we can start with mutual visits and personnel exchanges.
 
 After sending the email, Lee Hyun-woo called a meeting of all team leaders near the end of the workday.
 

@@ -131,7 +131,7 @@ He felt he needed to think a lot about this.
 
 The next day, Kim Tae-hyun arrived.
 
-Then the three of them met Son Jung-ui.
+Then the three of them met Son Jung-yi.
 
 The one leading the conversation was, of course, Lee Hyun-woo.
 
@@ -139,7 +139,7 @@ The one leading the conversation was, of course, Lee Hyun-woo.
 
 He spoke as if there was no point in entering the Japanese market otherwise.
 
-Son Jung-ui nodded in agreement with Lee Hyun-woo’s words.
+Son Jung-yi nodded in agreement with Lee Hyun-woo’s words.
 
 "Exactly. That's why we've been focusing on promotions. A million users are just a matter of time. Now I'm looking beyond that."
 
@@ -149,13 +149,13 @@ Son Jung-ui nodded in agreement with Lee Hyun-woo’s words.
 
 "Online shopping…"
 
-Although it was slightly discussed in the previous two meetings, Son Jung-ui was more proactive today after the meeting in Japan.
+Although it was slightly discussed in the previous two meetings, Son Jung-yi was more proactive today after the meeting in Japan.
 
 "We're already holding meetings every day to establish a delivery system. My dream is to enable receiving goods within a few days with a single click. Is it too ambitious to hope to achieve that in Tokyo within two years?"
 
 Lee Hyun-woo smiled slightly at his response.
 
-Even in his past life, Son Jung-ui loved online shopping, and it seems similar this time around.
+Even in his past life, Son Jung-yi loved online shopping, and it seems similar this time around.
 
 However, there were many things to point out.
 
@@ -171,7 +171,7 @@ There were other points to critique, but he kept them to himself.
 
 After all, dreams are free.
 
-Son Jung-ui wasn’t someone who couldn't prioritize if given something else.
+Son Jung-yi wasn’t someone who couldn't prioritize if given something else.
 
 "Logistics infrastructure is good. But isn't the network infrastructure more lacking?"
 
@@ -185,7 +185,7 @@ Son Jung-ui wasn’t someone who couldn't prioritize if given something else.
 
 "No. It was because CEO Lee encouraged us and even invested equity."
 
-As soon as Son Jung-ui mentioned Lee Hyun-woo’s name and his intention to invest, the expressions of Kim Tae-hyun and Kim Ah-young, who had been silent, changed slightly.
+As soon as Son Jung-yi mentioned Lee Hyun-woo’s name and his intention to invest, the expressions of Kim Tae-hyun and Kim Ah-young, who had been silent, changed slightly.
 
 They had heard through the media but thought it was exaggerated information. It turned out to be true.
 
@@ -201,11 +201,11 @@ They had heard through the media but thought it was exaggerated information. It 
 
 So, does he dream of a logistics system after that?
 
-Lee Hyun-woo looked at Son Jung-ui, who was aiming high, and smiled.
+Lee Hyun-woo looked at Son Jung-yi, who was aiming high, and smiled.
 
 People who look to the future have a connection.
 
-When Lee Hyun-woo talks about ‘change,’ Son Jung-ui reaches out and grabs it.
+When Lee Hyun-woo talks about ‘change,’ Son Jung-yi reaches out and grabs it.
 
 "I still keep your words in my heart, CEO Lee. In Korea, two public enterprises and one private company established high-speed internet. Using telephone lines, towers, and transmission lines, and cable. All of these are also laid out in Japan."
 
@@ -271,7 +271,7 @@ Kim Tae-hyun showed an even wryer smile.
 
 Then he said the following.
 
-"Listening to you and Son Jung-ui talk today, I realized many things. Each has their own place, their own domain. And their own dreams."
+"Listening to you and Son Jung-yi talk today, I realized many things. Each has their own place, their own domain. And their own dreams."
 
 "Well, that's true."
 
@@ -301,7 +301,7 @@ He was sure Kim Tae-hyun was referring to him as Zhuge Liang.
 
 ‘I don't have such big dreams, though?’
 
-It seemed that Kim Tae-hyun had mistaken the conversation he had with Son Jung-ui earlier for grand plans to dominate the network and logistics infrastructure.
+It seemed that Kim Tae-hyun had mistaken the conversation he had with Son Jung-yi earlier for grand plans to dominate the network and logistics infrastructure.
 
 ‘I told the chairman before, my dream is just to be a filial son, a good husband, and a respected father.’
 

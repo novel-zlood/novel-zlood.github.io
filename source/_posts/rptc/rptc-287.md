@@ -193,7 +193,7 @@ Continued business promotion news and its subsequent success naturally acted as 
 
 Among these, the most favorable news was the IPO announcement of Jungle Japan.
 
-Initially, as soon as Son Jung-ui started servicing Jungle Japan, he began preparing for an IPO on the Tokyo Stock Exchange, and now they were on the verge of listing.
+Initially, as soon as Son Jung-yi started servicing Jungle Japan, he began preparing for an IPO on the Tokyo Stock Exchange, and now they were on the verge of listing.
 
 『Jungle Japan attracts over 800 billion yen on the first day of public offering...』
 
@@ -205,13 +205,13 @@ The next day, even more funds poured in.
 
 With a whopping 2 trillion yen deposit, it once again broke the record.
 
-Naturally, Lee Hyun-woo called to congratulate Chairman Son Jung-ui.
+Naturally, Lee Hyun-woo called to congratulate Chairman Son Jung-yi.
 
 "Hello? Chairman, it's me, Lee Hyun-woo."
 
 (Ah, CEO, how are you?)
 
-Son Jung-ui's voice was very bright, reflecting his mood.
+Son Jung-yi's voice was very bright, reflecting his mood.
 
 Although he anticipated success, he must have been quite buoyed by the actual big hit.
 
@@ -227,7 +227,7 @@ Although he anticipated success, he must have been quite buoyed by the actual bi
 
 (Luck alone can't explain it. Actually, I have a lot of experience in game distribution, so I can definitely feel the popularity of 【Space War】.)
 
-In fact, Son Jung-ui's Software Bank made a lot of money initially from Windows and games.
+In fact, Son Jung-yi's Software Bank made a lot of money initially from Windows and games.
 
 Even now, they haven't let go of those two areas.
 

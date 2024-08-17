@@ -241,15 +241,15 @@ Interrupting him, Kim Tae-hyun nodded as Lee Hyun-woo continued his explanation.
 
 "Now you're openly interfering in management."
 
-"Please take it as sincere advice. You said you hate being second, so please be number one in the server area."
+"Please take it as sincere advice. You said you hate being second, so please be number one in the server manfacturing field."
 
 "My, you sure have a way with words."
 
 Though he seemed incredulous, Kim Tae-hyun was actually taking Lee Hyun-woo's advice to heart.
 
-After all, what he said made perfect sense.
+After all, what he heard made perfect sense.
 
-Then he looked at his silent brother and asked curiously.
+Then he looked at his sister who is silent the whole time and asked curiously.
 
 "Why aren't you saying anything?"
 
@@ -257,11 +257,11 @@ Then he looked at his silent brother and asked curiously.
 
 "What are you talking about?"
 
-"It sounds like you plan to expand to other places besides Japan, but there's no benefit for me. 【Jungle】's overseas expansion, 【Guseong Electronics】's server development, etc... But what can I do with the hotel? No matter how I think, I only introduced my friend and did good for oppa."
+"It sounds like you plan to expand to other places besides Japan, but there's no benefit for me. 【Jungle】's overseas expansion, 【Guseong Electronics】's server development, etc... But what can I do with the hotel? No matter how I think, I only introduced my friend and it bring good things for oppa."
 
 "Hey, you're investing too."
 
-"I have something to say about that. 【Jungle】 has 40%, oppa has 26%, even Son Joong-yi, who we met recently, has 25%, and I only have 9%. So, Hyun-woo."
+"I have something to say about that. 【Jungle】 has 40%, oppa has 26%, even Son Jung-yi, who we met recently, has 25%, and I only have 9%. So, Hyun-woo."
 
 "Yeah?"
 

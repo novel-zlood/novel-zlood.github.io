@@ -199,7 +199,7 @@ The second group was also foreign big shots.
 
 "Long time no see. Hahaha."
 
-Son Joong-ui, and the Japanese investors he brought along.
+Son Jung-yi, and the Japanese investors he brought along.
 
 The third were the so-called underground financiers.
 

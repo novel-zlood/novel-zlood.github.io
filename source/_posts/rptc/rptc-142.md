@@ -133,7 +133,7 @@ The employee widened his eyes, wondering why he was suddenly talking about a rec
 
 "……!"
 
-"There’s also talk that 【Jungle Music】 is partnering with Son Jung-ui to target the Japanese market. They might target the U.S. market too. The start might be modest, as both Japan and the U.S. are in the early stages of ADSL. But once high-speed internet is in place and download speeds increase, what do you think will happen? Try to imagine."
+"There’s also talk that 【Jungle Music】 is partnering with Son Jung-yi to target the Japanese market. They might target the U.S. market too. The start might be modest, as both Japan and the U.S. are in the early stages of ADSL. But once high-speed internet is in place and download speeds increase, what do you think will happen? Try to imagine."
 
 The employee's pupils trembled slightly.
 

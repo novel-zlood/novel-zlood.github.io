@@ -25,7 +25,7 @@ If it weren't for her niece, Kim Ah-young, she would have wanted to match her up
 
 Recently, it had become more intense.
 
-Son Joong-ui was paying attention and Wall Street was eyeing him. Any Korean chaebol family with a daughter wanted Lee Hyun-woo as a son-in-law.
+Son Jung-yi was paying attention and Wall Street was eyeing him. Any Korean chaebol family with a daughter wanted Lee Hyun-woo as a son-in-law.
 
 A professional matchmaker who has been going around chaebol families already gave an exceptional rating.
 

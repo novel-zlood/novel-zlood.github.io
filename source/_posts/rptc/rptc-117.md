@@ -57,7 +57,7 @@ He asked again, unable to believe it.
 
 “Really?”
 
-“Of course. As you know, what kind of search engine do we have? Son Jung-ui was eager to create a portal site with us, and 【Altavista】 declared that it would abandon its search engine and use ours.”
+“Of course. As you know, what kind of search engine do we have? Son Jung-yi was eager to create a portal site with us, and 【Altavista】 declared that it would abandon its search engine and use ours.”
 
 “Really?”
 
@@ -265,11 +265,11 @@ First, that afternoon, Woo Sang-won came to see Lee Hyun-woo.
 
 “Next month then. What's the reason?”
 
-“It seems Son Jung-ui judged that Japan’s internet environment isn’t ripe yet.”
+“It seems Son Jung-yi judged that Japan’s internet environment isn’t ripe yet.”
 
 “Does that mean there are no technical issues?”
 
-“He includes technical issues in his statement. Son Jung-ui hopes that ADSL will be established in Japan as well.”
+“He includes technical issues in his statement. Son Jung-yi hopes that ADSL will be established in Japan as well.”
 
 “But will that be resolved by April?”
 
@@ -285,7 +285,7 @@ The fact that they were observing the situation in Korea meant...
 
 As expected, Korea had become a leading country in high-speed internet.
 
-‘But why doesn’t Son Jung-ui think of directly providing the service?’
+‘But why doesn’t Son Jung-yi think of directly providing the service?’
 
 In his previous life, he definitely did provide that service.
 
@@ -297,7 +297,7 @@ Suddenly, a new idea popped into Lee Hyun-woo’s mind.
 
 ‘Then I should suggest collaborating later.’
 
-To be precise, Son Jung-ui would work hard, and Lee Hyun-woo would provide the funding.
+To be precise, Son Jung-yi would work hard, and Lee Hyun-woo would provide the funding.
 
 
 ----

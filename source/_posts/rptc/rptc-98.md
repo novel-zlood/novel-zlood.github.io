@@ -109,7 +109,7 @@ But since there were no concrete moves, he found it strange.
 
 A sudden realization.
 
-The plan for Jungle to venture into Japan in collaboration with Son Jung-ui had shifted the direction.
+The plan for Jungle to venture into Japan in collaboration with Son Jung-yi had shifted the direction.
 
 In his past life, Yahoo Japan and Yahoo Korea were both joint ventures.
 

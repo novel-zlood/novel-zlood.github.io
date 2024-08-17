@@ -11,7 +11,7 @@ It wasn't because he drank too much, but because he was in the final stages of n
 
 As his son gradually found enjoyment in management, Kim Sung-moo wanted to support Kim Tae-hyun's recent endeavors.
 
-"But he's even going to Japan to meet Son Jung-ui."
+"But he's even going to Japan to meet Son Jung-yi."
 
 Moreover, he felt uneasy about his daughter going alone with Lee Hyun-woo, so he thought this was really good timing.
 
@@ -35,7 +35,7 @@ He began to ask her questions that had been on his mind.
 
 This was an entirely unexpected approach, and Kim Sung-moo's eyes widened in surprise.
 
-"Of course. If it's Son Jung-ui, he would definitely push for the IPO."
+"Of course. If it's Son Jung-yi, he would definitely push for the IPO."
 
 Though the success of Jungle Japan in Japan was crucial, Kim Sung-moo's instinct told him that the portal site would become a perfect global information hub within a few years.
 
@@ -67,7 +67,7 @@ He was reconfirming to jog his memory, but the more he heard, the more cunning H
 
 With 40%, he was a major shareholder, and depending on the issuance of 'new shares' and 'old shares,' he could cash out as much as he wanted.
 
-"I heard that Jungle Japan has already become a hot topic in Japan, so going public there won't be difficult. Son Jung-ui said it would be valued with a market cap of at least 100 billion yen."
+"I heard that Jungle Japan has already become a hot topic in Japan, so going public there won't be difficult. Son Jung-yi said it would be valued with a market cap of at least 100 billion yen."
 
 "......"
 

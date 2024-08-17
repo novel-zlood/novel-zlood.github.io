@@ -25,11 +25,11 @@ They invited Lee Hyun-woo to hold a forum.
 
 Next, he read the news from Yahoo.
 
-The article mentioned that Son Joong-ui went to Korea to meet with Lee Hyun-woo and reached an agreement.
+The article mentioned that Son Jung-yi went to Korea to meet with Lee Hyun-woo and reached an agreement.
 
 However, the article focused more on the confirmation of the investment rather than specific details.
 
-Son Joong-ui maintained some confidentiality while promoting Jungle, Yahoo, and Software Bank.
+Son Jung-yi maintained some confidentiality while promoting Jungle, Yahoo, and Software Bank.
 
 Since the article was published in the U.S., it wouldn't be different in Japan.
 

@@ -231,17 +231,17 @@ That was uncertain, but history was continually changing with Lee Hyun-woo's inv
 
 It started small, but now, not knowing his name in the industry was almost espionage-level ignorance.
 
-Because of this, even Son Joong-ui from 【Software Bank】 had announced that he would visit 【Jungle】 and meet Lee Hyun-woo in person.
+Because of this, even Son Jung-yi from 【Software Bank】 had announced that he would visit 【Jungle】 and meet Lee Hyun-woo in person.
 
 "I've scheduled the meeting for three days from now."
 
 The person handling the arrangement on behalf of Lee Hyun-woo was Kang Dong-ho.
 
-Of course, he must have spoken with Son Joong-ui's secretary.
+Of course, he must have spoken with Son Jung-yi's secretary.
 
 "Is he still in the U.S.?"
 
-"Son Joong-ui? No, he has returned to Japan. Judging by how he plans to come to Korea after just one day of rest, he seems to be in quite a hurry."
+"Son Jung-yi? No, he has returned to Japan. Judging by how he plans to come to Korea after just one day of rest, he seems to be in quite a hurry."
 
 "I see."
 
@@ -271,7 +271,7 @@ So, when Lee Hyun-woo said there was no need for an interpreter, he immediately 
 
 Three days later.
 
-Son Joong-ui appeared at 【Jungle】.
+Son Jung-yi appeared at 【Jungle】.
 
 "Nice to meet you."
 
@@ -281,7 +281,7 @@ Son Joong-ui appeared at 【Jungle】.
 
 "Not very well. But I think we can manage without an interpreter."
 
-A glint appeared in Son Joong-ui's eyes.
+A glint appeared in Son Jung-yi's eyes.
 
 Though Lee Hyun-woo said he couldn't speak well, his fluent Japanese indicated otherwise.
 
@@ -297,17 +297,17 @@ Though Lee Hyun-woo said he couldn't speak well, his fluent Japanese indicated o
 
 "That might be more convenient for both of us."
 
-Son Joong-ui could infer several implications from Lee Hyun-woo's words.
+Son Jung-yi could infer several implications from Lee Hyun-woo's words.
 
 Proceeding without an interpreter meant they wanted to keep it confidential.
 
 That confidentiality likely pertained to business, possibly involving large sums of money.
 
-Lastly, if any information leaked, Son Joong-ui would be one of the prime suspects.
+Lastly, if any information leaked, Son Jung-yi would be one of the prime suspects.
 
 "Let's do that."
 
-Son Joong-ui smiled, accepting all the implications.
+Son Jung-yi smiled, accepting all the implications.
 
 Without an interpreter, the conversation could indeed go deeper.
 

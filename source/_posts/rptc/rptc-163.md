@@ -17,9 +17,9 @@ The news that broke from the next day decorated the main pages of several portal
 
 『Yaho, Not Wanting to Lose More of the Asian Market, Rushing into Hong Kong and Taiwan!』
 
-『Jamie Yang, Inquiring About Additional Investment in Son Joong-ui?』
+『Jamie Yang, Inquiring About Additional Investment in Son Jung-yi?』
 
-As titles blending fact and speculation captivated people's attention, Lee Hyun-woo received a call from Son Joong-ui.
+As titles blending fact and speculation captivated people's attention, Lee Hyun-woo received a call from Son Jung-yi.
 
 (Have you entered the U.S. several times but haven't come to Japan?)
 
@@ -37,7 +37,7 @@ He felt regretful that he couldn't even enjoy himself overseas.
 
 (That's good to hear. But I think I might go to Korea before that.)
 
-Lee Hyun-woo could guess why Son Joong-ui was coming.
+Lee Hyun-woo could guess why Son Jung-yi was coming.
 
 ‘He probably wants to hasten the introduction of online shopping and music services.’
 
@@ -49,7 +49,7 @@ That was why Woo Sang-won had been continuously contacting him over the past few
 
 They were coordinating the timing, and considering that ADSL would be fairly widespread in Tokyo by the second half of the year, they discussed the timing with Lee Hyun-woo.
 
-Was Son Joong-ui perhaps feeling quite impatient?
+Was Son Jung-yi perhaps feeling quite impatient?
 
 (I want to bring good news and see you in person.)
 
@@ -69,7 +69,7 @@ Although June was approaching, by now, halfway through the second quarter, they 
 
 After hanging up, Lee Hyun-woo called in Woo Sang-won.
 
-“Son Joong-ui is coming.”
+“Son Jung-yi is coming.”
 
 “He mentioned that he might drop by if he had time, but I guess he's really coming.”
 
@@ -85,7 +85,7 @@ Marketing is more advanced in Japan.
 
 The ad rates there are likely several times higher than in Korea.
 
-“Looking at it this way, Son Joong-ui really hit the jackpot. If it were Yaho, they probably wouldn’t have made as much money from ads.”
+“Looking at it this way, Son Jung-yi really hit the jackpot. If it were Yaho, they probably wouldn’t have made as much money from ads.”
 
 “It's not something we can say for sure, but it would likely be less than now.”
 
@@ -161,7 +161,7 @@ Now that Alpha Cast had taken off, it was solely up to the management to run it 
 
 A few days later.
 
-When Son Joong-ui visited Jungle again, he brought up the astonishing achievements he had mentioned earlier.
+When Son Jung-yi visited Jungle again, he brought up the astonishing achievements he had mentioned earlier.
 
 “Last month, we recorded sales of 6 billion yen.”
 
@@ -173,13 +173,13 @@ That would be 600 billion won in Korean currency.
 
 “The initial surge continued, and the effect of search word advertising was no joke. Though large banner ads bring in big money, small search word ads, when accumulated, exceeded that big money.”
 
-Lee Hyun-woo nodded at Son Joong-ui’s explanation.
+Lee Hyun-woo nodded at Son Jung-yi’s explanation.
 
 In fact, Korean Jungle was following a similar trend.
 
 Although it was as expected, the sales exceeded his expectations, making Lee Hyun-woo feel quite good.
 
-Then, unexpected news came from Son Joong-ui's mouth,
+Then, unexpected news came from Son Jung-yi's mouth,
 
 “By the way, have you heard about Windows 97 coming out?”
 
@@ -195,11 +195,11 @@ It should be 98 if anything.
 
 “I see.”
 
-There was certainty in Son Joong-ui’s words, and Lee Hyun-woo couldn’t help but believe the information he brought.
+There was certainty in Son Jung-yi’s words, and Lee Hyun-woo couldn’t help but believe the information he brought.
 
 ‘This man has an exclusive sales agreement for all Macro Soft software in Japan, so it’s hard not to believe him.’
 
-Son Joong-ui's Software Bank striking an exclusive deal with Macro Soft was indeed a masterstroke.
+Son Jung-yi's Software Bank striking an exclusive deal with Macro Soft was indeed a masterstroke.
 
 No one would have expected Windows 95 to sell so massively, and whether it was 97 or 98, people would have no choice but to use it as soon as it came out.
 
@@ -225,13 +225,13 @@ Indeed, one might say he has an exceptional ability to integrate trends into bus
 
 “Indeed. Like all products, there’s a period of oversupply where they don’t sell, but the demand rises again, leading to a flood of sales.”
 
-Thinking of his conversation with Son Joong-ui, Lee Hyun-woo thought of Kim Yoon-soo.
+Thinking of his conversation with Son Jung-yi, Lee Hyun-woo thought of Kim Yoon-soo.
 
 ‘As the era of oversupply is ending, I should tell him to prepare for mass production by readjusting the lines.’
 
 Of course, this was something for later.
 
-Because Son Joong-ui was finally bringing up what he wanted,
+Because Son Jung-yi was finally bringing up what he wanted,
 
 “In that sense, I feel the need to hasten the online shopping and music site launches. With more computers and a new Windows that makes web surfing convenient…”
 
@@ -241,7 +241,7 @@ Because Son Joong-ui was finally bringing up what he wanted,
 
 “Send your development team over. Then, our team will prepare jointly, aiming to launch the online shopping and music sites by fall.”
 
-Son Joong-ui’s face brightened up.
+Son Jung-yi’s face brightened up.
 
 However, there was something not to be forgotten.
 

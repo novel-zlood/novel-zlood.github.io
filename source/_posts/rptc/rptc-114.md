@@ -163,7 +163,7 @@ Since January and February of this year, the media had been keeping a close watc
 
 Even if it wasn't new content, they would recycle and repeat the news.
 
-Recent news about 【Alta Vista】 and Son Joong-ui had been covered to the point of exhaustion.
+Recent news about 【Alta Vista】 and Son Jung-yi had been covered to the point of exhaustion.
 
 But while some viewers might be tired of it, with the rapid spread of high-speed internet, the increase in the user base meant it could be fresh to someone.
 
@@ -213,7 +213,7 @@ Lee Hyun-woo responded with a smile to the immediate expression of gratitude aft
 
 It was understandable.
 
-Just as Son Joong-ui's mention of 【Jungle】 in the U.S. and Japan led to a flood of investment inquiries, the attention inevitably increased when a ‘celebrity’ in the industry mentioned a name.
+Just as Son Jung-yi's mention of 【Jungle】 in the U.S. and Japan led to a flood of investment inquiries, the attention inevitably increased when a ‘celebrity’ in the industry mentioned a name.
 
 Therefore, Lee Hyun-woo decided to give this joy to others as well.
 

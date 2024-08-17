@@ -165,7 +165,7 @@ Perhaps in this life, 'Forest' would serve the role of 'Cron'.
 
 * * *
 
-After Joe Murphy, Son Jung-ui visited.
+After Joe Murphy, Son Jung-yi visited.
 
 "Did you find a good place the other day?"
 
@@ -173,9 +173,9 @@ After Joe Murphy, Son Jung-ui visited.
 
 "No, it was mutually beneficial."
 
-Son Jung-ui gained from investing in promising places, and venture companies gained momentum by meeting investors.
+Son Jung-yi gained from investing in promising places, and venture companies gained momentum by meeting investors.
 
-It could be said to be a win-win, but Son Jung-ui's expression was filled with regret.
+It could be said to be a win-win, but Son Jung-yi's expression was filled with regret.
 
 There was a reason.
 
@@ -183,7 +183,7 @@ There was a reason.
 
 IT entrepreneurs couldn't help but envy the current state of Korea.
 
-With an internet infrastructure different today than yesterday, as Son Jung-ui said, the IT ecosystem was evolving to continually give birth to new dot-com companies.
+With an internet infrastructure different today than yesterday, as Son Jung-yi said, the IT ecosystem was evolving to continually give birth to new dot-com companies.
 
 "Especially, the variety of online shopping malls is astounding. There are places that conduct auctions or mediate between sellers and buyers, like Jungle, and even specialized online malls for books and clothes. There are even sites that handle travel, lodging, artwork, and second-hand luxury goods."
 
@@ -229,7 +229,7 @@ However, Lee Hyun-woo was unhesitant.
 
 "Ah... okay..."
 
-This time, there was no admiration in Son Jung-ui's eyes.
+This time, there was no admiration in Son Jung-yi's eyes.
 
 It felt too distant, like chasing a mirage.
 
@@ -239,11 +239,11 @@ It wasn't about refining future technological advancements to impress someone.
 
 Eventually, the rest of the conversation repeated the content previously discussed with Joe Murphy.
 
-Son Jung-ui was also interested in 'make friends' and the new Jungle web browser 'Forest'.
+Son Jung-yi was also interested in 'make friends' and the new Jungle web browser 'Forest'.
 
 'It seems he can see a few years ahead, but not decades.'
 
-Seeing Son Jung-ui's reaction, it seemed likely that the editorial would be quite dull for people.
+Seeing Son Jung-yi's reaction, it seemed likely that the editorial would be quite dull for people.
 
 * * *
 

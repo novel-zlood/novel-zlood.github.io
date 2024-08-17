@@ -171,7 +171,7 @@ Although it wasn't referring to the Nostradamus of the blog, sometimes it startl
 
 'Indeed, people can't live with guilt.'
 
-Although he hadn't committed any crimes, those with secrets tend to get pricked this way.
+Although he hadn't committed any crimes, those with secrets tend to get their conscience pricked this way.
 
 Maybe because of this, he felt a bit uneasy seeing Oh Min-woo approaching with glaring eyes.
 
@@ -209,7 +209,7 @@ Even now, after pondering something, he immediately said.
 
 "Deceived? What did I deceive you about? Anyway, can you make this for me?"
 
-"Giving another task amidst this, the CEO class!"
+"Giving another task amidst this, our CEO is class!"
 
 As expected, being a free spirit, he spoke in a language far from corporate lingo.
 
@@ -299,19 +299,19 @@ Trying to make him study while the young team leaders were trying to avoid schoo
 
 "Right? When you read superficially, it seems like something is happening somewhere, but to know in detail, you have to read the newspapers from that country. My English isn't that good..."
 
-"Thinking about studying abroad when you can't even handle English? It was a trick. Saying you'd prepare after pausing college to buy time."
+"Thinking about studying abroad when you can't even handle English? That's a cheap trick. Saying you'd prepare after pausing college to buy time."
 
 "Busted. Our CEO is really hard to deceive."
 
-"Not only that, but I also rarely forget what I say."
+"Not only that, but I also rarely forget what I heard."
 
 "What are you planning not to forget today?"
 
-"MBA. Aim for that after graduating from college. I'll send you abroad."
+"Your MBA. I now want you to aim for that after graduating from college. I'll send you abroad."
 
 "Hyung! What about the company?"
 
-Finally, Lee Jung-woo got excited and crossed the professional-personal boundary.
+Lee Jung-woo got so surprised and crossed the professional-personal boundary.
 
 "Why are you worrying about the company? I'll take care of everything. And by then, we might have expanded to the U.S."
 

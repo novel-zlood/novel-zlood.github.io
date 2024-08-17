@@ -31,7 +31,7 @@ Given the small age gap, they were practically peers, and living in the same era
 
 It was strange not to feel jealousy, but his son accepted Lee Hyun-woo's opinions positively without such feelings.
 
-"My relationship with him has been extraordinary from the beginning. Honestly, just consider the shares we acquired when we partnered with Son Joong-ui and expanded to Japan. The IPO is almost certain next year, and its current value exceeds 200 billion yen. A significant portion of that includes shares of 【Guseong Electronics】, which can be liquidated through over-the-counter transactions."
+"My relationship with him has been extraordinary from the beginning. Honestly, just consider the shares we acquired when we partnered with Son Jung-yi and expanded to Japan. The IPO is almost certain next year, and its current value exceeds 200 billion yen. A significant portion of that includes shares of 【Guseong Electronics】, which can be liquidated through over-the-counter transactions."
 
 200 billion yen, when converted to the current unstable won exchange rate, slightly exceeds 2.2 trillion won.
 

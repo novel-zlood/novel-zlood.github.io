@@ -155,7 +155,7 @@ However, at this time, 【Yahoo】’s entry into Taiwan could be seen as somewh
 
 At the same time Lee Hyun-woo received the report from Han Se-jin, 【Yahoo】’s CEO Jaime Yang was receiving an explanation from her secretary.
 
-“Entering Japan was smooth with Son Jung-ui and in the US through collaboration with 【AltaVista】 and investment from 【Natural Standard Fund】, but Hong Kong and Taiwan don’t have clear business partners. Therefore, 【Jungle】 is planning a concert in Taiwan and Hong Kong in line with the recent Hallyu trend.”
+“Entering Japan was smooth with Son Jung-yi and in the US through collaboration with 【AltaVista】 and investment from 【Natural Standard Fund】, but Hong Kong and Taiwan don’t have clear business partners. Therefore, 【Jungle】 is planning a concert in Taiwan and Hong Kong in line with the recent Hallyu trend.”
 
 Jaime Yang, who has Taiwanese blood, and her secretary, who is also of Taiwanese immigrant descent, were well aware of the rising significance of Hallyu in the Chinese-speaking world.
 

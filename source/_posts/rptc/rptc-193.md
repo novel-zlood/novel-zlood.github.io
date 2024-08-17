@@ -275,7 +275,7 @@ It was Kim Yoon-soo’s voice.
 
 Naturally, he included 【Future Asset】 in the list of companies he was already writing about.
 
-And after including the already confirmed Son Jung-ui, the lineup became formidable.
+And after including the already confirmed Son Jung-yi, the lineup became formidable.
 
 A satisfied smile appeared on his lips.
 

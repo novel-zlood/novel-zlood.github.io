@@ -81,15 +81,15 @@ But only for a moment, as he immediately asked about her opinion.
 
 "......?"
 
-"Oh, I was too impatient and didn’t explain properly. Actually, during my trip to Japan, I heard something from Son Joong-yi in a private setting."
+"Oh, I was too impatient and didn’t explain properly. Actually, during my trip to Japan, I heard something from Son Jung-yi in a private setting."
 
-"Son Joong-yi from 【Software Bank】?"
+"Son Jung-yi from 【Software Bank】?"
 
 "Yes, that person."
 
 【Software Bank】 is a company that went public on the Japanese stock market about two years ago and showed a record-breaking IPO price.
 
-At that time, Son Joong-yi instantly became a billionaire worth 200 billion yen, which translates to trillions in Korean won.
+At that time, Son Jung-yi instantly became a billionaire worth 200 billion yen, which translates to trillions in Korean won.
 
 "This time, he left for the U.S. to invest in the portal site 【Yahoo】."
 
@@ -103,7 +103,7 @@ At that time, Son Joong-yi instantly became a billionaire worth 200 billion yen,
 
 "Really?"
 
-"Yes, he said if the U.S. has 【Yahoo】, then Korea has 【Jungle】. He predicted that these two portal sites would eventually dominate the Asian market. And you know how accurate Son Joong-yi’s predictions have been lately. How could I stay still after hearing that?"
+"Yes, he said if the U.S. has 【Yahoo】, then Korea has 【Jungle】. He predicted that these two portal sites would eventually dominate the Asian market. And you know how accurate Son Jung-yi’s predictions have been lately. How could I stay still after hearing that?"
 
 "……!"
 
@@ -127,7 +127,7 @@ So, she confidently spoke again.
 
 "I investigated through Secretary Park. You can check it yourself."
 
-"It's even more impressive than expected. No wonder Son Joong-yi mentioned the investment value of 【Jungle】."
+"It's even more impressive than expected. No wonder Son Jung-yi mentioned the investment value of 【Jungle】."
 
 "It’s a bit late, though."
 
@@ -153,7 +153,7 @@ Considering the company is less than a year old and the initial few months' reve
 
 "Wow, so a small amount of money can't even get a foot in the door. Is it already too late?"
 
-"How much do you think Son Joong-yi will invest?"
+"How much do you think Son Jung-yi will invest?"
 
 "I don’t know. But since he secured over 1 trillion won during the IPO two years ago…."
 
@@ -217,7 +217,7 @@ But putting that emotion aside, she quickly got to the point.
 
 "Huh? Did something happen?"
 
-(Do you know Son Joong-yi?)
+(Do you know Son Jung-yi?)
 
 "Of course…."
 
@@ -245,7 +245,7 @@ She naturally considered it something to learn from.
 
 ‘After recharging, new ideas always come up, right?’
 
-Anyway, hearing Son Joong-yi’s name from his mouth made her even more urgent.
+Anyway, hearing Son Jung-yi’s name from his mouth made her even more urgent.
 
 (But he said he’s in the U.S. right now, so he needs to check his schedule. I told him to contact me before coming.)
 
@@ -265,7 +265,7 @@ Half expected, half unexpected, Kim Ah-young was surprised by his words and let 
 
 (Non-voting shares….)
 
-"Of course, Son Joong-yi wouldn't want that. But if I talk to my oppa well, it could work out. I already told him that your company would grow more next year and be worth 200 billion won…."
+"Of course, Son Jung-yi wouldn't want that. But if I talk to my oppa well, it could work out. I already told him that your company would grow more next year and be worth 200 billion won…."
 
 Considering that Lee Hyun-woo scoffs at even trillions of won, she wasn’t sure if he would be impressed by 200 billion won.
 
@@ -291,7 +291,7 @@ Meanwhile, after hanging up with Kim Ah-young, Lee Hyun-woo pondered again.
 
 Certainly, an influx of funds would accelerate the company’s growth.
 
-Especially if it’s from Son Joong-yi and Kim Tae-hyun, it wouldn't be a small amount.
+Especially if it’s from Son Jung-yi and Kim Tae-hyun, it wouldn't be a small amount.
 
 But for some reason, he felt uneasy.
 

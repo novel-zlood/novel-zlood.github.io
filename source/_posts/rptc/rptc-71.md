@@ -323,11 +323,11 @@ His younger brother shared his thoughts.
 
 “Amazing, my foot.”
 
-“Really. Including the successor of 【Kusung Group】, there were three chaebol heirs, and representatives or executives from various companies came. Even celebrities wished for our company’s future.”
+“Really. Including the successor of 【Guseong Group】, there were three chaebol heirs, and representatives or executives from various companies came. Even celebrities wished for our company’s future.”
 
 “Well, they’re just people I met by chance.”
 
-“You’re meeting Son Jung-ui in a few days. Watching you rise higher and higher, it doesn’t feel real. That such a person is my brother.”
+“You’re meeting Son Jung-yi in a few days. Watching you rise higher and higher, it doesn’t feel real. That such a person is my brother.”
 
 “I’m not going up alone. I’m going up with you. To be precise, with our company members.”
 

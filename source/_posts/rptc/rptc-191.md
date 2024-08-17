@@ -187,7 +187,7 @@ Especially since she made a tidy profit after investing in 【Alpha Cast】 and 
 
 Fortunately, Lee Hyun-woo began to satisfy her curiosity.
 
-"I'm planning to invite places to invest in those companies again this time. But last time it was just a single fund company, this time it's a bit different. I'm going to inform Son Jung-ui and Joe Murphy. Besides that, I'll send emails to investment companies around the world."
+"I'm planning to invite places to invest in those companies again this time. But last time it was just a single fund company, this time it's a bit different. I'm going to inform Son Jung-yi and Joe Murphy. Besides that, I'll send emails to investment companies around the world."
 
 "Wow, the scale is really going to be big?"
 

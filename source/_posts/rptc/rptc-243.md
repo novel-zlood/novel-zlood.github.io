@@ -123,7 +123,7 @@ After hanging up, Alfred immediately booked a flight to Korea.
 
 Meanwhile, Lee Hyun-woo received a call from Japan.
 
-It was Son Jung-ui.
+It was Son Jung-yi.
 
 (CEO Lee, I heard Jungle decided to raise investments before listing?)
 
@@ -137,7 +137,7 @@ It was Son Jung-ui.
 
 From the way he asked, it was clear he had a strong intention to invest.
 
-‘To continue business in Japan, I must maintain a good relationship with Son Jung-ui.’
+‘To continue business in Japan, I must maintain a good relationship with Son Jung-yi.’
 
 Lee Hyun-woo decided to accept another 1% allocation for Son.
 
@@ -171,7 +171,7 @@ It seems there are quite a few ultra-high net worth individuals in the world.
 
 After thinking this, Hyun-woo called Shin Dong-woon.
 
-"Chairman Son Jung-ui contacted us."
+"Chairman Son Jung-yi contacted us."
 
 "Ah... so, there too…?"
 

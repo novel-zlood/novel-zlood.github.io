@@ -9,7 +9,7 @@ In reality, Woo Sang-won sent an official letter to Japan.
 
 To summarize, it was, "Could you send it after converting it to dollars?"
 
-This led Son Joong-ui to personally call Lee Hyun-woo.
+This led Son Jung-yi to personally call Lee Hyun-woo.
 
 (Is there something going on... This is the first time we are sending money, and you asked to convert it to dollars, so I contacted you after much consideration.)
 
@@ -57,7 +57,7 @@ So, it seemed like a good idea to accumulate in those accounts, hence the sugges
 
 "Yes, we'll handle it that way if the situation arises."
 
-Lee Hyun-woo smiled at Son Joong-ui's counter-offer.
+Lee Hyun-woo smiled at Son Jung-yi's counter-offer.
 
 Since the joint venture existed in Japan, there was rarely a need to send money from Korea to Japan.
 
@@ -65,7 +65,7 @@ Since the joint venture existed in Japan, there was rarely a need to send money 
 
 Who knows?
 
-What if 【Jungle】 ends up running a joint venture when Son Joong-ui sets up one in Korea?
+What if 【Jungle】 ends up running a joint venture when Son Jung-yi sets up one in Korea?
 
 Unpredictability is a common occurrence, which might be why he hoped it wasn't a rerun.
 

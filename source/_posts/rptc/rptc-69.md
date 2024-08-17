@@ -331,7 +331,7 @@ Moreover, he called out to his sister in a scolding tone.
 
 “What?”
 
-“Just before coming here, he told me. He said I must invest.”
+“Just before coming here, she told me. She said I must invest.”
 
 It seemed like she was insisting, but the truth was that their family had no mercy when it came to business.
 
