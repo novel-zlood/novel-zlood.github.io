@@ -1,11 +1,11 @@
 [
   {
-    "name": "For the Musical Genius",
+    "name": "For the Musical Genius (END)",
     "url": "/ftmg/",
     "desc": "Music, Romance"
   },
   {
-    "name": "I Will Live as an Actor",
+    "name": "I Will Live as an Actor (END)",
     "url": "/iwlaaa/",
     "desc": "Acting, Showbiz"
   },
@@ -23,5 +23,10 @@
     "name": "This Time, a Real Chaebol",
     "url": "/ttarc/",
     "desc": "Business Management"
+  },
+  {
+    "name": "Returnee's path to a Chaebol (END)",
+    "url": "/rptc/",
+    "desc": "Business Management, Romance"
   }
 ]
