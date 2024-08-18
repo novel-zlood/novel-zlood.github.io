@@ -35,7 +35,7 @@ Having remembered it, it was time to write a letter right away.
 
 Lee Hyun-woo sent detailed information to the media outlet he had used before.
 
-Then he sat back down at his computer and visited the site 【Namui Iyagi】.
+Then he sat back down at his computer and visited the site 【Nam's Story】.
 
 Lee Hyun-woo typed in the former president’s name.
 
@@ -51,7 +51,7 @@ So he wrote the following:
 
 Would this be a good hint?
 
-Having sent a letter to the media and written on 【Namui Iyagi】, he believed he would soon find the remaining money from the sale of the artworks.
+Having sent a letter to the media and written on 【Nam's Story】, he believed he would soon find the remaining money from the sale of the artworks.
 
 ‘For some reason, I feel proud.’
 
@@ -69,11 +69,11 @@ Not under the name Nostradamus, but his own name.
 
 Then he wrote:
 
-― Today’s recommended venture company is 【Namui Iyagi】.
+― Today’s recommended venture company is 【Nam's Story】.
 
 He recommended a venture company about once a week.
 
-This time, he decided to pave the way for more people to visit 【Namui Iyagi】.
+This time, he decided to pave the way for more people to visit 【Nam's Story】.
 
 * * *
 
@@ -87,7 +87,7 @@ Today was no different.
 
 At the café of 【Jungle】, these people gathered and started talking.
 
-― Huh? Today he recommended 【Namui Iyagi】?
+― Huh? Today he recommended 【Nam's Story】?
 
 ― I know that place.
 
@@ -127,13 +127,13 @@ They also immediately went to invest in a few other places recommended by Lee Hy
 
 ― I’ll join too.
 
-Thus, some investment funds were about to flow into not only other venture companies but also 【Namui Iyagi】.
+Thus, some investment funds were about to flow into not only other venture companies but also 【Nam's Story】.
 
 * * *
 
 The next day, Lee Hyun-woo heard the news about the investment funds.
 
-Directly from Park Ki-ho, the representative of 【Namui Iyagi】, over the phone.
+Directly from Park Ki-ho, the representative of 【Nam's Story】, over the phone.
 
 (Thanks to you, CEO.)
 
@@ -153,7 +153,7 @@ Could his blog really change the minds of investors?
 
 (And they said they would invest in 【Ghost】 as well. Isn’t the common point between our company and theirs being mentioned on your blog?)
 
-“There’s one more thing. Both companies have been performing well recently. 【Ghost】 developed a Korean programming language. I heard its CDs are selling well. 【Namui Iyagi】 is also getting more advertisements.”
+“There’s one more thing. Both companies have been performing well recently. 【Ghost】 developed a Korean programming language. I heard its CDs are selling well. 【Nam's Story】 is also getting more advertisements.”
 
 Lee Hyun-woo finally summed it up.
 

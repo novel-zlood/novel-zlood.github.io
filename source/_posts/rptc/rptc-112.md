@@ -33,15 +33,15 @@ They spoke in a foreign language that Lee Hyun-woo couldn't hear.
 
 "The market economy is good. Anyone can make a lot of money."
 
-"It's vulgar capital, isn't it?"
+„Die Marktwirtschaft ist echt gut. Jeder kann ordentlich Kohle machen.“ (The market economy is really good. Anyone can make a lot of money.)
 
-"I agree. It allows for social mobility."
+„Ist schon krasser Kapitalismus, oder?“ (It's vulgar capital, isn't it?)
 
-It wasn't English, Japanese, or Chinese, but German.
+„Da bin ich bei dir. Das ermöglicht den sozialen Aufstieg.“ (I agree. It allows for social mobility.)
 
-But then,
+Then,
 
-"I like to call it market economy."
+„Ich steh’ auch auf die Marktwirtschaft.“ (I also like the market economy.)
 
 The same language flowed from Lee Hyun-woo's mouth.
 
@@ -59,9 +59,9 @@ Including Korean, he was fluent in English, Chinese, Japanese, and even German.
 
 He could even interpret the newspaper that Woo Sang-won and Jang Yoo-chul brought from Germany last time, so how could he not understand their conversation?
 
-"However, I don't think everyone who accumulates capital in a market economy is necessarily vulgar."
+"Allerdings finde ich nicht, dass jeder, der in einer Marktwirtschaft Kapital anhäuft, unbedingt vulgär ist." (However, I don't believe that everyone who accumulates capital in a market economy is necessarily vulgar.)
 
-After Lee Hyun-woo said this in German, the self-proclaimed aristocrats(?) left the scene with embarrassed expressions.
+After Lee Hyun-woo said this, the self-proclaimed aristocrats(?) left the scene with embarrassed expressions.
 
 Eventually, only Chairman Kim Sung-moo's three daughters were left around Lee Hyun-woo.
 
@@ -83,7 +83,7 @@ However, she was fluent in Chinese, so she deliberately said this.
 
 "Sometimes I don't understand my relatives. Still, I think you handled it well without getting angry."
 
-"You can't get angry at a gathering of the Guseong family."
+"Zài Guīchéng jiāzú de jùhuì shàng nǐ bùnéng shēngqì." (You can't get angry at a gathering of the Guseong family.)
 
 "Huh?"
 
@@ -91,15 +91,15 @@ Kim Na-yoon's eyes widened.
 
 Lee Hyun-woo smiled and said to her.
 
-"I learned Chinese a little earlier."
+"I also learned Chinese a little earlier."
 
 "Oh..."
 
-"Learning different languages is quite enjoyable. You don't have to feel bad, okay?"
+"Xuéxí bùtóng de yǔyán tǐng yǒuqù de. Nǐ bùbì juéde nánguò, hǎo ma?" (Learning different languages is quite enjoyable. You don't have to feel bad, okay?)
 
 "Yes..."
 
-Although he suddenly told her not to feel bad, thanks to his fluent Chinese, Kim Na-yoon unintentionally answered.
+Although he told her not to feel bad, thanks to suddenly switching to Chinese, Kim Na-yoon didn't know how to respond.
 
 "Oh, I need to go to the bathroom for a bit."
 
@@ -179,19 +179,15 @@ And like a magnet, Kim Ah-young, who had been talking with other relatives, join
 
 * * *
 
-Although they were intimidated by Lee Hyun-woo's presence and avoided him, some relatives were still looking for opportunities to show 'I'm different from you.'
+Although some were intimidated by Lee Hyun-woo's presence and avoided him, some others still looking for opportunities to show 'I'm different from you.'
 
-Each time, Lee Hyun-woo made them feel awkward in his own way.
+Lee Hyun-woo tried to shut them up as quick as possible.
 
-Sometimes, he would shut them up with sharp questions and answers.
+「ベルリンでのG7サミットで、各国の財務大臣や中央銀行総裁が円安を強く阻止するようです。どう思いますか？」
 
-"At the G7 summit in Berlin, it seems that finance ministers and central bank governors from each country will strongly prevent the weakening of the yen. What do you think?"
+由于持续的贸易赤字，外汇储备的下降似乎已经到了危险的水平。IMF建议各国保持至少2.5个月的进口支付储备。由于我们已经到了极限，除非贸易余额转为盈余，否则外国投资似乎是唯一的解决方案。
 
-"Due to the continued trade deficit, the decline in foreign reserves seems to be at a dangerous level. The IMF recommended that each country maintain a minimum of 2.5 months of import payments. Since we're at the limit, unless the trade balance turns into a surplus, foreign investment seems to be the only solution."
-
-"Do you really believe the central bank governor's words that the Bank of Korea will take responsibility for the liquidation of domestic banks?"
-
-The problem was that he answered these questions in various languages.
+"Glaubst du wirklich den Worten des Zentralbankchefs, dass die Bank von Korea die Verantwortung für die Abwicklung der inländischen Banken übernehmen wird?"
 
 If asked in German, he would respond in Chinese.
 
@@ -201,13 +197,11 @@ If asked in Japanese, he would respond in German.
 
 Kim Ah-young, who was watching closely, found it amusing.
 
-He showed his observational skills to see which language the other person doesn't understand, and repond in that.
+He showed his observational skills to see which language the other person doesn't understand, and respond in that.
 
 On the other hand, Lee Hyun-woo could understand all their languages, so, it was a pice of cake.
 
-'Wow, he's really amazing.'
-
-However, when they went outside after the meeting, Kim Ah-young looked apologetic.
+Even though she initially looked amused, once they went outside after the meeting, Kim Ah-young turned apologetic.
 
 "Wasn't it uncomfortable?"
 
