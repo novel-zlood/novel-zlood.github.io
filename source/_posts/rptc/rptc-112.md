@@ -91,7 +91,7 @@ Kim Na-yoon's eyes widened.
 
 Lee Hyun-woo smiled and said to her.
 
-"I also learned Chinese a little earlier."
+"I also learned a little Chinese in the past."
 
 "Oh..."
 
@@ -199,7 +199,7 @@ Kim Ah-young, who was watching closely, found it amusing.
 
 He showed his observational skills to see which language the other person doesn't understand, and respond in that.
 
-On the other hand, Lee Hyun-woo could understand all their languages, so, it was a pice of cake.
+On the other hand, Lee Hyun-woo could understand all their languages, so, it was a piece of cake.
 
 Even though she initially looked amused, once they went outside after the meeting, Kim Ah-young turned apologetic.
 
