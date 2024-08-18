@@ -7,27 +7,25 @@ tags:
 
 This morning, Lee Hyun-woo received a call from Kim Ah-young while heading to work.
 
-It was timely because he had to visit Kim Sung-moo's house after work, so he happily pressed the call button and found out that she was coming to Jungle.
+It was timely because he had to visit Kim Sung-moo's house after work, so he happily took the call and found out that she was coming to Jungle.
 
 'Is she worried about me?'
 
-Lee Hyun-woo, who has lived for half a century and returned to the past.
-
-He had met all kinds of people and experienced incredible events, and even in those situations, he had navigated well and risen to the top, so no matter how much the head of Guseong Group he was, he could take the lead in the conversation and set the tone.
+Lee Hyun-woo, who has lived for half a century and returned to the past had met all kinds of people and experienced incredible events. Even in those situations, he had navigated well and risen to the top, so no matter how tricky dealing with the head of Guseong Group was, he could navigate around the conversation.
 
 But would Kim Ah-young understand these circumstances?
 
-A moment later, she approached him with a flushed face after seeing him in front of the company.
+A moment later, she approached him with a flushed face in front of the company.
 
-Lee Hyun-woo still had a relaxed expression.
+Lee Hyun-woo, his relaxed expression now showed sign of worry.
 
 “Did you wait outside in the cold? Let’s go up.”
 
 “Oh? Oh.”
 
-The same continued in the CEO's office. After brewing coffee himself and pouring it into a mug, he handed it to Kim Ah-young with a gentle voice.
+The same continued in the CEO's office. After brewing coffee himself and pouring it into a mug, he handed it to Kim Ah-young.
 
-“Here’s your warm morning coffee.”
+“You need to warm up with this coffee.”
 
 “Thank you.”
 
@@ -49,7 +47,7 @@ Kim Ah-young's eyes widened like a rabbit’s.
 
 “Really? How do you know that?”
 
-“It’s my intuition. The reason I got this feeling is that last time your oppa wanted to see me, it was for the same reason, right? Even before that, you were curious about it.”
+“It’s my intuition. The reason I got this feeling is that first time your oppa wanted to see me, it was for the same reason, right? Even before that, you were curious about it.”
 
 Kim Ah-young retraced her memory and realized it was true.
 
@@ -93,9 +91,9 @@ Nodding as if she finally understood, Kim Ah-young gazed intently into Lee Hyun-
 
 “Of course, I know.”
 
-Taking a beat, Lee Hyun-woo smiled and opened his mouth again.
+Taking a step closer, Lee Hyun-woo smiled and lowered his voice.
 
-“It’s me.”
+“He’s me.”
 
 “What?”
 
@@ -111,11 +109,11 @@ She was so surprised that she asked Lee Hyun-woo again.
 
 “You’re Nostradamus?”
 
-“Yes, it’s me. And besides me, now….”
+“Yes, it’s me. And besides me, now…”
 
-“…….”
+“……”
 
-“You’re the only one who knows.”
+“…you’re the only one who knows.”
 
 From astonishment, a sweet emotion began to seep in.
 
@@ -141,7 +139,7 @@ Kim Ah-young explained her reason for saying she was Nostradamus.
 
 “That might be true, but what about you? Some of the things Nostradamus mentioned are related to Guseong. There’s also the Bohang Group incident….”
 
-“I know. I might get a little scolded. I can handle that.”
+“I know. But the worst I will get is scolding. I can handle that.”
 
 “But he’ll also ask for the motive, why you did it?”
 
@@ -151,7 +149,7 @@ Since it was a spontaneous decision, she couldn’t answer Lee Hyun-woo’s ques
 
 Perhaps because of this, Lee Hyun-woo quickly helped her.
 
-“Say you wanted to understand the economic trends both domestically and internationally.”
+“Let's say you wanted to understand the economic trends both domestically and internationally.”
 
 “Huh?”
 
@@ -187,17 +185,15 @@ Kim Sung-moo naturally shifted the topic and discussed the domestic and internat
 
 Eventually, the private meeting in the office ended, and as Kim Sung-moo expressed hope to meet again later, Lee Hyun-woo smiled and said,
 
-“Lunar New Year is coming soon. Although it might be too early or too late, Happy New Year.”
-
-“Come by next time for the New Year’s bow.”
+“Lunar New Year is coming soon. I don't know if it might be too early or too late for you, Happy New Year. Come by next time for the New Year’s bow.”
 
 “Yes, I will.”
 
 Lee Hyun-woo smiled at the ambiguous term “next time.”
 
-He couldn’t tell if it referred to the upcoming Lunar New Year or the following year.
+He couldn’t tell if it referred to the upcoming Lunar New Year or the following gregorian year.
 
-‘So this family celebrates the solar New Year.’
+‘So this family celebrates the Gregorian New Year.’
 
 In any case, frequent visits would be necessary to change the mindset of the head of the conglomerate.
 
@@ -235,11 +231,11 @@ Especially, the second daughter Kim Ah-jin and the youngest Kim Na-yoon imagined
 
 ‘Could it be that our father likes this guy and is encouraging unnie to date him?’
 
-On the other hand, Kim Tae-hyun, who was interested in different matters, dragged Lee Hyun-woo to his room and asked related questions.
+On the other hand, Kim Tae-hyun, who was interested in different matters, dragged Lee Hyun-woo to his study and asked related questions.
 
 “What did you say? Why did he suddenly call Ah-young? There’s no problem with our joint venture in Japan, is there?”
 
-“No way? I got a call from Japan today, and they said progress is faster than expected, so we might be able to start the portal site and online shopping next month.”
+“No way. I got a call from Japan today, and they said progress is faster than expected, so we might be able to start the portal site and online shopping next month.”
 
 “That’s good to hear. So why did father call Ah-young?”
 
@@ -261,17 +257,15 @@ His sister had kept more from him than Lee Hyun-woo had, so any sense of betraya
 
 It wasn’t the direction he wanted, and there was no need for Kim Ah-young to do this for him.
 
-‘I feel bad for no reason.’
-
 Lee Hyun-woo thought he’d have to make it up to Kim Ah-young somehow later.
 
-Also, he could read Kim Ah-young’s mind again this time.
+Also, he could sense Kim Ah-young’s motivation again this time.
 
 ‘She definitely seems to have feelings for me.’
 
 As he finished talking with Kim Tae-hyun and headed home, he briefly let his imagination run wild.
 
-What if he had a “hot romance” with Kim Ah-young?
+What if he had his “fiery romance” with Kim Ah-young?
 
 First, he’d always have a bodyguard with him.
 
@@ -287,7 +281,7 @@ At least in his past life, Kim Ah-young’s husband had gone abroad to study due
 
 ‘Oh, I need to think this through a bit more.’
 
-Feeling that a bothersome situation might arise, Lee Hyun-woo took a deep breath.
+Feeling that bothersome situation might arise, Lee Hyun-woo took a deep breath.
 
 In his reborn life, he had dreamed of a passionate romance but didn’t want to realize it while feeling very bothered.
 
@@ -307,9 +301,7 @@ What did she talk about with Kim Sung-moo?
 
 ‘Did he really not ask why she did it?’
 
-But he decided to wait until she told him.
-
-Anyway, he didn’t have to wait long.
+He didn’t have to wait long to get his answer.
 
 Kim Ah-young immediately shared what she talked about with Kim Sung-moo.
 
@@ -323,7 +315,7 @@ Kim Ah-young immediately shared what she talked about with Kim Sung-moo.
 
 Once again, Lee Hyun-woo recalled something from Kim Sung-moo’s autobiography.
 
-Although no parent has a finger that doesn’t hurt, Kim Sung-moo particularly cherished his eldest daughter.
+Although no parent has no finger that doesn’t hurt (a saying in Korea that reflects how every parent has their own unique concerns for each child), Kim Sung-moo particularly cherished his eldest daughter.
 
 When Kim Ah-young first joined the hotel to inherit it, he stayed at Seorabeol Hotel for a month, openly showing his concern.
 
@@ -333,13 +325,11 @@ It hadn’t happened with his eldest son Kim Tae-hyun or his second daughter Kim
 
 ‘It wasn’t favoritism but rather guilt for not being able to be with her as much compared to his other children.’
 
-Unlike her siblings, during Kim Ah-young’s childhood, Kim Sung-moo couldn’t pay much attention to her due to intense succession battles.
+Unlike her siblings, during Kim Ah-young’s childhood, Kim Sung-moo couldn’t pay much attention to her due to his own intense succession battles.
 
 She had undoubtedly been his aching finger since then, and her marriage to a bodyguard and subsequent divorce must have made her an even more painful memory.
 
 ‘Thinking about it makes me feel sorry for Ah-young.’
-
-It was a long thought, but it was just a fleeting moment.
 
 When the thought ended, he resolved to treat her well.
 

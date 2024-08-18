@@ -9,15 +9,15 @@ Lee Hyun-woo felt uneasy, so the next day after work, he went to see Kim Ah-youn
 
 In his memory, it seemed like it was the first time he visited Seorabeol Hotel without any specific purpose.
 
-Then the next day, Kim Ah-young came to him without any specific purpose.
+Then the next day, it was Kim Ah-young who came to him without any specific purpose.
 
-‘Maybe by seeing each other like this every day, a relationship between friends and lovers might form?’
+‘Maybe by seeing each other like this every day, a relationship closer than friend but not lovers might naturally form?’
 
 If he had to classify it, she could still be considered just a female friend.
 
 Lee Hyun-woo thought that this kind of relationship wouldn’t be bad.
 
-If their relationship was defined, it seemed like it would become burdensome for both of them.
+If their relationship had to be defined, it seemed like it would become burdensome for both of them.
 
 ‘Someday, a moment of decision will come.’
 
@@ -103,7 +103,7 @@ When he got home and logged into Jungle Music, it became even more pronounced.
 
 ‘Wow, I don’t know any of the recent songs.’
 
-Last year’s songs were probably released as they had been prepared.
+Last year’s songs were probably released as they had been prepared for a while since before his return.
 
 But from the point when Lee Hyun-woo appeared, the preparation process might have changed.
 
@@ -127,7 +127,7 @@ He just wanted some of the songs he enjoyed listening to in this life to come ou
 
 (Hello?)
 
-It was answered by a female singer Lee Hyun-woo knew, Kim Yoon-seon.
+It was answered by the only female singer Lee Hyun-woo knew, Kim Yoon-seon.
 
 “Are you busy?”
 
@@ -143,7 +143,7 @@ Last Lunar New Year, while exchanging texts, Kim Yoon-seon told Lee Hyun-woo tha
 
 “I’ll sing a bit, so could you listen and tell me if you’ve heard it before?”
 
-(…….)
+(………)
 
 A somewhat baffled silence came from the other end of the line.
 
@@ -171,7 +171,7 @@ Since he sang it in a lower key, she seemed to think it was a man’s song.
 
 So Lee Hyun-woo went for it.
 
-“No, no. Actually, it’s been lingering in my head. The melody and lyrics.”
+“I'm not sure. Actually, it’s been lingering in my head. The melody and lyrics.”
 
 (Really?)
 
@@ -236,10 +236,6 @@ With a meaningful smile, he waited for her answer, and an unexpected proposal ca
 “Haha…”
 
 If he denied this development, that would be a lie.
-
-He just didn’t expect it to proceed so quickly.
-
-Originally, he hoped that once Kim Yoon-seon got used to singing the song, she would consider including it in her album.
 
 ‘Everything is going smoothly from the start!’
 
@@ -311,7 +307,7 @@ Then he added,
 
 “No, how can I do that? The song is practically made by you.”
 
-“How would I know how to compose? I just sang what came to mind. I was the worst at music in school. I don’t even know the musical notes well, so you can put the notes together properly and complete it. Got it?”
+“How would I know how to compose? I just sang what came to mind. Music was my worst subject in school. I don’t even know the musical notes well, so you can put the notes together properly and complete it. Got it?”
 
 “…….”
 

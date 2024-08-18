@@ -23,7 +23,7 @@ They were filled with questions.
 
 In fact, there was a sense of aristocracy among the Guseong family members.
 
-Therefore, most of the family did not understand or intend to understand the world of ordinary people.
+Therefore, most of the family did not understand or have no intention to understand the world of ordinary people.
 
 Moreover, they sometimes regarded people who rose from humble beginnings as merely lucky, and quite a few young members of the family viewed Lee Hyun-woo in such a way.
 
@@ -41,7 +41,7 @@ It wasn't English, Japanese, or Chinese, but German.
 
 But then,
 
-"I like the market economy too."
+"I like to call it market economy."
 
 The same language flowed from Lee Hyun-woo's mouth.
 
@@ -73,7 +73,7 @@ The second daughter, Kim Ah-jin, spoke.
 
 "Oh, so that's why you responded to the talk about the market economy and vulgar capital."
 
-"Huh? Unnie? Did those oppas say such things?"
+"Huh? Unnie? Did those relatives say such things?"
 
 The one who asked next was the youngest daughter, Kim Na-yoon.
 
@@ -95,11 +95,11 @@ Lee Hyun-woo smiled and said to her.
 
 "Oh..."
 
-"Learning different languages is quite enjoyable. Don't be lazy and always live joyfully. Especially, never have any bad thoughts in the future, okay?"
+"Learning different languages is quite enjoyable. You don't have to feel bad, okay?"
 
 "Yes..."
 
-Although he suddenly told her not to have bad thoughts, thanks to his fluent Chinese, Kim Na-yoon unintentionally answered.
+Although he suddenly told her not to feel bad, thanks to his fluent Chinese, Kim Na-yoon unintentionally answered.
 
 "Oh, I need to go to the bathroom for a bit."
 
@@ -111,7 +111,7 @@ She actually wanted to call him "brother-in-law," but it didn't seem appropriate
 
 However, when Kim Tae-hyun came looking for Lee Hyun-woo,
 
-"Oppa, that oppa is amazing. He's fluent in both German and Chinese."
+"Oppa, that Hyun-woo oppa is amazing. He's fluent in both German and Chinese."
 
 Kim Na-yoon quickly praised Lee Hyun-woo.
 
@@ -181,7 +181,7 @@ And like a magnet, Kim Ah-young, who had been talking with other relatives, join
 
 Although they were intimidated by Lee Hyun-woo's presence and avoided him, some relatives were still looking for opportunities to show 'I'm different from you.'
 
-Each time, Lee Hyun-woo made them feel awkward with his unique presence.
+Each time, Lee Hyun-woo made them feel awkward in his own way.
 
 Sometimes, he would shut them up with sharp questions and answers.
 
@@ -201,19 +201,19 @@ If asked in Japanese, he would respond in German.
 
 Kim Ah-young, who was watching closely, found it amusing.
 
-His observational skills were so sharp that he would respond in a language the other person didn't understand.
+He showed his observational skills to see which language the other person doesn't understand, and repond in that.
 
-On the other hand, Lee Hyun-woo could understand all their languages, so,
+On the other hand, Lee Hyun-woo could understand all their languages, so, it was a pice of cake.
 
 'Wow, he's really amazing.'
 
-However, after the meeting when they went outside, Kim Ah-young looked apologetic.
+However, when they went outside after the meeting, Kim Ah-young looked apologetic.
 
 "Wasn't it uncomfortable?"
 
 "No, I was fine."
 
-He wasn't uncomfortable, just felt it was a waste of time.
+He wasn't uncomfortable, just felt it was all a waste of time.
 
 Lee Hyun-woo didn't bother to express this.
 
@@ -223,7 +223,7 @@ Lee Hyun-woo didn't bother to express this.
 
 "Of course."
 
-"No one has ever not struggled because of that in such gatherings except you."
+"No one has ever not struggled in these gatherings except you."
 
 "Really?"
 
@@ -237,7 +237,7 @@ Lee Hyun-woo didn't bother to express this.
 
 "You met my parents, so it would be a bit unfair if I didn't."
 
-Kim Ah-young said something quite meaningful and finally said goodbye with a slightly flushed face.
+Kim Ah-young dropped something quite meaningful and finally said goodbye with a slightly flushed face.
 
 "It's really late. Get home safely, and I'll contact you later."
 
@@ -325,7 +325,7 @@ In his new life, Lee Hyun-woo didn't pretend to be humble when he heard such wor
 
 Instead of polite words,
 
-"Make a lot of money. And please create many songs that can make it to the Billboard charts."
+"Then make a lot of money. And please create many songs that can make it to the Billboard charts."
 
 he encouraged.
 

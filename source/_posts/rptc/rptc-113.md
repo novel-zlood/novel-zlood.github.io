@@ -11,9 +11,9 @@ Oh Jung-hwan’s words that the singer could be reborn not as a video singer but
 
 However,
 
-‘It can’t be the same as that song from my previous life.’
+‘It's not exactly the same as that song from my previous life.’
 
-It couldn’t be “The Love Forgiven by Heaven” that would take Lee Hyun-woo back to those days.
+This version of “The Love Forgiven by Heaven” could not take Lee Hyun-woo back to those days.
 
 Nevertheless, should I say that I felt the greatness of the arrangement?
 
@@ -65,13 +65,13 @@ However, Kim Yoon-sun brought it up one more time.
 
 Kim Yoon-sun nodded reluctantly.
 
-“Phew, alright.”
+“Then, alright.”
 
 * * *
 
 As they walked out, Kim Ah-young asked Lee Hyun-woo.
 
-“You won’t starve later even if you make songs.”
+“You won’t starve in the future if you make songs.”
 
 “Of course not.”
 
@@ -92,10 +92,6 @@ In reality, in this completely changed music industry, Lee Hyun-woo could churn 
 “When it keeps lingering in your mind and mouth, this is what happens. But next time, I’ll have to write it down as notes and make it.”
 
 Repeating it several times, it seemed like he really intended to do it.
-
-‘If it’s Hyun-woo, he can do it.’
-
-Naturally.
 
 Honestly, this was more like a cheat key from living a second life rather than Lee Hyun-woo’s ability.
 
@@ -177,7 +173,7 @@ Kim Tae-hyun once again clung to Lee Hyun-woo, asking him to come to his house.
 
 The reason he had to actively court him despite it being embarrassing was,
 
-‘Hyun-woo, this guy, he’s starting to show signs.’
+‘Hyun-woo, this guy, he’s starting to talk back.’
 
 Just enough so that Kim Tae-hyun wouldn’t feel bad, he said he wouldn’t attend gatherings like the last time.
 
@@ -219,7 +215,7 @@ When Kim Sung-moo, who had been staring at his face for a while, asked,
 
 “Being a dutiful son, a good husband, and a respected father.”
 
-The answer he had been holding in his heart flowed out without hesitation.
+This answer had been holding in his heart , so it flowed out without hesitation.
 
 Kim Sung-moo’s expression changed.
 
@@ -231,7 +227,7 @@ As before, Lee Hyun-woo’s answer was always unexpected.
 
 “Is there no ambition you want to achieve before that?”
 
-Being a dutiful son, a good husband, and a respected father is extremely difficult, but the conglomerate head in front of him seemed to take it lightly.
+Being a dutiful son, a good husband, and a respected father at once is extremely difficult, but the conglomerate head in front of him seemed to take it lightly.
 
 Inevitably, Lee Hyun-woo gave the answer he wanted to hear.
 
@@ -263,7 +259,7 @@ If that happened, foreign capital would flow out rapidly.
 
 “It doesn’t seem logical. Is there any foreign capital that wouldn’t withdraw during a crisis?”
 
-“Basically, our company, Jungle, is desperate to attract foreign investment.”
+“Basically, our company, Jungle, has been attracting foreign investment.”
 
 Having already investigated Lee Hyun-woo and Jungle, he knew it was true.
 
@@ -323,7 +319,7 @@ But asking such a question at this stage might imply that he recognized their re
 
 If that led to them openly dating?
 
-‘I still need to see more. Still.’
+‘I still need to see more of himself.’
 
 Especially, if what Lee Hyun-woo said earlier was sincere,
 

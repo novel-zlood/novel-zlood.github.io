@@ -5,7 +5,7 @@ tags:
 ---
 
 
-The first thing that comes out of Choi Sun-hwa's mouth is her own name.
+The first thing that comes out of Choi Sun-hwa's mouth is his own name.
 
 "Hey, Lee Hyun-woo."
 
@@ -61,7 +61,7 @@ It seems those 'various gatherings' refer to gatherings of the chaebol heirs.
 
 "Keeping you in check how?"
 
-"Well, it's hard to say. If I had to define it, it's like a noble qualification test? They imply that a chaebol daughter like me doesn't fit in."
+"Well, it's hard to say. If I had to define it, it's like a noble qualification test? They imply that a family like mine doesn't fit in."
 
 "Geez, to me, you're already like nobility. If they want more than that, do they want royalty?"
 
@@ -81,7 +81,7 @@ Always having a relaxed voice, this time he even had a playful smile.
 
 So Choi Sun-hwa's eyes trembled once again.
 
-"Geez, I had dibs first."
+'Geez, I had dibs first.'
 
 Last year, when she saw him at the 【Seorabeol Hotel】, Choi Sun-hwa developed a liking for Lee Hyun-woo.
 
@@ -101,7 +101,7 @@ She could only say this while raising her glass.
 
 "Thanks, whatever it is."
 
-"If you're thankful, spill the beans."
+"If you're thankful, spill your heavenly secret."
 
 "Okay. I'll discuss it with Team Leader Han soon."
 
@@ -113,7 +113,7 @@ He wasn't sure how big 【Aejeong Group】 was around this time in his previous 
 
 Because for the butterfly effect to counter the foreign exchange crisis, there needed to be many unexpectedly successful companies like this.
 
-"This could be fun. I wonder how 【Aejeong Group】 will change."
+'This could be fun. I wonder how 【Aejeong Group】 will change.'
 
 A unique smile spread across Lee Hyun-woo's face.
 
@@ -235,7 +235,7 @@ Listening to Lee Hyun-woo's genuinely heartfelt voice, Kwak Jin-wook expressed h
 
 Somehow, they ended up talking about forming a meeting group.
 
-"That works out. I heard about those noble gatherings, but this seems much more comfortable."
+'That works out. I heard about those noble gatherings, but this seems much more comfortable.'
 
 Should he define this as a commoner gathering then?
 
@@ -245,11 +245,9 @@ Lee Hyun-woo nodded and smiled brightly.
 
 And this smile turned into a meaningful one as he headed to the 【Seorabeol Hotel】 after work.
 
-"If a commoner rises to stand shoulder to shoulder with or surpasses the nobility, that would also be an interesting world."
+If a commoner rises to stand shoulder to shoulder with or surpasses the nobility, that would also be an interesting world.
 
-In his past life.
-
-The unfair starting points of silver spoons and dirt spoons increasingly prevented dragons from emerging from streams.
+In his past life, the unfair starting points of silver spoons and dirt spoons increasingly prevented dragons from emerging from streams.
 
 This time, he wanted to create a different world.
 
@@ -257,17 +255,15 @@ This time, he wanted to create a different world.
 
 * * *
 
+"Sorry, I'm late."
+
 He was a bit late due to traffic.
 
 But Kim Ah-young, who was waiting at the entrance, didn't blame him at all.
 
-"Sorry, I'm late."
-
-Lee Hyun-woo glanced at the banquet hall.
+They walked side-by-side to the banquet hall.
 
 The party seemed to have already started as people were holding food and drinks, engaged in conversations.
-
-"It feels like a party abroad."
 
 It looked like a middle-class party gathering in America.
 
@@ -297,17 +293,17 @@ The age difference was only eight years, so it wasn't an exaggeration to say the
 
 "Me?"
 
-"Yes, I've been seeing your name in the news frequently. Of course, along with 【Jungle】. Just today, an article in the Wall Street Journal mentioned that if 【Jungle】 enters the U.S. market, it would be a formidable competitor to 【Yahoo】."
+"Yes, I've been seeing your name in the news frequently. Of course, along with 【Jungle】. Just today, an article in the Wall Street Journal mentioned that if 【Jungle】 enters the U.S. market, it would be a formidable competitor to 【Yaho】."
 
 Lee Hyun-woo smiled brightly.
 
 Then he said,
 
-"Then we must enter the market to show that we're not just a competitor to 【Yahoo】."
+"Then we must enter the market to show that we're not just a competitor to 【Yaho】."
 
 A gleam appeared in Jang Jae-won's eyes.
 
-It was because the nuance was that 【Yahoo】 couldn't be his rival.
+It was because the nuance was that his rival extends beyond【Yaho】.
 
 Not only Jang Jae-won but many of the members of the 【Guseong】 family, who were paying attention to the conversation, looked at Lee Hyun-woo with expressions of varying significance.
 

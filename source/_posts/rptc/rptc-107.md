@@ -33,11 +33,11 @@ As I listened, a name kept coming to mind.
 
 Ray Burin.
 
-Mikhail Face.
+Mikhail Pace.
 
 In my past life, they were the founders of 【Single】, a dominant force in the IT ecosystem.
 
-'If they are at 【Stanford】 graduate school now, the probability is quite high.'
+'Around this time they are at 【Stanford】 graduate school, the probability is quite high.'
 
 I was curious but not enough to ask their names.
 
@@ -69,11 +69,11 @@ I said what he wanted to hear, 'You’re the best.'
 
 "Indeed."
 
-(By the way, 【AltaVista】 is quite anxious. They are worried we might team up with 【Yahoo】.)
+(By the way, 【AltaVista】 is quite anxious. They are worried we might team up with 【Yaho】.)
 
 That would never happen.
 
-Even if 【Jungle】 wanted to, 【Yahoo】 would never accept.
+Even if 【Jungle】 wanted to, 【Yaho】 would never accept.
 
 ‘In my past life, they were the company that dismissed even Ray and Mikhail’s search engine algorithm.’
 
@@ -85,7 +85,7 @@ Just as 【Single】 declined after adopting the search engine in my past life, 
 
 I started to get curious about the future.
 
-How will 【Yahoo】 change?
+How will 【Yaho】 change?
 
 Will 【Single】 even be born?
 
@@ -117,7 +117,7 @@ Starting the car and feeling the acceleration gave Lee Hyun-woo a peculiar thril
 
 "What? Really?"
 
-"I learned it as a second language in high school and kept studying it because it was fun."
+"I learned it as my second language class in high school and kept studying it because it was fun."
 
 It was partly true, and he could manage basic conversation from living in Germany for two years in his past life.
 

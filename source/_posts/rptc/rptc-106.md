@@ -77,8 +77,6 @@ A text arrived from Kim Ah-young.
 
 - Jung-woo, have a safe trip to the United States.
 
-Why does ‘Jung-woo’ keep reading as ‘young master’?
-
 An inexplicable smile spread across Lee Jung-woo's face.
 
 * * *
@@ -99,11 +97,11 @@ Following this, messages continued to come in with the signal sounds ‘ding din
 
 - You have received a friend request from Tomato.
 
-- You have received a friend request from Anne Gemil.
+- You have received a friend request from Anne Pon.
 
 When Lee Hyun-woo quickly clicked the notification window, he moved to the inbox.
 
-He randomly clicked on Anne Gemil.
+He randomly clicked on Anne Pon.
 
 - Hyun-woo, it's me, Ah-young. I got a notice email saying I could suddenly send friend requests. So, I sent one to you.
 
@@ -119,7 +117,7 @@ At that curious moment, Yoo Jin-young entered.
 
 As soon as he picked up the receiver, he could hear Oh Min-woo’s voice.
 
-(Ceo, are you at work?)
+(CEO, are you at work?)
 
 “What is this?”
 
@@ -173,7 +171,7 @@ Now it was time to play with the changed blog for a while.
 
 Around the time he was about to leave work that day, he received a call from Woo Sang-won, who had visited the second research institute after the first one.
 
-(Ceo, everything went well. We didn’t demand excessive royalties.)
+(CEO, everything went well. They didn’t demand excessive royalties.)
 
 “Does not demanding excessive royalties mean they might be considering researching MP3?”
 
@@ -185,7 +183,7 @@ Lee Hyun-woo smiled brightly as he listened to Woo Sang-won’s voice.
 
 Of course, people's minds could change at any moment, so there could be differences between verbal agreements and actual written contracts.
 
-However, since they had announced it so confidently and were about to enter negotiations, he didn’t think they would use it without permission and cause legal issues later.
+However, since they had announced it so confidently and were about to enter negotiations, he didn’t think they would use it against them and cause legal issues later.
 
 (Ah, have the two left?)
 
@@ -193,13 +191,13 @@ However, since they had announced it so confidently and were about to enter nego
 
 The two people Woo Sang-won mentioned were his brother Lee Jung-woo and Oh Min-woo.
 
-“By now, they should be visiting Alta Vista to discuss in-depth about business cooperation.”
+“By now, they should be visiting AltaVist to discuss in-depth about business cooperation.”
 
 (Then they will feel the same as I did.)
 
 “What kind of feeling did you have, Team Leader Woo?”
 
-(The feeling that the world, and further, Jungle, is watching Korea?)
+(The feeling that the world, is watching Korea and Jungle?)
 
 Was this person also becoming full of national pride, or ‘Jungle pride’?
 
@@ -219,17 +217,17 @@ Lee Hyun-woo smirked and said,
 
 “Do you not like forums? The guys who went to the United States are attending forums at Stanford University on a similar topic to Germany.”
 
-(I thought I was going to die listening to the forum. Even with interpretation next to me, communication was not easy.)
+(I thought I was going to die listening to the forum. Even with interpreter next to me, communication was not easy.)
 
 “I see.”
 
-(Thankfully, it was conducted in English, but it was hard to understand each other’s German and Korean accents.)
+(Thankfully, it was conducted in English, but it was still hard to understand each other’s German and Korean accents.)
 
 “Ha ha, you had a hard time.”
 
 It seemed like he was envious of Lee Jung-woo and Oh Min-woo.
 
-Woo Sang-won could communicate to some extent in English, but it was not easy to understand German English unless he actually talked to an American.
+Woo Sang-won could communicate to some extent in English, but it was not easy to understand English spoken by Germans unless one is already used to Enlish spoken by American.
 
 Lee Hyun-woo had experienced it in his past life, so he could feel the hardship in his voice.
 
@@ -237,17 +235,17 @@ He once again encouraged and complimented him generously before hanging up the p
 
 * * *
 
-Meanwhile, the two people who had officially entered into a business agreement with Alta Vista in the United States.
+Meanwhile, the two people who had officially entered into a business agreement with AltaVist in the United States.
 
 To be precise, it was a field operation.
 
-How much and how to apply Jungle’s search engine to Alta Vista’s webpage.
+How to apply and how much they can apply Jungle’s search engine to AltaVist’s webpage.
 
 “Why are they gathering like this?”
 
 “I don't know. They must be curious about us.”
 
-The two reviewing it on the computer were surrounded by Alta Vista's developers.
+The two reviewing it on the computer were surrounded by AltaVist's developers.
 
 “By the way, this work won't be easy, right?”
 
@@ -269,7 +267,7 @@ Upon arriving here, it was clear that Jungle’s level was much higher.
 
 Feeling proud, he said to Oh Min-woo.
 
-“If we had started our business in the United States, Yahoo would be just a meal.”
+“If we had started our business in the United States, Yaho would be just a meal.”
 
 “Of course.”
 
@@ -281,11 +279,11 @@ Feeling proud, he said to Oh Min-woo.
 
 The two were conversing in a way that might sound absurd to others.
 
-They were treating Yahoo, which had gone public last year and whose market cap had already exceeded several trillion won, like a neighborhood store and hoping that Stanford’s bookworms would meet their expectations.
+They were treating Yaho, which had gone public last year and whose market cap had already exceeded several trillion won, like a neighborhood store and hoping that Stanford’s bookworms would meet their expectations.
 
 If Lee Hyun-woo were here, he would have sharply criticized their floating arrogance…
 
-- The United States is not such an easy country.
+- The United States is not a small country.
 
 Fortunately, shortly after arriving at Stanford, they met proper rivals.
 
@@ -311,7 +309,7 @@ Their pupils shook as if there was an earthquake.
 
 Then, in disbelief, they looked at Oh Min-woo,
 
-“Jungle plans to enter the American portal market this year. You can check it then. Or, you can go to Jungle’s homepage in Korea and search for any keyword. Alta Vista recently provided some web pages. I believe you’ll be able to confirm the algorithm of ‘relationship’ and ‘similarity.’”
+“Jungle plans to enter the American portal market this year. You can check it then. Or, you can go to Jungle’s homepage in Korea and search for any keyword. AltaVist recently provided some web pages. I believe you’ll be able to confirm the algorithm of ‘relationship’ and ‘similarity.’”
 
 Since he confidently provided evidence, they began to fall into a state of mental breakdown.
 

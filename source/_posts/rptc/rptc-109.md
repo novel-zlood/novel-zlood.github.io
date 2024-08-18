@@ -169,7 +169,7 @@ He reached a quiet conclusion.
 
 After meeting Lee Hyun-woo last time, Kim Sung-moo's evaluation was just one.
 
-"I wish he were my person."
+"I wish he were my people."
 
 Therefore, he had mobilized the group's secretarial office to investigate him since then.
 
@@ -231,7 +231,7 @@ It was a warning that perfectly matched Kim Sung-moo's philosophy of crisis mana
 
 At the same time, he looked at Kim Ah-young.
 
-"Is she really Nostradamus?"
+'Is she really Nostradamus?'
 
 When he met Lee Hyun-woo last time, Kim Sung-moo had no choice but to believe what he said.
 

@@ -67,7 +67,7 @@ They seemed to love work too much.
 
 They came to drink, but instead of talking about their daily lives to relieve stress, they kept mentioning business.
 
-"By the way, how about you two? Did the business collaboration with 【Al Ta Beast】 go well?"
+"By the way, how about you two? Did the business collaboration with 【AltaVist】 go well?"
 
 "Of course. Business collaboration is just about sharing our weapons, isn't it?"
 
@@ -77,9 +77,9 @@ No matter how much IT companies valued openness, many didn't want their data to 
 
 In the past, 【Navy】 had also blocked 【Single】's search engine because it kept scraping their knowledge service.
 
-"Wow, if 【Al Ta Beast】 opens everything up, both they and we can create the largest sea of information in the world."
+"Wow, if 【AltaVist】 opens everything up, both they and we can create the largest sea of information in the world."
 
-"Of course. 【Al Ta Beast】's database is undoubtedly the largest in the world."
+"Of course. 【AltaVist】's database is undoubtedly the largest in the world."
 
 "Looking at this, it was a masterstroke for the CEO to send that email first."
 
@@ -87,7 +87,7 @@ Finally, the direction of the conversation turned towards Lee Hyun-woo.
 
 Since all eyes were on him, he took a sip of beer to wet his throat and began to speak.
 
-"I don't know about that, but the web documents disclosed by 【Al Ta Beast】 are over 20 million. We're sharing part of it now, and once this sharing is complete, 【Jungle USA】 will be born in America."
+"I don't know about that, but the web documents disclosed by 【AltaVist】 are over 20 million. We're sharing part of it now, and once this sharing is complete, 【Jungle USA】 will be born in America."
 
 "In that sense, cheers!"
 
@@ -99,9 +99,9 @@ Whatever.
 
 They were all beyond national pride, indulging in 'Jungle pride,' and Lee Hyun-woo couldn't help but join in the fun.
 
-It was quite a coincidence.
+It was quite a chain of coincidences.
 
-Somehow, he had sent an email to 【Al Ta Beast】, and somehow, they had the largest database.
+Somehow, he had sent an email to 【AltaVist】, and somehow, they had the largest database.
 
 And as 【Jungle】 proved to have superior technology in finding web documents, the conditions for business collaboration fell perfectly into place.
 
@@ -183,8 +183,6 @@ That bar was a place he often went with his wife in his previous life.
 
 Whether it was her or Kim Ah-young, he felt like he was doing something wrong to both.
 
-"What a strange guy."
-
 Lee Hyun-woo cursed himself internally for applying strange logic and then made a different suggestion to Kim Ah-young.
 
 "How about I buy something delicious overseas next time?"
@@ -205,7 +203,7 @@ The growth speed of 【Jungle】 was incredibly fast.
 
 The connected companies themselves were already huge.
 
-【Software Bank】, 【Al Ta Beast】, and now 【Deutsch Telekom】.
+【Software Bank】, 【AltaVist】, and now 【Deutsch Telekom】.
 
 She was overwhelmed, and Lee Hyun-woo wanted her answer.
 
@@ -227,7 +225,7 @@ This time, it was Lee Hyun-woo who let out the exclamation Kim Ah-young had earl
 
 He thought to himself,
 
-"I found another way to repay her. I can subtly inform her of successful ventures like this."
+'I found another way to repay her. I can subtly inform her of successful ventures like this.'
 
 The MP3 player was a promising business for the future.
 

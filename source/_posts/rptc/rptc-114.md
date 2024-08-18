@@ -29,7 +29,7 @@ After hearing Kim Sung-moo's question today, he guessed something else.
 
 Maybe Kim Sung-moo had figured out the identity of Nostradamus.
 
-When looking at the content, there were many things that the blog dealt with.
+When looking at the questions, there were many things that the blog dealt with.
 
 ‘It was the same last time too.’
 

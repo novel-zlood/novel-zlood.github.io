@@ -135,7 +135,7 @@ Turning around, it was Kim Ah-young.
 
 “Wow, since when did you hear?”
 
-“Hyun-woo, it's me.”
+“-Hyun-woo, it's me.-”
 
 “Ah, you heard from the beginning. Why do you sneak up on phone calls like a cat?”
 
@@ -201,7 +201,7 @@ For reference, in his previous life, Guseong's entry into the automobile industr
 
 So, if this part could be directed differently, the small flap of a butterfly's wings might quell the storm of the financial crisis.
 
-‘And for Ah-young, I'll let it slide this time.’
+‘For Ah-young's sake, I'll let it slide this time.’
 
 Last year, and this year.
 
@@ -209,19 +209,19 @@ He realized that she was trying to change a lot to match him.
 
 Watching the process, Kim Ah-young gradually entered his heart.
 
-‘At this rate, we might really fall in love.’
+‘At this rate, I might really fall in love.’
 
-Now, instead of thinking about the ‘reasons it can't happen,’ the thought of ‘is there really a reason it can't happen’ started to dominate his mind.
+Now, instead of thinking about the ‘reasons it can't happen,’ the thought of ‘how to make it happen’ started to dominate his mind.
 
 Then, hearing the phone ring again, he chuckled.
 
-‘Since oppa called, now the younger sister will call me.’
+‘Since the oppa called, now the younger sister is calling me.’
 
 Even this morning, Kim Ah-young had said,
 
 ‘There's no need to listen to oppa.’
 
-But since he had already made up his mind, he thought he would tell her that he decided and answered the phone.
+But since he had already made up his mind, he thought he would tell her that he made his decission and answered the phone.
 
 (Hello?)
 
@@ -247,9 +247,9 @@ So, she must have called before work ended today.
 
 Feeling sorry, he couldn't refuse.
 
-“Ah, I'm sorry. I owe you a big one.”
+“I really am sorry. I owe you a big one tonight.”
 
-(Oh, without even asking if I'm available today.)
+(Oh, without even asking if I'm available.)
 
 It sounded as if she meant,
 
@@ -257,7 +257,7 @@ It sounded as if she meant,
 
 Lee Hyun-woo chuckled and responded.
 
-“I wasn't talking about today. Although today works too, tomorrow is off the table. Now that I think about it, the day after tomorrow doesn't work either.”
+“Today's the only time I'm available for a while. Tomorrow is off the table. The day after tomorrow doesn't work either.”
 
 (Tch... Okay. I'll come now.)
 
