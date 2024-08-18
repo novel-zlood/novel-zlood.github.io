@@ -19,13 +19,13 @@ Watching this, Park Min-sook realized once again.
 
 Kim Ah-young's father, Kim Sung-moo, the head of Guseong Group, was someone who greatly disliked his daughters being exposed to the media.
 
-Thus, although Kim Ah-young rarely appeared in the media, that was when she was young, and at some point, there was almost no media exposure.
+Thus, the rare appearance of Kim Ah-young in the media was when she was young, and past that point there was almost no media exposure.
 
 So, there probably wouldn't be anyone who would recognize her if she walked around the streets.
 
 "But still, this won't do."
 
-However, would Park Min-sook, who would later have to take all the responsibility, allow this?
+Park Min-sook is the one would later have to take all the responsibility, could she allow this?
 
 She spoke in a more resolute tone.
 
@@ -34,8 +34,6 @@ She spoke in a more resolute tone.
 "If I take one, it will draw even more attention."
 
 "Even if you don't take one, you'll still stand out. Do you think men would just leave you, Director, alone?"
-
-This meant that no man would just stand by and watch with Kim Ah-young's beautiful appearance.
 
 Although she understood the context, Kim Ah-young found bodyguards annoying.
 
@@ -67,15 +65,13 @@ In short, he had an ordinary look.
 
 Therefore, Kim Ah-young would surely be satisfied.
 
-"She must be going to meet that person."
-
 Park Min-sook had not been observing Kim Ah-young for just a day or two.
 
 She could roughly guess who she had met and who she was going to meet.
 
 Thus, she felt the need to keep more secrets even if Kim Ah-young didn't say anything.
 
-"I hope she settles her heart soon..."
+'I hope she settles her heart soon...'
 
 Having experienced youth, Park Min-sook believed everything was just a phase.
 
@@ -161,7 +157,7 @@ Soon, Lee Hyun-woo's voice echoed in their ears.
 
 "Yes... haha..."
 
-"It's a bit hard without a girlfriend, but yes, understood."
+"It's a bit hard to enjoy life after work without a girlfriend, but yes, understood."
 
 Only then did satisfactory answers flow from the two.
 
@@ -193,9 +189,9 @@ Meeting Kim Ah-young after work seemed like an extension of business.
 
 He tried to think comfortably.
 
-"I brought her the ads, so one exception should be fine."
+"She brought me the ads, so one exception should be fine."
 
-Inwardly, he was flexible, thinking that this exception might continue depending on Kim Ah-young's attitude today.
+Inwardly, he was thinking that this exception might not become exception anymore depending on how it goes with Kim Ah-young.
 
 That is, if she talked about business, today's post-work meeting would be a one-time thing, but if she talked about something far from business, they could continue meeting as friends.
 
@@ -215,7 +211,7 @@ Suddenly, he was curious about how the woman he was connected to in his past lif
 
 "How would she be living, she's probably still a college student since she's four years younger than me."
 
-In his past life's timeline, she would have joined Dukseong two years later and formed a connection.
+In his past life's timeline, she would have joined Dukseong two years after him and formed a connection.
 
 But the chances of that happening in this life were very low.
 
@@ -291,7 +287,7 @@ While the public is forgetful, and they probably wouldn't remember, she had come
 
 Would she make Lee Hyun-woo uncomfortable because of her?
 
-"That wouldn't be good."
+'That wouldn't be good.'
 
 She had already made him uncomfortable by bringing a bodyguard.
 
@@ -305,7 +301,7 @@ Lee Hyun-woo's voice blamed himself.
 
 Kim Ah-young then realized that the gazes were directed at Lee Hyun-woo, not herself.
 
-"Really, they're looking at him, not me."
+'People are really looking at him, not me.'
 
 However, she felt that more women than men were looking, realizing it wasn't because of his orange hair.
 
@@ -327,11 +323,11 @@ This was amusing too.
 
 It felt like discovering a clumsy side to a perfect person.
 
-Then she said,
+Then he said,
 
 "I should never do interviews again. Oh, and I shouldn't create any more scandals."
 
-Her words made her smile.
+His words made her smile.
 
 Somehow, everything he said and did was amusing.
 
@@ -359,13 +355,13 @@ Following Lee Hyun-woo, who started walking again, she also felt raindrops.
 
 At that moment, Kim Ah-young was speechless.
 
-Lee Hyun-woo's hand had positioned itself above her forehead.
+Lee Hyun-woo's hand had positioned itself above her forehead even once they started walking again.
 
 "I should have brought an umbrella; your makeup will get ruined."
 
 Along with his soft low voice.
 
-"Why am I like this?"
+'Why am I like this?'
 
 Thump thump, her heart pounded.
 

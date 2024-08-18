@@ -5,7 +5,7 @@ tags:
 ---
 
 
-Thanks to oppa's compliment, Lee Jung-woo managed to calm his excitement and regain his composure.
+Thanks to his brother's compliment, Lee Jung-woo managed to calm his excitement and regain his composure.
 
 "That part is quite a shame. It would be better if the graphics in the banner moved."
 

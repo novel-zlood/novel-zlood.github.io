@@ -29,11 +29,11 @@ Thinking up to this point, Lee Hyun-woo quickly shook his head.
 
 That wouldn’t happen.
 
-The one place in the world that doesn't need to worry is a conglomerate group.
+The one place in the world that doesn't need to be worried about is a conglomerate group.
 
 ‘Probably, 【Guseong】 will reduce investment in cars. 【GB】 originally had massive plans for overseas production bases this year, but they might adjust the pace.’
 
-Even if that wasn't the case, there seemed no need to worry further.
+Even if that wasn't the case, there seemed to be no need to worry further.
 
 During the foreign exchange crisis, they seized the opportunity to rise higher, so it's certain that in this life too, companies like 【Guseong Electronics】 and 【GB Electronics】 will move in a better direction.
 

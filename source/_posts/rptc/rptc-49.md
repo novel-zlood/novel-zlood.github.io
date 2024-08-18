@@ -171,7 +171,7 @@ Lee Hyun-woo once again said to himself as he looked at her.
 
 On the other hand, Kim Ah-young began an unexpected conversation after the greeting.
 
-"CEO, another scandal article has popped up?"
+"CEO, why has another scandal article popped up?"
 
 "...?"
 
@@ -193,7 +193,7 @@ While Kim Ah-young worried about handling the situation, Lee Hyun-woo was slight
 
 'Is this a strategy?'
 
-He suspected a negotiation tactic.
+He suspected this is a negotiation tactic.
 
 Kim Ah-young, representing 【Sejong】 and 【Guseong】, might be offering the news service in exchange for finding out Nostradamus's identity.
 

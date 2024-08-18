@@ -15,7 +15,7 @@ The man had a tall stature and a handsome face, while the woman had a well-propo
 
 Unaware of this, the man, Lee Hyun-woo, spoke up.
 
-"Oh, the broadcast... Do we have to keep going around like this?"
+"Oh... Do we have to keep going around like this?"
 
 "People will forget over time. Don't worry too much."
 
