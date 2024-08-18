@@ -67,7 +67,7 @@ He dreamed of the day when they would grow from small innovative companies to me
 
 * * *
 
-Meanwhile, Kim Ah-young, the eldest daughter of 【Guseong Group】 who had received significant help, now visited 【Jungle】 naturally unless there was a pressing issue.
+Meanwhile, Kim Ah-young, the eldest daughter of 【Guseong Group】 who had received significant help, now visited 【Jungle】everyday naturally unless there was a pressing issue.
 
 Today was no exception.
 

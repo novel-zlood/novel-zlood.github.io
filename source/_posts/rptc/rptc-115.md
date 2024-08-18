@@ -55,7 +55,7 @@ For example, if it were like the 【Wiki】 of his previous life, people would b
 
 Fortunately, he found a company at one of the tables that created something similar.
 
-"Ah, CEO Park Ki-ho of 【Someone Else's Story】, nice to meet you. Sorry, but what kind of site is 【Someone Else's Story】?"
+"Ah, CEO Park Ki-ho of 【Nam's Story】, nice to meet you. Sorry, but what kind of site is 【Nam's Story】?"
 
 "I'm curious too. Just from the name, it sounds like it's about talking about other people."
 
@@ -71,11 +71,11 @@ Moreover, his voice was so small that he seemed introverted.
 
 "Yes, the purpose of a knowledge service is to satisfy curiosity. So, we created a platform where an unspecified large number of people can participate."
 
-The intent was similar to 'Wiki,' so much so that Lee Hyun-woo was reminded of the popular 【Someone Else's Wiki】 from his previous life.
+The intent was similar to 'Wiki,' so much so that Lee Hyun-woo was reminded of the popular 【Nam's Wiki】 from his previous life.
 
-"The original name wasn't 【Someone Else's Story】. It was 【Backtalk】. People like to talk about others behind their backs, so we created a platform where they could do it freely. But as high-speed internet started spreading, user numbers increased rapidly, and we thought the site name wasn't quite appropriate."
+"The original name wasn't 【Nam's Story】. It was 【Backtalk】. People like to talk about others behind their backs, so we created a platform where they could do it freely. But as high-speed internet started spreading, user numbers increased rapidly, and we thought the site name wasn't quite appropriate."
 
-"So, you changed the name to 【Someone Else's Story】."
+"So, you changed the name to 【Nam's Story】."
 
 "Yes, that's right."
 
@@ -121,7 +121,7 @@ Lee Hyun-woo was slowly venturing into the cloud business.
 
 However, if the goal was to make a significant profit from small-scale businesses right from the start, he wouldn't have suggested this.
 
-"If it's too burdensome right now, how about advertising our company's banner on 【Someone Else's Story】? It's a kind of business collaboration."
+"If it's too burdensome right now, how about advertising our company's banner on 【Nam's Story】? It's a kind of business collaboration."
 
 "Really? Is that okay?"
 
@@ -165,11 +165,11 @@ It was a day that made him feel even more rewarded for advancing the era.
 
 The next day.
 
-After going to work, Lee Hyun-woo opened 【Someone Else's Story】.
+After going to work, Lee Hyun-woo opened 【Nam's Story】.
 
 Since Park Ki-ho might visit today, he thought he should take a look around.
 
-As soon as he entered, he saw a page that showed a noticeable difference from the 【Someone Else's Wiki】 he had seen in his previous life.
+As soon as he entered, he saw a page that showed a noticeable difference from the 【Nam's Wiki】 he had seen in his previous life.
 
 It seemed that this was the limit due to the server constraints.
 
@@ -223,11 +223,11 @@ He had made up the story to change the mindset of all three at that time,
 
 It was possible.
 
-But since Kim Yoon-soo seemed to be encountering 【Someone Else's Story】 for the first time the previous day, it could be narrowed down to two suspects.
+But since Kim Yoon-soo seemed to be encountering 【Nam's Story】 for the first time the previous day, it could be narrowed down to two suspects.
 
 Lee Hyun-woo asked the two of them during lunchtime.
 
-"Team Leader Lee and Team Leader Jang, did you record anything on 【Someone Else's Story】?"
+"Team Leader Lee and Team Leader Jang, did you record anything on 【Nam's Story】?"
 
 "No? It's my first time hearing about it."
 
@@ -269,7 +269,7 @@ Inevitably, Lee Hyun-woo edited the relevant part himself in the afternoon.
 
 -...(truncated)... It's evident that this incident shaped Lee Hyun-woo's management philosophy. However, since there has been no confirmation from him, there is a possibility that this is incorrect.
 
-It was the moment when 【Someone Else's Story】 turned into his own story.
+It was the moment when 【Nam's Story】 turned into his own story.
 
 
 ----

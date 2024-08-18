@@ -25,7 +25,7 @@ However, he must remember that there's still a long way to go.
 
 The biggest challenge was the download speeds in each country.
 
-Fortunately, the U.S. was launching high-speed internet services, and Japan was showing interest through Son Jung-woo.
+Fortunately, the U.S. was launching high-speed internet services, and Japan was showing interest through Son Jung-yi.
 
 Although there hadn't been an official announcement in Japan yet, the next day Lee Hyun-woo heard the news through foreign media.
 
@@ -33,15 +33,15 @@ Although there hadn't been an official announcement in Japan yet, the next day L
 
 A different kind of excitement welled up.
 
-If last year they relied on Son Jung-woo and 【Software Bank】's fame, now they were in a position of mutual win-win.
+If last year they relied on Son Jung-yi and 【Software Bank】's fame, now they were in a position of mutual win-win.
 
 Oh Min-woo loudly proclaimed during a meeting that 【Jungle】 was the best.
 
-"Son Jung-woo is a very lucky man. If it were now, we would have chosen our partners, but back then, we had no choice, right?"
+"Son Jung-yi is a very lucky man. If it were now, we would have chosen our partners, but back then, we had no choice, right?"
 
-"That's right. Son Jung-woo and 【Software Bank】 were already there in front of 【Jungle】, so people went 'Wow' and paid attention. So, partnering with Son Jung-woo to enter Japan itself was like promoting ourselves."
+"That's right. Son Jung-yi and 【Software Bank】 were already there in front of 【Jungle】, so people went 'Wow' and paid attention. So, partnering with Son Jung-yi to enter Japan itself was like promoting ourselves."
 
-"It seems like it will soon be the opposite. As you know, if a portal site called 【Jungle】 appears in Japan, Son Jung-woo will want to introduce online shopping and music services quickly."
+"It seems like it will soon be the opposite. As you know, if a portal site called 【Jungle】 appears in Japan, Son Jung-yi will want to introduce online shopping and music services quickly."
 
 "When that time comes, let's not do business at a loss like now, but start by confidently taking big money."
 

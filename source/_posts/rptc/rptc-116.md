@@ -5,7 +5,7 @@ tags:
 ---
 
 
-That evening, a call came from Park Ki-ho of 【Someone Else's Story】.
+That evening, a call came from Park Ki-ho of 【Nam's Story】.
 
 He asked when he could visit, so they scheduled it for the next morning. After the meeting the next day, they welcomed him.
 
@@ -21,7 +21,7 @@ Instead, he noticed the deep-set eyes, indicating a lot of contemplation.
 
 He was right.
 
-【Jungle】 and 【Someone Else's Story】 couldn't be compared equally.
+【Jungle】 and 【Nam's Story】 couldn't be compared equally.
 
 "So, I thought about how I could repay you. The conclusion was shares."
 
@@ -33,11 +33,11 @@ He was confident.
 
 And it was believable.
 
-Not because people like gossip, but because Lee Hyun-woo also got hooked on 【Someone Else's Story】 and stayed up late the previous night.
+Not because people like gossip, but because Lee Hyun-woo also got hooked on 【Nam's Story】 and stayed up late the previous night.
 
 "Even if it doesn't catch up to the value of 【Jungle】, giving you some shares..."
 
-"Alright. I'll accept. But let's do it this way. Non-voting shares that you can take back anytime you want from 【Someone Else's Story】."
+"Alright. I'll accept. But let's do it this way. Non-voting shares that you can take back anytime you want from 【Nam's Story】."
 
 This meant he wouldn't interfere in management and could reclaim the shares.
 
@@ -55,7 +55,7 @@ This would make the other party feel more comfortable.
 
 As Park Ki-ho's voice trailed off, Lee Hyun-woo smiled gently.
 
-From his late-night examination of 【Someone Else's Story】, he noticed that the search results were quite inaccurate.
+From his late-night examination of 【Nam's Story】, he noticed that the search results were quite inaccurate.
 
 This made Lee Hyun-woo once again respect 【Jungle】's development team.
 
@@ -71,7 +71,7 @@ In 【Jungle】, you could generally get the desired result with just one search
 
 At these words, Park Ki-ho's eyes sparkled.
 
-To forcibly reclaim 5% each year, the amount would depend on the value of 【Someone Else's Story】.
+To forcibly reclaim 5% each year, the amount would depend on the value of 【Nam's Story】.
 
 The hidden nuance in Lee Hyun-woo's proposed condition was essentially asking for a high price.
 
@@ -147,7 +147,7 @@ The reason Lee Hyun-woo was looking for a five-floor building was simple.
 
 It was for servers, of course.
 
-This decision was made after confirming the server rental for 【Someone Else's Story】 that morning.
+This decision was made after confirming the server rental for 【Nam's Story】 that morning.
 
 Since the server demand seemed higher than expected, he decided to create a temporary data center.
 

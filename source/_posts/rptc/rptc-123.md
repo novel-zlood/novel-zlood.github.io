@@ -125,11 +125,11 @@ Suddenly, Lee Hyun-woo asked,
 
 "By the way, do you really get off work at this time?"
 
-"Executives don't have such a thing."
+"Executives don't have such thing as clock out time."
 
 "Wow, that's nice."
 
-"I'm just saying. You actually believe that? In reality, we also have fixed work hours these days. Although it's a hotel and needs a slightly different approach, I go to work at nine and leave at five. Many people wait for me to leave so they can leave without feeling awkward."
+"I'm just kidding. You actually believe that? In reality, we also have fixed work hours these days. Although it's a hotel and needs a slightly different approach, I go to work at nine and leave at five. Many people wait for me to leave so they can leave without feeling awkward."
 
 "I see."
 
@@ -221,11 +221,9 @@ She asked, thinking it would be much more convenient to see each other abroad, a
 
 "We're planning to someday, but it feels like a big leap."
 
-Of course, he was trying to tie it together.
+Of course, she was carefully trying to bring up the next topic.
 
-Why?
-
-Because her father, Kim Sung-moo, had said he wanted to invest in Jungle's expansion into America.
+Her father, Kim Sung-moo, had said he wanted to invest in Jungle's expansion into America.
 
 However, while meeting Lee Hyun-woo, Kim Ah-young had figured out several things about him.
 
@@ -233,9 +231,7 @@ He disliked receiving things for free and was reluctant to accept investment fro
 
 Last time, he said he wouldn't go public immediately to avoid interference.
 
-"I always have to be cautious."
-
-Kim Ah-young realized that a natural approach was necessary.
+Kim Ah-young realized that a cautious, natural approach was necessary.
 
 Especially since if Jungle entered the American market and she rashly suggested partnering with Guseong Group's branch, it could make their relationship awkward.
 
@@ -245,7 +241,7 @@ Especially since if Jungle entered the American market and she rashly suggested 
 
 In other words, depending on the country and region, a high-speed internet environment was essential for music downloads and cloud business to take off.
 
-"Of course, America is said to be starting to install it now, but unlike our country, they work incredibly slowly. It'll probably take more time."
+"Of course, America is said to be starting to install it now, but unlike our country, the vast land make the work incredibly slow. It'll probably take more time."
 
 "Right. Oh, I didn't know that. Then I boasted prematurely?"
 
@@ -255,13 +251,13 @@ In other words, depending on the country and region, a high-speed internet envir
 
 "You already told him?"
 
-"These days, he finds your stories very interesting. So, I explained what I heard from you in my own way. That the cloud service allows you to work anytime, anywhere."
+"These days, he finds your stories very interesting. So, I explained what I heard from you in my own way. That the cloud service allows anyone to develop anything, anytime, anywhere."
 
 "Wow, I must do well for your reputation's sake."
 
 Lee Hyun-woo's eyes sparkled in response to Kim Ah-young's words.
 
-"Originally, Guseong was also a company that provided cloud services."
+'Originally, Guseong was also a company that provided cloud services.'
 
 Specifically, Guseong System, where Kim Tae-hyun was a registered director, would handle the cloud service.
 
@@ -273,13 +269,13 @@ In other words, there was a high probability that Guseong would become Jungle's 
 
 The problem was that Jungle had already entered the market, so they wouldn't allow latecomers to challenge them easily.
 
-"Although it's not a big problem, I feel a bit sorry because I owe them something."
+'Although it's not a big problem, I feel a bit sorry because I owe them something.'
 
 Somehow, he had formed ties with the chairman, successors, and daughters of Guseong Group.
 
 He owed Guseong a huge debt, especially in terms of early advertising business, etc.
 
-He was wondering how to repay it, but fortunately, the news that came out the next day announced that his moral debt had been cleared.
+He was wondering how to repay it, but fortunately, the news that came out the next day announced that his moral debt had been eased.
 
 "Guseong acquires Geukdong Gas!"
 
