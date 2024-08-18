@@ -179,7 +179,7 @@ No matter how much he struggled, he seemed like a workaholic from the outside.
 
 Lee Hyun-woo decided to use it as a whip to strive harder for work-life balance.
 
-"Then I've succeeded. In reality, I leave work on time and spend evenings and weekends happily."
+"That means I've succeeded. In reality, I leave work on time and spend evenings and weekends happily."
 
 As he said this, why did Kim Ah-young come to mind?
 

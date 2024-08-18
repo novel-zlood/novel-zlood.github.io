@@ -43,9 +43,9 @@ After a while, Park Min-sook arrived.
 
 “You're going for business cooperation with the hotel in Japan, right?”
 
-“Yes, that's one of the reasons, and I heard she will also meet Sohn Jung-ui.”
+“Yes, that's one of the reasons, and I heard she will also meet Son Jung-yi.”
 
-“Right. It doesn't matter if she meets Sohn Jung-ui, but is it really necessary for her to stay at the same hotel with Lee Hyun-woo?”
+“Right. It doesn't matter if she meets Son Jung-yi, but is it really necessary for her to stay at the same hotel with Lee Hyun-woo?”
 
 “……”
 
@@ -79,7 +79,7 @@ She quickly confessed the past incident.
 
 “Oh, I see. I mentioned it just in case you were concerned.”
 
-“No, it’s not that. I'm worried that mixing business with personal feelings might cause a mistake when meeting Sohn Jung-ui.”
+“No, it’s not that. I'm worried that mixing business with personal feelings might cause a mistake when meeting Son Jung-yi.”
 
 “Director Kim might make a mistake?”
 
@@ -137,11 +137,11 @@ Two days later.
 
 Lee Hyun-woo arrived at the airport with Woo Sang-won, Lee Jung-woo, and some development team members.
 
-Kim Ah-young, who was originally scheduled to come, also arrived, and they sat together without hesitation.
+Kim Ah-young also arrived as scheduled, and they sat together without hesitation.
 
-Kim Ah-young had arranged the seating from the beginning.
+She had arranged the seating from the beginning.
 
-Even so, booking first class was not an option.
+Even so, booking first class for all of them was impossible.
 
 They downgraded to business class, seating her and Lee Hyun-woo's entourage nearby, but they kept feeling conscious of the surrounding stares.
 
@@ -173,11 +173,11 @@ Back then, she only cleared her throat, but today she even interjected in a low 
 
 There didn’t seem to be much risk of eavesdropping.
 
-Although it wasn’t first class, it was business class, and all the seats were occupied by Guseong Group people and bodyguards.
+All the business class seats were occupied by Guseong Group people and bodyguards.
 
 If there were any eavesdroppers, it would only be the stewardess.
 
-‘Well, I’ll respect the privacy of the conglomerate’s daughter.’
+‘Well, I’ll respect the privacy of a conglomerate’s daughter.’
 
 Anyway, this life has been quite fortunate.
 
@@ -227,7 +227,7 @@ In this second chance at life, he shared advice whenever something came to mind.
 
 “Of course. It would be good to prepare in advance. The announcement will probably come within this year.”
 
-Unconsciously making Nostradamus-like predictions, Lee Hyun-woo.
+Lee Hyun-woo unconsciously making Nostradamus-like predictions.
 
 Kim Ah-young took his words as gospel.
 
@@ -243,13 +243,13 @@ However,
 
 ‘If I marry Hyun-woo, the dynamics might change?’
 
-Over the past year, the growth of Jungle was nothing compared to the various businesses showcased this January and early February.
+Over the past year, the growth of Jungle was much higher compared to the various businesses showcased this January and early February.
 
 In other words, while 1996 created something from nothing, the beginning of 1997 already surpassed the status of a small and medium-sized enterprise.
 
 All the media were paying attention, overseas showed interest, and the business community recognized it.
 
-So, there’s no rule saying it wouldn’t enter the top 30 groups within at least ten years.
+So, there’s a good chance it will enter the top 30 groups within at least ten years.
 
 This would give her significant power.
 
@@ -289,7 +289,7 @@ Park Min-sook, who was with her, asked.
 
 “What? It’s only nine o’clock.”
 
-“You should consider the time you come back, not the time you go out. If you go out now, you’ll be back at least by midnight. Wouldn’t that affect the meeting with CEO Sohn Jung-ui tomorrow?”
+“You should consider the time you come back, not the time you go out. If you go out now, you’ll be back at least by midnight. Wouldn’t that affect the meeting with CEO Son Jung-yi tomorrow?”
 
 “……”
 
@@ -299,7 +299,7 @@ She wasn’t a child, and staying up a bit late today would affect tomorrow’s 
 
 “Why are you suddenly like this?”
 
-“What… shall we go?”
+“What… are you saying?”
 
 “Did something happen?”
 
@@ -314,8 +314,6 @@ She wasn’t a child, and staying up a bit late today would affect tomorrow’s 
 “I said no!”
 
 “What did he say? Did he notice our relationship? No, what relationship do we have? We’re not even dating…”
-
-By ‘our,’ she meant her and Lee Hyun-woo.
 
 And saying that, she didn’t know why she looked so forlorn.
 
@@ -343,7 +341,7 @@ Park Min-sook instinctively shouted.
 
 “Hyun-woo, I’m here too. Why?”
 
-(We’re here, let’s take a walk outside!)
+(Since we’re here, let’s take a walk outside!)
 
 Kim Ah-young turned her gaze to Park Min-sook once again.
 

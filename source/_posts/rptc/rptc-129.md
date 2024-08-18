@@ -23,7 +23,7 @@ Lee Hyun-woo, not paying any attention to this, smiled slightly and initiated th
 
 Lee Hyun-woo nodded.
 
-From now on, we have to think about collecting and utilizing vast amounts of 'data,' regardless of the industry.
+From now on, we have to think about collecting and utilizing vast amounts of data regardless of the industry.
 
 From her words, it sounded like they were sharing customer information between the two hotels, which would require 'save' and 'load' functions.
 
@@ -41,7 +41,7 @@ Lee Hyun-woo suggested even broader industry exchanges.
 
 "What?"
 
-"You can link with airlines. Some places already do this, but if you create package deals based on detailed customer information, it would be more effective."
+"You can link with airlines. Some places already do this, if you create package deals based on detailed customer information, it would be more effective."
 
 "Oh… that's another possibility."
 
@@ -71,13 +71,13 @@ Even in a previous life, someone might have done this, but it feels like I can c
 
 "What are you talking about? That's the hardest thing."
 
-When a workaholic dies from overwork, they realize how difficult it is.
+When a workaholic tried to stop working, they realize how difficult it is.
 
 "It's not just about me traveling; I have to do it with my wife and kids. That requires a certain level of financial capability, doesn't it? To bear that burden until I die. Don't you agree?"
 
 "Well… yeah…"
 
-"You were born with a silver spoon in your mouth, but I wasn't. I was born with a dirt spoon, so I have to earn as much as I can and then travel the world as if it were a daily routine with the money I've saved."
+"You were born with a silver spoon, but I wasn't. I was born with a dirt spoon, so I have to earn as much as I can and then travel the world as if it were a daily routine with the money I've saved."
 
 "Our magic wand even creates new terms. Silver spoon, dirt spoon. Interesting."
 
@@ -109,7 +109,7 @@ What kind of conversation would follow?
 
 - You said you wanted to retire before forty and travel the world with your family. Shouldn't we do it together?
 
-If he answered like this, how should Lee Hyun-woo react?
+If she answered like this, how should Lee Hyun-woo react?
 
 ‘I'm getting old and overthinking.’
 
@@ -123,7 +123,7 @@ Being the daughter of 【Guseong】 was not something to think lightly about.
 
 Looking back, he felt it again.
 
-‘If I date Ah-young, I'll always live like this.’
+‘If I date Ah-young, I'll always live with this mindset.’
 
 He felt he needed to think a lot about this.
 
@@ -193,7 +193,7 @@ They had heard through the media but thought it was exaggerated information. It 
 
 "No way. That can't be."
 
-"It's true. To be precise, a new wave has erupted in the media following 【Jungle】's success in Korea. Recently, 【Japan Gay Jai Newspaper】 ran a special feature strongly advocating for it. They said that establishing infrastructure costs a lot of money, but they must learn from Korea’s recent success! Perhaps because of that, the government is now sending messages to Japanese companies to hurry and establish network infrastructure."
+"It's true. To be precise, a new wave has erupted in the media following 【Jungle】's success in Korea. Recently, 【Japan Keizai Newspaper】 ran a special feature strongly advocating for it. They said that establishing infrastructure costs a lot of money, but they must learn from Korea’s recent success! Perhaps because of that, the government is now sending messages to Japanese companies to hurry and establish network infrastructure."
 
 "That's a relief."
 
@@ -227,7 +227,7 @@ Kim Tae-hyun.
 
 A while later at the airport.
 
-"I should stay until tomorrow. I must go to the production facility for the server this time. Even foreign companies are coming."
+"I should have stayed until tomorrow, but I must go to the production facility for the server this time. Even foreign companies are coming."
 
 Kim Tae-hyun expressed his regret once again.
 
@@ -257,15 +257,13 @@ Kim Tae-hyun gave a faint, wry smile.
 
 "If it's server overload, it's like having a server problem."
 
-"Yes, it means it's insufficient. I checked briefly earlier, and it wasn't even close."
+"Yes, it means the capacity is insufficient. I checked briefly earlier, and it wasn't even close."
 
 "Wow…"
 
 "Anyway, with the success of 【Jungle Japan】, the internet era will arrive in Japan, and there will be a high demand for servers, right? So, the stock price of 【Guseong Electronics】, which prepared for mass production of servers early on, will soar once again. Of course, the performance will be amazing too."
 
-"You talk as if you planned today without a single gap."
-
-"Otherwise… never mind."
+"You talk as if you have been planning for that to happen."
 
 Kim Tae-hyun showed an even wryer smile.
 

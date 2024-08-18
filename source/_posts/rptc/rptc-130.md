@@ -61,7 +61,7 @@ It seemed like Son Jung-yi had a lot he wanted to do.
 
 At this point, we must acknowledge this.
 
-Aside from the 2.5 times population difference, Japan is a better market for selling music in terms of the music market and copyright awareness.
+Aside from the 2.5 times population difference, Japan is a better market for selling music in terms of the existing music ecosystem and copyright awareness.
 
 Would Son Jung-yi understand even this?
 
@@ -145,13 +145,13 @@ Lee Hyun-woo enjoyed a date walking through the streets of Tokyo with Kim Ah-you
 
 “Isn’t it too early to say it’s a success? You can’t know until you open the lid.”
 
-“Son Jung-yi must have prepared the servers in advance. But the traffic exceeded that, didn’t it? If that’s not a success, what is? And when we were about to leave, he asked with an urgent expression if he could start preparing for the IPO right away.”
+“Son Jung-yi must have prepared the server capacity in advance. But the traffic exceeded that, didn’t it? If that’s not a success, what is? And when we were about to leave, he asked with an urgent expression if he could start preparing for the IPO right away.”
 
 What Kim Ah-young said was true.
 
 Whether the promotion was done properly, the number of Japanese netizens trying to access 【Jungle Japan】 was more than expected.
 
-The number of accesses leads to advertisements, and though it may be a bubble, it will drive the momentum for the IPO.
+The number of accesses leads to media reporting which acts as free advertisement, and though it may be a bubble, it will drive the momentum for the IPO.
 
 Perhaps buoyed by that outcome, Son Jung-yi waited for Lee Hyun-woo's answer with a look as if he would go public immediately.
 
@@ -161,17 +161,17 @@ Lee Hyun-woo agreed readily, and Kim Ah-young also nodded.
 
 When they called Kim Tae-hyun on the spot, he also gave an okay sign.
 
-“Still, it’s only in the distant future. Going public isn’t easy, and it will take at least a year. Besides, as I keep saying, the initial success might just be a fluke. We must not be complacent.”
+“It’s still in the distant future. Going public isn’t easy, and it will take at least a year. Besides, as I keep saying, the initial success might just be a fluke. We must not be complacent.”
 
 “Then why do you have that expression?”
 
 “My expression? What’s wrong with it?”
 
-“You’re saying it can’t be otherwise. Your face is saying it will definitely succeed, and you’ll seize this opportunity to dominate Japan’s internet ecosystem.”
+“You’re saying it might not succeed, yet your face is saying it will definitely succeed.”
 
 “Oh? Even that shows on my face?”
 
-“Of course. Your face always says something. Well, I did inform Dad about this place earlier anyway.”
+“Of course. Your face always says something. Well, I did inform Dad about this matter earlier.”
 
 “Really? What did you tell him?”
 
@@ -187,7 +187,7 @@ As they walked side by side, Kim Ah-young kept glancing at his face, making Lee 
 
 ‘I feel excited for no reason.’
 
-I thought the emotions that disappeared after living past middle age in my previous life wouldn't come back, but is this what they mean by even an old man can have romance?
+I thought the emotions that disappeared after living past middle age in my previous life wouldn't come back.
 
 ‘If we get a little closer, I might even confess.’
 
@@ -195,13 +195,13 @@ But it seemed that little bit wouldn’t take too long.
 
 While walking, Kim Ah-young’s hand, which had been brushing against his, was eventually held by Lee Hyun-woo.
 
-At that moment.
+At that moment,
 
 “……”
 
 “……”
 
-The conversation between the two stopped,
+the conversation between the two stopped,
 
 “……!”
 
@@ -221,7 +221,7 @@ But the moment to let go of the hand came when their stomachs signaled, and Lee 
 
 “Katsudon?”
 
-Now thinking with her head rather than her heart, Kim Ah-young thought,
+Now thinking with her heart rather than her head, Kim Ah-young thought,
 
 ‘I can hold it in. Do I really have to eat now?’
 
@@ -311,7 +311,7 @@ But the sentiment ended there.
 
 Should she tell him about this?
 
-‘If you don’t say it? Are you planning to lie?’
+‘If you don’t say it, is it counted as a lie?’
 
 Suddenly, her thoughts became complicated.
 
@@ -323,7 +323,7 @@ Reluctantly, she picked up the receiver after returning to the hotel a while lat
 
 Hoping no one would answer, she let the phone ring.
 
-But when it was answered after just two rings, it was clear they had been waiting for her call.
+But when it was answered after just two rings, it was clear the other side had been waiting for this call.
 
 “Chairman, it’s me.”
 
