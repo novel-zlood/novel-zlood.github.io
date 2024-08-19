@@ -37,7 +37,7 @@ She spoke in a more resolute tone.
 
 Although she understood the context, Kim Ah-young found bodyguards annoying.
 
-"If I don't comply, Secretary Park will get scolded later, right?"
+"If I don't comply, it will be a problem for Secretary Park later, right?"
 
 Reluctantly, she compromised with the following statement.
 
@@ -351,7 +351,7 @@ He suddenly stopped walking and extended his hand forward.
 
 Following Lee Hyun-woo, who started walking again, she also felt raindrops.
 
-"Oh? It's true. Raindrops..."
+"Oh? It is indeed raindrops..."
 
 At that moment, Kim Ah-young was speechless.
 

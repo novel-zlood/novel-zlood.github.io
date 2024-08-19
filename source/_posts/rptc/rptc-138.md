@@ -5,7 +5,7 @@ tags:
 ---
 
 
-He didn't ask for an interview in advance!
+"You didn't ask for an interview in advance."
 
 Lee Hyun-woo's fluent English was striking the ears of the reporters.
 
@@ -141,13 +141,13 @@ Not out of shock but due to the limits of their imagination.
 
 Seeing that, Lee Hyun-woo opened his mouth again with a meaningful smile.
 
-"Although today's session ends with three questions, I will take more questions tomorrow. You all heard, right? 【Jungle】 is entering the U.S. market through a business collaboration with 【AltaVista】?"
+"Although today's session ends with three questions, I will take more questions tomorrow. You all heard, right? 【Jungle】 is entering the U.S. market through a business collaboration with 【AltaVist】?"
 
 This time, everyone's heads nodded.
 
 In fact, 【Jungle】 is more famous abroad than in Korea.
 
-Ironically, last year, after 【Yahoo】's record NASDAQ listing, the world's attention turned to portal sites.
+Ironically, last year, after 【Yaho】's record NASDAQ listing, the world's attention turned to portal sites.
 
 Now, 【Jungle】, often mentioned in the media as a rival to 【Yahoo】, was drawing all that attention.
 
@@ -205,7 +205,7 @@ Watching Lee Hyun-woo disappear leisurely, they thought of their bosses' faces.
 
 In the car heading to the hotel, they rode in a car provided by the American branch of 【Guseong】.
 
-Of course, Lee Hyun-woo and Kim Ah-young were in the car, and Park Min-sook was in the passenger seat.
+Of course, Lee Hyun-woo and Kim Ah-young were in the car, and Park Min-sook was in the front seat.
 
 Lee Hyun-woo spoke first, expressing his gratitude.
 
@@ -219,9 +219,9 @@ The reason he hadn't hired secretaries and bodyguards was not because of the cos
 
 After all, 【Jungle】 is a rapidly growing company with many gaps.
 
-However, the necessary personnel were being recruited, and Lee Hyun-woo, armed with past experience, was managing well.
+However, Lee Hyun-woo, armed with past experience, was managing well all by himself so far.
 
-"Secretaries can be assigned positions within the company, but I'll need some recommendations for bodyguards."
+"Secretaries can be assigned to someone within the company, but I'll need some recommendations for bodyguards."
 
 Now he was beginning to recognize areas he couldn't handle alone.
 
@@ -237,8 +237,6 @@ Kim Ah-young felt pleased that Lee Hyun-woo was relying on her for something.
 
 "Yes, Director."
 
-She quickly gave instructions to Park Min-sook, who was sitting in the passenger seat.
-
 Then she finally started asking Lee Hyun-woo about something she was curious about.
 
 "By the way."
@@ -253,15 +251,15 @@ Then she finally started asking Lee Hyun-woo about something she was curious abo
 
 Kim Ah-young widened her eyes.
 
-"Honestly, what is that? SNS. It's the first time I've heard of it."
+"To be honest, I'm not quite sure what 'SNS' refers to. This is actually the first time I've come across it."
 
 "Like I said earlier, it's about building connections online and expanding relationships through them."
 
-"Even so, I don't quite get it."
+"Even with that, I still don't quite get it."
 
 "Why not? It's something we're already doing."
 
-"Really?"
+"Is that so?"
 
 "Yes, blogs. That's SNS."
 
@@ -275,7 +273,7 @@ In fact, to enhance blog functions, 【Jungle】 was operating an acquaintance s
 
 It was a system where blog operators could become acquaintances if they wanted to.
 
-"Then it's not something new."
+"Then it's not something new, is it?"
 
 "In the U.S., it is. And like I said earlier, it has to be made so that people all over the world can enjoy it. The development team will continue to enhance it as a kind of ongoing project."
 

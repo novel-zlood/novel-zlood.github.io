@@ -237,11 +237,11 @@ After Chuseok, she quickly ordered to find out the situation, and when her secre
 
 “【Jungle】 said they absolutely wouldn’t disclose personal information.”
 
-“Of course. But the CEO must know, right?”
+“However, the CEO should have that information, wouldn’t you agree?”
 
 “He surely knows.”
 
-“That’s good.”
+“That’s most excellent.”
 
 “What?”
 

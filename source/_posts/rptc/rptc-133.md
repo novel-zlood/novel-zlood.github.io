@@ -11,7 +11,7 @@ However, all these secret meetings between the two people were being reported to
 
 Kim Sung-moo's expression slightly changed upon hearing the report from his bodyguard, Jung Jin-sung.
 
-Of course, from Jung Jin-sung's perspective, it was an unremarkable expression.
+Of course, from Jung Jin-sung's perspective, nothing noticeably different from the chairman's expression.
 
 Such was the reputation of Kim Sung-moo, the head of Guseong Group, for never revealing his true feelings.
 
@@ -27,7 +27,7 @@ In fact, it was a relief.
 
 'Secretary Park has been by Ah-young's side for a long time.'
 
-If the report had been honest, who knows what he might have thought, but for now, it felt good to know that Park Min-sook was on his eldest daughter's side.
+Somehow, it was a relief to know that Park Min-sook was on his eldest daughter's side.
 
 'But to think Ah-young's match is Lee Hyun-woo...'
 
@@ -43,7 +43,7 @@ Yesterday, he received information about a place called Alpha Cast and One Compu
 
 Some funds in New York had solidified their investment targets.
 
-'Hyun-woo has also invested in Alpha Cast? And he established a cooperative relationship with One Computer from the beginning?'
+What's surprising is that he had established a cooperative relationship with One Computer from the beginning, when they both had nothing.
 
 With the ability to foresee the success of undervalued companies, there was no need for further hesitation.
 
@@ -55,9 +55,9 @@ Having observed Lee Hyun-woo, it was clear he was a workaholic.
 
 No matter how much he pretended otherwise, he couldn't hide his true nature.
 
-Chairman Kim Sung-moo, who saw through this, had to question whether his daughter would indeed find a good spouse.
+A kindred soul can see their own reflection, so he had to question whether his daughter would indeed find a good spouse. Kim Sung-moo has known best the struggle his daughter has been through with such a father. What will happen if her husband is similar?
 
-Especially when Kim Ah-young mentioned a business trip to the U.S. the next morning.
+That concern intensified when Kim Ah-young mentioned a business trip to the U.S. the next morning.
 
 "Why the U.S.?"
 
@@ -71,11 +71,11 @@ Last time, they tried to establish a connection with Jungle through the U.S. bra
 
 Nevertheless, Kim Ah-young confidently had something to say.
 
-"Yes, but we can connect various companies through the U.S. branch."
+"Yes, but we can still connect various companies with our U.S. branch."
 
 "Various companies?"
 
-"Lee Hyun-woo mentioned that he could sell Jungle's search engine to those companies he meets."
+"We can increase our presence in the U.S. using Jungle's cloud service. Moreover, Lee Hyun-woo mentioned that he could sell Jungle's search engine to U.S. companies. So he can start with our partners."
 
 One could vividly imagine how much work Lee Hyun-woo would accomplish in the U.S.
 
@@ -83,19 +83,17 @@ However, curiosity arose once more.
 
 "You're saying you're selling the search engine, just like in Korea?"
 
-"Yes, recently Jungle created a profit model with its search engine. Nowadays, information technology companies emerging like mushrooms after rain are starting to add search box services to their websites, and other large companies are lining up to adopt Jungle's search engine, which is faster and more accurate."
+"Yes, recently Jungle created a profit model with its search engine. Nowadays, information technology companies emerging like mushrooms after rain are starting to add search box to their websites, and other large companies are lining up to adopt Jungle's search engine, which is faster and more accurate."
 
 "Hmm..."
 
-While he knew about the search engine, his age was a hindrance in understanding the level and depth of the technology.
-
-He could keep up with the world's changes, but couldn't grasp every detail of every field.
+While he knew about the search engine, his age was a hindrance in understanding the level and depth of the technology. He could keep up with the world's changes, but couldn't grasp every detail of every field.
 
 Fortunately, as the head of a huge group, he had a rich imagination.
 
 Kim Sung-moo also started drawing various scenarios.
 
-'What if I wanted to search all the TV lines of Guseong Electronics from a year ago? No, it might be more necessary for Guseong Securities. What if I wanted to know the disclosures of a specific company?'
+'What if I wanted to search all the TV lines of Guseong Electronics even from a few years ago? No, it might be more necessary for Guseong Securities. What if I wanted to know the disclosures of a specific company?'
 
 In fact, Kim Ah-young mentioned the biggest case next.
 
@@ -103,43 +101,39 @@ In fact, Kim Ah-young mentioned the biggest case next.
 
 "......"
 
-The reason why Kim Sung-moo, who managed his expressions well, always had his pupils shake when he heard about Lee Hyun-woo and Jungle.
+Kim Sung-moo, who usually managed his expressions well, had his pupils shake when he heard about this.
 
 'This will be worth a fortune.'
 
-Another curiosity was the quality of Jungle's search engine.
+Another curiosity raised about the quality of Jungle's search engine. This needed a comparison.
 
-This needed a comparison.
-
-"Doesn't Yahoo also have a search engine? Why would they inquire about Jungle's without even asking about Yahoo's?"
+"Doesn't Yaho also have a search engine? Why would they inquire about Jungle's without even asking about Yaho's?"
 
 "I'm not exactly sure about the technical details, but Jungle analyzes the relationships between websites instead of relying on keywords."
 
 Kim Sung-moo also didn't know much about the technical aspects.
 
-What he wanted to know was the difference between the two.
+What he wanted to know was the result difference between the two.
 
-"According to Lee Hyun-woo's simple explanation, if you rely only on keywords, you find 10 results, but if you analyze the relationships between websites, there's a multiplier effect."
+"According to Lee Hyun-woo's simple explanation, if you rely only on keywords, you find 10 results, but if you analyze the relationships between websites, there's a multiplier effect on the result."
 
-"Multiplier effect? Like square or cube?"
+"Multiplier effect? To what magnitude?"
 
-"Yes, so the more websites there are, the more Jungle's search engine will inevitably be superior."
+"The potential is infinite. The more websites there are, the more pages will be returned. But it is not just the quantity, the accuracy of their search will also improve because Jungle will be able to compare more relationships. With more partners, Jungle's search engine will inevitably be superior."
 
-This required maximum imagination, but one thing was certain.
-
-'It's a higher level of technology than Yahoo's.'
+This required maximum imagination, but he can be certain that it is higher level of technology than Yaho's.
 
 Kim Sung-moo, who knew well that technological superiority determines corporate differences, once again thought of Lee Hyun-woo.
 
-'Regardless of whether he's a workaholic or not, he's someone we must secure.'
+'Regardless of whether he's a workaholic or not, he's someone we must secure in order to bring Guseong group to new heights.'
 
-For the Guseong Group to become a global company, Lee Hyun-woo was necessary, more than his daughter's happiness.
+But is it worth more than his daughter's happiness?
 
-Thus, he spoke to his daughter.
+After a pause, he spoke to his daughter.
 
 "Alright, take this opportunity to learn a lot in the U.S. Such experiences will be valuable in the future."
 
-Seeing her father's expression, which didn't seem very pleased, Kim Ah-young thought.
+While saying that, Kim Ah-young can sense displeasure from her father's usual composed expression.
 
 'He's smiling with his mouth, but his eyes are dissatisfied.'
 
@@ -201,7 +195,7 @@ Was this request even reasonable?
 
 "Yes, me too."
 
-"So you stay late secretly. Sometimes you even take work home."
+"Is that why you stay late secretly? Sometimes you even take work home."
 
 Lee Jung-woo, who often got caught working late at night, nodded along with Oh Min-woo.
 
@@ -209,7 +203,7 @@ Lee Jung-woo, who often got caught working late at night, nodded along with Oh M
 
 "That's exactly what I'm saying."
 
-"Other companies are begging to let them rest, why are you two like this?"
+"Employees of other companies are begging to get some rest, why are you two like this?"
 
 "We told you, we can't finish the work on time."
 
@@ -219,7 +213,7 @@ Lee Jung-woo, who often got caught working late at night, nodded along with Oh M
 
 "It’s the same for them. It's not enough. They're also begging to work more."
 
-"Same here. Lately, it's been hard telling people to stop working and go home. The next day, seeing the piled-up work makes people sigh."
+"Same here. Lately, it's been hard telling people to stop working and go home. Seeing the piled-up work the next day makes people sigh."
 
 Lee Hyun-woo, after thinking for a moment, spoke again.
 
@@ -235,13 +229,11 @@ But are they really short on people?
 
 'Why is he so obsessed with work-life balance?'
 
-How could they know?
-
-The trauma of people dying from overwork.
+How could they convey this?
 
 Thus, Lee Jung-woo answered first.
 
-"I don't know. It's not like we're not hiring."
+"It's not like we're not hiring."
 
 "Yeah, we even had a large recruitment drive recently."
 
@@ -251,9 +243,7 @@ They had hired quite a few graduates earlier this year.
 
 Fortunately, they had moved the servers to a five-story building; otherwise, there wouldn't have been enough space.
 
-But if they hired more?
-
-'Are we moving again within a year?'
+But if they hired more? They will have to move again within a year.
 
 'It's too chaotic. No matter what, we should endure at least a year before moving.'
 

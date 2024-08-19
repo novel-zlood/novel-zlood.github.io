@@ -33,23 +33,23 @@ This time, they moved away from uncomfortable topics and talked about Jungle Jap
 
 “Well, maybe in the first half of next year? The internet speed there is just so terrible.”
 
-“Honestly, there aren’t many places that can compare to our country’s internet speed.”
+“Honestly, there are very few places that can match our country’s internet speed.”
 
 “That’s true. But eventually, they’ll catch up, won’t they?”
 
-“That’s a good thing to hear. We used to always be behind, but now other countries are trying to catch up to us.”
+“That’s reassuring to hear. We used to be behind, but now other countries are striving to keep up with us.”
 
 “It’s just the truth.”
 
-“Oh, I’ve been reading in the papers that places in the USA and Germany are also interested in your company?”
+“Oh, I’ve read in the papers that there is also interest in your company from places in the USA and Germany?”
 
 “That’s right. Everything is in progress. So, I’ve been very busy lately, and my philosophy of life has been shaken several times.”
 
-“Your philosophy of life? Oh… enjoying evening time after work?”
+“Your philosophy of life? Oh… you mean enjoying the evening after work?”
 
 “Right. Sometimes, I even stayed past my working hours. So this time, I’m trying not to, and that’s why we’re having this workshop.”
 
-“Huh? That’s the reason for this workshop?”
+“Is that the reason for this workshop?”
 
 “Yeah. We’ll talk about business too, but mostly we’ll be discussing how to balance work and life with the employees.”
 
@@ -61,7 +61,7 @@ Moreover, Lee Hyun-woo made an unusual proposal to her.
 
 “If you want, you can also attend the workshop on balancing work and life.”
 
-“Really? Then I’ll do it.”
+“Really? In that case, I’ll do it.”
 
 Kim Ah-young, who wanted to hear anything Lee Hyun-woo had to say, accepted his proposal without hesitation.
 
@@ -81,7 +81,7 @@ After arriving at the hotel, Kim Ah-young had to listen to Park Min-sook’s voi
 
 “Director, as I repeatedly say, your feelings are too apparent.”
 
-“So what?”
+“Is that a problem?”
 
 “Men don’t like that.”
 
@@ -89,15 +89,15 @@ The direction of the advice had changed from before.
 
 A few months ago, she would have tried to interfere with her relationship with Lee Hyun-woo, but these days, she pointed out ways to attract Lee Hyun-woo’s attention and criticized Kim Ah-young’s immature expressions of affection.
 
-“They don’t like it?”
+“Do they find it unappealing?”
 
-“Of course not. It’s like not feeding a fish you’ve already caught.”
+“Exactly. It’s like not feeding a fish you’ve already caught.”
 
 “We’re not even dating yet.”
 
 “That’s the problem. From the beginning of the relationship, you’re showing that you’re more interested.”
 
-“If I don’t do that, he doesn’t seem to notice at all.”
+“If I'm not doing that, he appears not to notice in the slightest.”
 
 “……”
 
@@ -113,19 +113,19 @@ However, she was worried that if they continued their relationship and got marri
 
 “A woman has to raise her value. The more you blatantly approach him, the more the CEO will feel burdened and step back.”
 
-“If I don’t approach, he rarely contacts me.”
+“If I'm not making the first move, he rarely contacts me.”
 
 “You have to endure it.”
 
-“Even if it takes a month, two months?”
+“Even if it takes a month or two?”
 
 “Yes, you have to endure it.”
 
-“I planned to have fun in Jeju Island…”
+“I had intended to have a good time on Jeju Island…”
 
 “It’s not a good method. He’ll definitely notice your feelings. That’s when a woman’s value drops the most. Some men might even start to mistreat you once they know your feelings.”
 
-“I don’t think Hyun-woo would do that…”
+“I don’t believe Hyun-woo would do that…”
 
 “Men are all the same. Please listen to me. You have to trust me, Director.”
 
@@ -139,15 +139,15 @@ Like a mother, Park Min-sook began to advise Kim Ah-young.
 
 “Instead, you get to attend the workshop tomorrow. That means the CEO considers you very important, so you can show your charm whenever you get the chance.”
 
-“Charm… What does Hyun-woo like?”
+“Charm… of what kind?”
 
 “More than a few things. If I were a man, I’d fall head over heels for a lady’s charm combined with dignity. Moreover, you generously give a lot to the CEO sometimes. From tomorrow, you'll provide free breakfast to all employees, and I noticed that he seemed to have caught on that you downloaded all the songs from Jungle Music…”
 
-“Right? He seemed to notice that, right?”
+“Right? He appeared to notice that, didn’t he?”
 
 “Of course. I told you back then not to make it too obvious.”
 
-“Since it's already done, let’s leave it at that. I understand. I won’t be the one to ask for a date first.”
+“Since it's already done, let’s leave it at that. I understand. I shall refrain from being the one to propose a date first.”
 
 Kim Ah-young felt a bit regretful.
 
@@ -155,7 +155,7 @@ The condition for getting a discount on the Seorabeol Hotel accommodation was a 
 
 Of course, Lee Hyun-woo had no idea about this quid pro quo.
 
-‘It can’t be helped. I don’t want Hyun-woo to treat me poorly later.’
+“It cannot be helped. I’d prefer not to have Hyun-woo treat me poorly in the future.”
 
 * * *
 
@@ -171,7 +171,7 @@ Just in case, she dolled herself up again before entering the workshop venue, wh
 
 “Me too.”
 
-“Oh, no. I wonder if it tasted good.”
+“Oh, no. I wonder whether it was enjoyable.”
 
 “It was the best. The best!”
 

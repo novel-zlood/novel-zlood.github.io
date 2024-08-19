@@ -31,9 +31,7 @@ People who fully understood Lee Hyun-woo's words began to speak up.
 
 "That's right. We won't just be doing business domestically in the future."
 
-Collective intelligence began to bring out not only what Lee Hyun-woo was thinking but also things he hadn't thought of.
-
-As expected, Lee Hyun-woo accepted many of their opinions.
+Collective intelligence began to bring out not only what Lee Hyun-woo was thinking but also things he hadn't thought of. He accepted many of their opinions.
 
 "Alright. Then, Team Leader Oh Min-woo will look into the universities."
 
@@ -55,39 +53,33 @@ At the same time, he felt it was time to reorganize the structure.
 
 ‘The growth rate of our company far exceeds my expectations.’
 
-Thinking that he needed to expand the scope to accommodate more, he spent the whole day immersed in planning the reorganization.
+He spent the whole day immersed in planning reorganization in order to allow increase in scope of work.
 
 The next day, he announced the related matters again,
 
-"Our 【Jungle】 will go bigger to foresee the future. The six team leaders will each be promoted to part leaders. Instead, it will be divided into six parts. The first is the online shopping part. The second is the portal site part. Next is the content part. The fourth is the cloud part. These are the technical parts. The remaining two will be the domestic and overseas external cooperation parts."
+"Our 【Jungle】 will go bigger in foreseeable future. The six team leaders will each be promoted to division leaders and we will have six divisions. The first is the online shopping division. The second is the portal site division. Next is the content division. The fourth is the cloud division. These are the technical divisions. The remaining two will be the domestic and overseas external cooperation divisions."
 
 The part leaders in order were Lee Jung-woo, Woo Sang-won, Jang Yoo-chul, Oh Min-woo, Han Se-jin, and Kang Dong-ho.
 
-At the same time, he instructed that each part be subdivided into teams and handed over the promotion contracts in envelopes.
+At the same time, he instructed that each division be subdivided into teams and handed over the promotion contracts in envelopes.
 
 "If you find anything unsatisfactory, let me know. We can renegotiate."
 
-Would he have the mind to include negotiations in Lee Hyun-woo's schedule, filled with work-life balance?
+To reduce distraction from renegotiations in Lee Hyun-woo's schedule, he make each contract condition to be so exceptional that he could bet his wrist that no one would come.
 
-Each condition was so exceptional that he could bet his wrist that no one would come.
+In fact, it was exactly what happened.
 
-In fact, no one was dissatisfied with the contract conditions.
-
-There was only nagging from his younger brother Lee Jung-woo, who said the conditions were too exceptional.
+Only his younger brother Lee Jung-woo had something to say about the exceptional condition.
 
 * * *
 
-"Hyung, tripling the salary is one thing. Our company grows rapidly overnight."
+"Hyung, I get why we triple the salary. Our company grows rapidly overnight, so is the responsibility."
 
 "Yeah, it grows rapidly overnight. So, understand it as sharing and motivating, okay?"
 
 "Yeah, that makes sense. But giving 10% equity if they become a subsidiary CEO?"
 
 That night, Lee Jung-woo's voice grew louder.
-
-It seemed he found it regrettable.
-
-If not,
 
 "I'm not saying this because I find it regrettable. People are greedy animals. If they own 10%, they might start wanting to take over the company."
 
@@ -103,7 +95,7 @@ Lee Jung-woo's jaw dropped at Lee Hyun-woo's absurd plan.
 
 But Lee Hyun-woo began to explain with a nonchalant smile.
 
-"You are mistaken about something. First, will those six people really become subsidiary CEOs? That hasn't been decided. Right?"
+"You are mistaken about something. First, will the six division head become subsidiary CEOs? That hasn't been decided. Right?"
 
 "Well…"
 
@@ -149,7 +141,7 @@ Even the latest search engine was thanks to the solid initial design by Lee Jung
 
 If that were the case, the founders of 【Single】, who were probably researching somewhere, were finished.
 
-The same type of search engine had already been released, and it was clear that the gap would widen as they were collaborating with top universities in Korea.
+The same type of search engine had already been released, and it was clear that the gap would widen as they were collaborating with top universities in Korea and abroad.
 
 ‘Sorry, you two. But if the opportunity arises, I will hire you someday.’
 
@@ -269,7 +261,7 @@ Writing in the chat, he felt a sense of pride.
 
 So much so that he included some exaggerated expressions.
 
-― 【Yaho】 is already food. The same with 【Likes】, we will conquer the world.
+― 【Yaho】 is toast. The same with 【Likes】, we will conquer the world.
 
 Oh Min-woo's boasting was well-known at both the company and school, and now it seemed to be going global.
 

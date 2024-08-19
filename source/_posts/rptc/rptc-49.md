@@ -9,17 +9,17 @@ Kim Ah-young appeared to be a very competent woman in Park Min-sook's eyes.
 
 Predicting that she would soon realize reality and shift her attention, she chimed in.
 
-"I'll contact them then."
+“I shall contact them then.”
 
-"Go ahead. Oh, wait a moment."
+"Go ahead. Oh, hold on a moment."
 
 "Yes?"
 
-"Since we can't just ask them to reveal their blog without any reason, how about we offer them something they want first? After all, transactions are based on mutual exchange."
+“Since we cannot simply request that they disclose their blog without a valid reason, why not offer them something they desire first? After all, transactions are founded on mutual exchange.”
 
 "That makes sense, but what should we offer?"
 
-"Could you find that out for me?"
+“Could you please ascertain that for me?”
 
 "Yes, Director. I'll do that."
 
@@ -57,7 +57,7 @@ With the gathered information, she went back to Kim Ah-young.
 
 Kim Ah-young nodded, her eyes sparkling as if she understood.
 
-"That's good. Before contacting CEO Lee Hyun-woo, we should prepare for that first."
+“That’s good. Before reaching out to CEO Lee Hyun-woo, we should prepare for an arrangement.”
 
 Kim Ah-young quickly took out her phone.
 
@@ -103,7 +103,7 @@ It was a familiar female voice.
 
 Who could it be? As soon as he thought this, the caller identified herself.
 
-(It's Kim Ah-young. We met at 【Seorabeol Hotel】 before.)
+(It's Kim Ah-young. We previously met at the 【Seorabeol Hotel】.)
 
 "Oh, hello."
 
@@ -161,7 +161,7 @@ With this firm determination, Lee Hyun-woo visited 【Seorabeol Hotel】 the nex
 
 "Welcome."
 
-"Long time no see."
+“It’s been a while since we last met.”
 
 Today, Kim Ah-young, dressed in a neat office look, greeted him with a determined look on her face.
 
@@ -171,7 +171,7 @@ Lee Hyun-woo once again said to himself as he looked at her.
 
 On the other hand, Kim Ah-young began an unexpected conversation after the greeting.
 
-"CEO, why has another scandal article popped up?"
+"CEO, why has another scandal article emerged?"
 
 "...?"
 
@@ -207,7 +207,7 @@ Since it could have been a tactic to catch him off guard, he regained his compos
 
 "Oh, she's a friend. Since we're the same age, I suggested we be friends recently."
 
-"I'm the same age too."
+“I am of the same age as well.”
 
 "Pardon?"
 
@@ -243,15 +243,15 @@ Taking this opportunity, Lee Hyun-woo finally started his offense.
 
 "Yesterday, you mentioned the news service over the phone?"
 
-"Oh, that? Actually, I accidentally ran into the chairman of 【Sejong Daily】 yesterday. Then I happened to hear that 【Jungle】 requested a news service."
+"Oh, that? I happened to encounter the chairman of 【Sejong Daily】 just yesterday. During our meeting, I learned quite by chance that 【Jungle】 had requested a news service."
 
 "..."
 
-"I told him that I had met you twice. Then he said he was interested in the news service."
+"I mentioned to him that we had met on two occasions. Then he expressed an interest in the news service."
 
 "Is that true?"
 
-"Yes, that's what he told me."
+"Yes, that's what he conveyed to me."
 
 She's confessing too easily now.
 
@@ -265,15 +265,15 @@ He was sure Kim Ah-young would try to ask about Nostradamus's identity.
 
 She must be waiting for the right moment.
 
-"Just wait a bit. You might get some good news."
+"Just hold on a moment. You may soon receive some pleasing news."
 
 "Thank you for letting me know."
 
-"Not at all. Personally, I hope 【Jungle】's portal site does well. That way, our 【Seorabeol Hotel】 can gain more advertising benefits."
+"Don't mention it. Personally, I am quite hopeful that 【Jungle】's portal site thrives. Should that occur, our 【Seorabeol Hotel】 stands to reap considerable advertising advantages."
 
 "Ah, that's right. Then I'll tell my staff to increase the exposure frequency."
 
-"Could you... do that?"
+"Would you... do that for me?"
 
 "Of course. Having received such good information, it's only right to do so."
 
@@ -297,11 +297,11 @@ It was annoying that he did nothing but talk business.
 
 So she blurted out another question without controlling herself.
 
-"Can anyone be friends if they're the same age?"
+"Is it possible for anyone to be friends if they're of the same age?"
 
 "..."
 
-"Just... since I'm the same age too, I wondered why you didn't suggest being friends."
+"Just... given that I am of the same age as well, I wondered why you didn't suggest being friends."
 
 Then Lee Hyun-woo nodded with a smile.
 

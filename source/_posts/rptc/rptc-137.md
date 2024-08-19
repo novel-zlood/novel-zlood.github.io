@@ -19,11 +19,11 @@ Oh Min-woo asked a random question.
 
 “Yes, her.”
 
-“That's her choice. How would I know?”
+“That's her choice.”
 
 “It's a shame.”
 
-“What is?”
+“How so?”
 
 “If she flies first class, I can switch seats with her again.”
 
@@ -31,11 +31,9 @@ Oh Min-woo asked a random question.
 
 Even his younger brother Lee Jung-woo joined in.
 
-Lee Hyun-woo responded as if he found it absurd.
-
 “You guys, I've been letting you fly business class these days. How much more do you want?”
 
-“It's hard to try it once, but the charm of first class is that you can't stop after trying it once.”
+“It's one of those things that once you tasted the higher level, you really feel the downgrade.”
 
 “Right, right. I couldn't forget it after trying it last time. I'm actually curious to see if Ah-young will fly first class again.”
 
@@ -65,7 +63,7 @@ Each time, Lee Hyun-woo would laugh it off, but issues involving women could be 
 
 If a scandal were to break out with the eldest daughter of 【Guseong】, things would get complicated.
 
-Anyway, as Lee Hyun-woo remained silent, Lee Jung-woo subtly changed the subject.
+Anyway, as Lee Hyun-woo remained silent, so Lee Jung-woo subtly changed the subject.
 
 “Oh, what happened to those guys?”
 
@@ -151,7 +149,7 @@ That could be an interesting scenario, so he's looking forward to it.
 
 Lee Hyun-woo's expectations were already quite high.
 
-So far, Ray Bernier and Mikhail Faze had failed to provide fresh fun.
+So far, Ray Burrin and Mikhail Faze had failed to provide fresh fun.
 
 Steven Jobs might end up the same.
 

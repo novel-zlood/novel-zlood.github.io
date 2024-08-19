@@ -95,11 +95,11 @@ What kind of mental preparation would be needed to go to Kim Ah-young's hotel?
 
 But Kim Ah-young's eyes sparkled at Lee Hyun-woo's words.
 
-“Mental preparation? So, can you spare some time in Jeju Island?”
+"Mental preparation, you say? Well then, does that mean you can spare time in Jeju Island?"
 
 “Time?”
 
-“Yes, we might have some time to hang out together. You're staying there for 4 nights and 5 days, right?”
+"Yes, it seems we may have some time to spend together. You'll be staying there for five days and four nights, correct?"
 
 The employees of Jungle were split into two groups.
 
@@ -113,9 +113,9 @@ Since it included the weekend, he boldly declared a holiday from December 31st t
 
 Of course, there would be some on duty, but holidays were generally good for people.
 
-“Do you want me to hang out with you for 4 nights and 5 days?”
+“Do you want me to hang out with you for five days and four nights?”
 
-“Isn't it your philosophy to enjoy life after work? Jeju Island is my turf, so I'll guide you around. How about that?”
+"Isn't it part of your philosophy to enjoy life after work? Since Jeju Island is my home ground, I'd be happy to show you around. What do you think?"
 
 “If that's the case, I should accept gratefully.”
 
@@ -171,7 +171,7 @@ Then, after taking Kim Ah-young aside and seemingly persuading her, the middle-a
 
 Instead, as if finding a compromise, Kim Ah-young asked Lee Hyun-woo,
 
-“Is there anyone else who wants to ride in first class? Our secretary wants to swap seats too.”
+"Is there anyone else interested in flying first class? Our secretary is also looking to switch seats."
 
 “Well…”
 
@@ -195,7 +195,7 @@ Before sitting down, Lee Hyun-woo asked Kim Ah-young,
 
 “Do you want the window seat?”
 
-“Up to you.”
+“That's up to you.”
 
 “Then I'll take the window seat.”
 
@@ -225,11 +225,11 @@ It was as if they wanted to hear every conversation between Lee Hyun-woo and Kim
 
 It seemed they had rearranged the seats for this purpose.
 
-“Sorry about this. It looks like our bodyguards asked you to give up your good seats.”
+“I’m sorry about this. It looks like our security team asked you to give up your good seats.”
 
 “There's no such thing as good or bad seats in economy class, and you said you'd treat our employees to something big later.”
 
-Actually, due to the inconvenience caused, Kim Ah-young had decided to cover the breakfast costs for the 4-night, 5-day stay at the Seorabeol Hotel in Jeju Island.
+Actually, due to the inconvenience caused, Kim Ah-young had decided to cover the breakfast costs for the 5-day, 4-night stay at the Seorabeol Hotel in Jeju Island.
 
 It was an excessive compensation, but Lee Hyun-woo didn't stop her.
 
@@ -241,7 +241,7 @@ Of course, there is no such thing as a free lunch.
 
 “This time, you've been so generous that I'll have to use 【Seorabeol Hotel】 every time I go to Jeju Island. By the way, I have something to tell you quietly.”
 
-“Huh? What is it?”
+"Pardon? What's going on?”
 
 “Just a moment.”
 
@@ -267,7 +267,7 @@ As soon as he pressed the play button, a pop song by Celine Dion, which had been
 
 Naturally, the song also filled Kim Ah-young's left ear.
 
-“Wow, what's inside this? Is it an MP3 file?”
+“Wow, what's in this? Is it an MP3 file?”
 
 “That's right.”
 
@@ -317,7 +317,7 @@ Actually, it was a matter of memory capacity.
 
 No matter how hard they tried, they could only make a 32MB MP3 player for now.
 
-“This company that makes it is 【Alpha Cast】, right?”
+“The company that produces it is 【Alpha Cast】, isn't it?”
 
 “Yes, it's not a big company, just one that makes car stereos.”
 
@@ -325,15 +325,15 @@ No matter how hard they tried, they could only make a 32MB MP3 player for now.
 
 “I'd like it to be, but it's still small. But if this becomes a hit, it might become a global company.”
 
-“A hit? Oh, you mean it will be very successful?”
+“A hit? Oh, you mean it’s going to be very successful?”
 
 “Yes, that's right. And I truly believe this company will be very successful. That's why I've invested in it.”
 
-“Then I want to invest too.”
+“Then I’d like to invest as well.”
 
 “Huh?”
 
-“Why? Can't I?”
+“Is it not possible?”
 
 “Well, it's not up to me to permit it. They have to accept it.”
 

@@ -15,7 +15,7 @@ Lee Hyun-woo readily accepted Oh Min-woo's request for a private meeting and sha
 
 "It's about recruiting talent as you mentioned in the last meeting. You wanted us to bring in experts from other universities."
 
-"Already recruited?"
+"Already got one?"
 
 "No, I wanted to know the exact criteria. Can we recruit from foreign universities?"
 
@@ -55,9 +55,7 @@ After saying this to himself, Lee Hyun-woo quickly asked.
 
 "That's why it's good. It triggers my competitive spirit."
 
-Is it because you're the first one in the world to underestimate me?
-
-After thinking this to himself, Lee Hyun-woo looked at him as if to say, "Go ahead and try if you can."
+Lee Hyun-woo looked at him as if to say, 'Go ahead and try if you can.'
 
 "Alright, I got it."
 
@@ -233,19 +231,19 @@ After all, if they kept hiring as they were now, the place would become overcrow
 
 "By the way, I hope there will be more female employees."
 
-"There are. The customer service team."
+"We already have female employees."
 
-"But they're not in this building."
+"But most of them are in External Cooperation team and they're not in this building."
 
 "True. But I'll hire two nurses for the medical room to balance the gender ratio, and I'll also hire trainers for the fitness room."
 
 "Does that mean you'll hire female trainers too?"
 
-"I mean I'll hire more male trainers."
+"I mean, there's gonna be male trainers too."
 
-"So, you're saying you'll also hire female trainers."
+"But, you'll also hire female trainers. Right?"
 
-"Uh... naturally... the customer service team and my secretary, Yoo Jin-young, also need health management."
+"Uh... naturally... our female employees also need health management."
 
 The last part seemed not to be heard well.
 
@@ -253,7 +251,7 @@ Maybe he was already imagining getting trained by a female trainer.
 
 'Are young guys more interested in female trainers?'
 
-In that case, he thought it might be better to hire more female trainers to improve the employees' physical fitness.
+In that case, he thought it might be better to hire more female trainers to motivate the employees' to go to fitness room.
 
 * * *
 
@@ -265,17 +263,11 @@ The next day, Oh Min-woo came again.
 
 It's true.
 
-When this guy and his brother came and asked to extend working hours, it made him pay attention to health, and as a reasonable compromise, he decided to create a medical room and fitness room.
-
-Moreover, he revised the internet job posting the previous day to hire male and female trainers in equal proportions.
-
-Listening to Oh Min-woo, it seemed there would be many employees who prefer to get trained by female trainers.
-
 "Anyway, the reason I came is because I concluded with those two guys yesterday."
 
 "Concluded?"
 
-"Actually, it looks like you need to conclude it, CEO. They said they'll visit you next month in the U.S. and decide whether to join our company."
+"To be exact, you are the one who need to conclude it, CEO. They said they'll visit you next month in the U.S. and decide whether to join our company."
 
 "So, it's like I'm being interviewed by them."
 
@@ -289,7 +281,7 @@ Listening to Oh Min-woo, it seemed there would be many employees who prefer to g
 
 "......!"
 
-"Instead, tell them we'll cover the flight tickets, so they can come anytime."
+"Instead, tell them we'll cover the flight and accommodations, so they can come anytime."
 
 "Yes..."
 
@@ -341,7 +333,7 @@ Lee Hyun-woo had seen it all.
 
 "Yes, that's exactly right, Min-woo."
 
-"Yes, that's me. In that sense, please hire a beautiful female trainer."
+"If you are thankful, please hire a beautiful female trainer."
 
 "Shut up and go work."
 
@@ -351,7 +343,7 @@ Lee Hyun-woo had seen it all.
 
 Shortly after that, the medical room and trainer rooms finally opened.
 
-And that day, the second floor was bustling with employees visiting the medical room even though they weren't sick and those who wanted to receive hard training even if their bodies weren't up for it.
+And that day, the second floor was bustling with employees visiting the medical room even though they weren't sick and those who wanted to receive personalized training even if their bodies weren't up for it.
 
 
 ----

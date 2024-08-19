@@ -19,7 +19,7 @@ He went up to the CEO's office, exchanged a brief greeting with Lee Hyun-woo, an
 
 "It's just that it's different from usual. Should I say the employees seem excited?"
 
-"Ah... that?"
+"Ah... that..."
 
 Lee Hyun-woo started to explain with a gentle smile.
 
@@ -27,9 +27,9 @@ Lee Hyun-woo started to explain with a gentle smile.
 
 "A medical room? And a fitness center?"
 
-As for the medical room, Guseong also has them in each of its subsidiaries.
+As for the medical room, Guseong also has them in each of its office branches.
 
-The fitness center, though under a different name, is provided as a sports center where various exercises from aerobic training to swimming are available.
+Furthermore, one of it's own subsidiary operated a sports center brand nationwide where various exercises from aerobic training to swimming are available, Guseong employee can come to any of them for free.
 
 Lee Hyun-woo, knowing this, continued.
 
@@ -43,7 +43,7 @@ Kim Tae-hyun's face showed a knowing smirk.
 
 "Most of them are single, I suppose?"
 
-"It's harder to find someone married."
+"Somehow it's harder to find someone married."
 
 "I see."
 
@@ -71,7 +71,7 @@ In reality, it seemed like Guseong was also jumping into the new business with a
 
 "So, you're planning to rent out storage space with the surplus servers."
 
-"That's right. But you're in the way again."
+"That's right. I hope you don't mind."
 
 "I welcome it. Especially if Guseong enters the cloud market, we can compete and cooperate."
 
@@ -117,7 +117,7 @@ Credit risk analysis, evaluating customer loan credit, stock trading analysis an
 
 Of course, Jungle doesn't do all of this.
 
-Jungle's cloud service is to design complex algorithms to enable such tasks and provide big data.
+Jungle's cloud service can provide the infrastructure and even simpify complex algorithm to develop such work. So non-IT companies can focus on building their business.
 
 'It's not an exaggeration to say that the birth and growth of Amazoness were together with the American financial sector.'
 
