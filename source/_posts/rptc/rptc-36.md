@@ -177,7 +177,7 @@ Moreover, his pleasant face and deep voice stirred her heart for no reason.
 
 Naturally, from that moment, stories about Lee Hyun-woo began to spread from the desk.
 
-It even reached the ears of Kim Ah-young, the eldest daughter of the chairman of 【Guseong Group】, who was staying at 【Seorabeol Hotel】.
+It even reached the ears of Kim Ah-young, the eldest daughter of the chairman of 【Guseong Group】, who is also the director of 【Seorabeol Hotel】.
 
 The person who conveyed this information was her secretary, Park Min-sook.
 
@@ -185,7 +185,7 @@ The person who conveyed this information was her secretary, Park Min-sook.
 
 “Yes, I heard it from the employees. He’s the CEO of 【Jungle Soft】, a company that’s recently become quite famous.”
 
-“Yes, I’ve heard of it too.”
+“Yes, I’ve heard of him.”
 
 With a curious expression, Kim Ah-young recalled the newspaper article she read this morning.
 
@@ -203,7 +203,7 @@ Thus, the article's nuance, suggesting the birth of a self-made magnate, left a 
 
 “Yes, I’ll make sure of that.”
 
-“Actually, can I meet him in person?”
+“Actually, would it be possible for me to meet him in person?”
 
 “In person?”
 
@@ -215,7 +215,7 @@ However, she had never met a customer personally, making her reaction curious.
 
 Noticing this, Kim Ah-young quickly added,
 
-“We are also a semiconductor company. If my father aims to make our company the best semiconductor company in the world, I need to understand the information and communication sector well.”
+“We are also a semiconductor company. My father aspires to elevate our firm to the pinnacle of the global semiconductor industry, I need to gain thorough understanding of the information and communication sector.”
 
 “Oh…that makes sense.”
 
@@ -251,7 +251,7 @@ Receiving the greeting, Lee Hyun-woo then bowed towards Kim Ah-young.
 
 Seeing the smile on Kim Ah-young's face, Park Min-sook quickly stepped in.
 
-“You are the CEO of 【Jungle Soft】, Mr. Lee Hyun-woo, right?”
+“You are the CEO of 【Jungle Soft】, Mr. Lee Hyun-woo, perchance?”
 
 “Yes, that’s correct.”
 
@@ -277,9 +277,9 @@ Still, there was no reaction.
 
 To be precise, he continued to smile without showing any interest.
 
-“Yes, nice to meet you.”
+“Yes, it is my pleasure to meet you.”
 
-He said this with a voice devoid of any emotion and resumed his conversation with the employee next to him.
+He said this with a very business-like expression and resumed his conversation with the employee next to him.
 
 “Did we receive a call just now?”
 
@@ -329,9 +329,9 @@ Now Lee Hyun-woo was also getting distracted.
 
 So he looked at Kim Ah-young and asked in a low voice.
 
-“Do you have something to say to me…?”
+“Do you have something to discuss perhaps…?”
 
-“No, not at all. We were just passing by.”
+“Not in the slightest. We were just passing by.”
 
 How strange.
 
@@ -339,7 +339,7 @@ She was smiling at first, but her face had suddenly stiffened.
 
 More precisely, it was a face that looked like her pride was hurt.
 
-‘Did she expect to be treated like a conglomerate’s daughter?’
+‘Did she expect to have some special treatment?’
 
 Seeing Kim Ah-young’s company disappear quickly, Lee Hyun-woo tilted his head in confusion.
 

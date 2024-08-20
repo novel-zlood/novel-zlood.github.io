@@ -21,7 +21,7 @@ Lee Hyun-woo, his relaxed expression now showed sign of worry.
 
 “Did you wait outside in the cold? Let’s go up.”
 
-“Oh? Oh.”
+“Oh? Yes.”
 
 The same continued in the CEO's office. After brewing coffee himself and pouring it into a mug, he handed it to Kim Ah-young.
 
@@ -31,11 +31,11 @@ The same continued in the CEO's office. After brewing coffee himself and pouring
 
 Kim Ah-young took the cup he handed her and warmed her hands. But without taking a sip, she urgently asked Lee Hyun-woo.
 
-“You’re coming to our house today, right?”
+“You’re coming to our house today, are you not?”
 
 “Yes, that’s right. I heard the chairman wants to see me.”
 
-“Yes. I was surprised to hear that from my father this morning. I’m curious why he suddenly wants to see you, but I’m a bit worried.”
+“Yes. I was rather surprised to learn of this from my father this morning. I’m curious why he suddenly wants to see you, but I’m concerned.”
 
 “Don’t worry too much. There’s only one reason.”
 
@@ -63,7 +63,7 @@ Seeing this, Lee Hyun-woo shared his opinion.
 
 “I think it’s because there’s a strong desire to hold and control information. There’s a saying in the business world: Guseong’s information is on par with the National Intelligence Service.”
 
-“Is there really such a saying?”
+“Is there truly such a saying?”
 
 “Of course. It’s well-known among the public and even journalists.”
 
@@ -123,7 +123,7 @@ Feeling pleased but holding back a smile, she said,
 
 “I might, or I might not. But if I do tell him, it’ll be really bothersome.”
 
-“Right. And he might not like it very much. So, Hyun-woo….”
+“Indeed. And he might not like it very much. So, Hyun-woo….”
 
 At this point, she seemed to have made up her mind and took a deep breath before continuing.
 

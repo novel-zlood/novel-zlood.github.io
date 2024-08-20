@@ -31,8 +31,6 @@ Their somewhat twisted mentality surfaced as usual, and it began when Kim Tae-hy
 
 They spoke in a foreign language that Lee Hyun-woo couldn't hear.
 
-"The market economy is good. Anyone can make a lot of money."
-
 „Die Marktwirtschaft ist echt gut. Jeder kann ordentlich Kohle machen.“ (The market economy is really good. Anyone can make a lot of money.)
 
 „Ist schon krasser Kapitalismus, oder?“ (It's vulgar capital, isn't it?)

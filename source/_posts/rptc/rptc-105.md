@@ -163,7 +163,7 @@ The title was "Love Forgiven by Heaven."
 
 Lee Hyun-woo contacted Kim Yoon-seon to confirm if he might have missed something.
 
-(But it’s good? Is it a man’s song?)
+(But it’s good? Is a man singing it?)
 
 Her evaluation was positive.
 

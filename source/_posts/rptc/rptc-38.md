@@ -103,7 +103,7 @@ So, she answered Kim Ah-young's continued questions honestly.
 
 "Huh? How did you know?"
 
-"It's our hotel. Jungle Soft was the only company that booked the business room at that time."
+"It's our hotel. Jungle Soft is the only company to have reserved the business room at this time."
 
 "I see."
 
@@ -123,7 +123,7 @@ No matter how complicated, she would understand it all.
 
 Still, not knowing, she said it like this.
 
-"Do you think employees from American companies like E-base, Amazones, and Yahoo don't do business with our group? I've experienced it and studied it separately."
+"Do you think employees from American companies like E-base, Amazones, and Yaho didn't do business with us? I've experienced it and learned about it separately."
 
 "It looks like Jungle is planning to launch an advertisement exposure business on web pages. They proposed it to me."
 
@@ -131,7 +131,7 @@ Still, not knowing, she said it like this.
 
 "With the increasing number of people using Jungle these days, I think it's an effective advertisement."
 
-"Yeah. That sounds good."
+"Yeah. That sounds like a good plan."
 
 At Kim Ah-young's last words, Choi Sun-hwa felt like a cold bucket of water was poured on her head.
 
@@ -147,15 +147,15 @@ Choi Sun-hwa is not good at hiding things.
 
 Even now, she was about to ask Kim Ah-young, but the other party spoke first.
 
-"Should we give it a try too?"
+"Shall we give it a go as well?"
 
 "What?"
 
-"Internet advertisement. I'm interested too."
+"Internet advertisement. I'm intrigued."
 
 "Aren't you talking about Seorabeol Hotel? Is it necessary?"
 
-"As soon as I became a registered director, I felt we needed some change."
+"The moment I became a registered director, I felt we needed some change."
 
 No matter how much she thought about it, Choi Sun-hwa judged that there was nothing to gain by advertising Seorabeol Hotel on the internet.
 

@@ -21,7 +21,7 @@ Of course, the reporters wouldn't just stand still.
 
 "Do you have any comments regarding the investment you received in America..."
 
-"Ay, you guys are so annoying! I'll handle it, I'll! Anyone who wants an interview, I'll do it!"
+"Ay, you guys are so annoying! I'll handle it, I will! Anyone who wants an interview, I'll do it!"
 
 At this point, Oh Min-woo, whose voice was as loud as if it had been boiled in a cauldron, stepped forward.
 
@@ -57,7 +57,7 @@ His younger brother, Lee Jung-woo, responded with a laugh.
 
 Not wanting to explain the origin of the term "attention seeker," Lee Hyun-woo quickly changed the subject.
 
-"Yeah, right. Oh, should we have greeted Kim Ah-young?"
+"Yeah, right. Oh, should we have said good bye to Kim Ah-young?"
 
 "Given the atmosphere earlier, it would've just been fodder for the reporters."
 

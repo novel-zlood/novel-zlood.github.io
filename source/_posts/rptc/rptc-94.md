@@ -29,7 +29,7 @@ Honestly, there were a few things she wanted to ask.
 
 "Hmm?"
 
-"It's all good, but is a 35-hour workweek during weekdays okay?"
+"It sounds promising, but would a 35-hour workweek feasible from a business perspective?
 
 "There's a reason for it."
 
@@ -37,9 +37,9 @@ Honestly, there were a few things she wanted to ask.
 
 "We're not a large corporation yet. Because of that, we can't offer high salaries. Saying we offer double the salary of a public servant is a bit much, isn't it?"
 
-"Really? So you're saying you offer around 60?"
+"Is that so? Are you suggesting that you offer approximately 90 Million?"
 
-"Yes, it's becoming more realistic since last month. Even so, we offer a bit over 100, so we reduced the working hours."
+"Yes, it's becoming more realistic since last month. We started to offer a bit less than 100, so we conmpensate with reduced working hours."
 
 The average annual salary in large corporations was around 160 million won.
 
@@ -61,7 +61,7 @@ Next year, it was certain to be between 170 million and 180 million won.
 
 Whether blinded by love or not, Kim Ah-young found Lee Hyun-woo's words 100% reasonable.
 
-"Should I also create a work-life balance environment? Not sure if it's possible in the hotel industry."
+"Should I also cultivate a work-life balance environment? Although I'm uncertain if it's possible in the hotel industry."
 
 Lee Hyun-woo smiled and shrugged, indicating that was all the advice he could offer.
 
@@ -79,7 +79,7 @@ If they didn't change, the era of conflict and confrontation would continue, so 
 
 "I don't know about other things, but our country joined the OECD. The media is touting it as a social club of advanced countries. Economically, even if we're not an advanced country, we're getting closer. But we need to look back and see if we have established a labor-management relationship that matches that. Don't you think?"
 
-"Yeah, I think you're right."
+"Yeah, I am of the same opinion."
 
 Had she ever agreed with someone else's words without her own opinion?
 

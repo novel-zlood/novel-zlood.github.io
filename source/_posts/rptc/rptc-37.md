@@ -21,7 +21,7 @@ The person who was also in a hurry to enter recognized Kim Ah-young and immediat
 
 "Ah-young, it's been a while."
 
-"Yeah, it has. What brings you here?"
+"Indeed, it has. What brings you here?"
 
 "I just have some business to attend to."
 

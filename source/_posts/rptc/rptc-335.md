@@ -21,17 +21,19 @@ Each time he wanted to give up, Lee Hyun-woo encouraged him.
 
 In truth, Lee Hyun-woo, who had experienced artificial intelligence defeating Go players in his previous life, spoke to his brother with conviction.
 
-Unaware of this, Lee Jung-woo got back on his feet and continued his research, ultimately creating 'ComBrain,' which mimicked human brain neurons.
+Unaware of this, Lee Jung-woo got back on his feet and continued his research, ultimately creating 'Komnoe', which mimicked human brain neurons.
 
-As the name suggests, ComBrain is a combination of the computer's 'com' and the human brain's 'brain.'
+The English version of this name is ComBrain.
 
-This ComBrain led neural network-based artificial intelligence research through deep learning, eventually making it possible to compete with Go players.
+As the name suggests, Komnoe is a combination of the computer's 'com' and the human brain's 'brain'.
+
+Komnoe is the product of neural network-based artificial intelligence research through deep learning, eventually making it possible to compete with Go players.
 
 However, it wasn't possible to compete with top-tier Go players right away.
 
-ComBrain still needed to learn more.
+Komnoe still needed to learn more.
 
-As it repeatedly won against mid-level Go players, ComBrain continued to evolve, and finally, the day came when it could aim higher.
+As it repeatedly won against mid-level Go players, Komnoe continued to evolve, and finally, the day came when it could aim higher.
 
 "Hyung, this guy can finally compete with decent masters."
 
@@ -49,7 +51,7 @@ So, as soon as he parted ways with his brother, he instructed his secretaries to
 
 'I need to persuade them in person, not through someone else.'
 
-With this thought, he soon met with one of the nine-dan players and requested a match with ComBrain.
+With this thought, he soon met with one of the nine-dan players and requested a match with Komnoe.
 
 He was flatly rejected.
 
@@ -79,7 +81,7 @@ It was Lee Sam-suk, a relatively young Go player who seemed open-minded, making 
 
 Of course, inwardly, his expectations grew.
 
-The two players he met before had come out without knowing much. They politely refused Lee Jung-woo's request to compete with ComBrain.
+The two players he met before had come out without knowing much. They politely refused Lee Jung-woo's request to compete with Komnoe.
 
 This time was different. Lee Sam-suk knew that Lee Jung-woo was personally meeting Go players and came out.
 
@@ -89,7 +91,7 @@ Doesn't that mean he's somewhat decided?
 
 Encouraging himself this way, he went out on the promised day, showing as much respect as possible, and said to him,
 
-"Sir, please accept a match with 'ComBrain.'"
+"Sir, please accept a match with Komnoe"
 
 Then Lee Sam-suk was silent for 1 or 2 seconds, took a sip of tea, and asked,
 
@@ -169,7 +171,7 @@ Despite seeing Lee Sam-suk's disappointed expression, Lee Jung-woo calmly spoke.
 
 Suddenly, there was nothing more to say. In fact, Lee Jung-woo's words were exactly what he had been thinking.
 
-"So, we need to focus on marketing first. I promise, I'll flood the portals and broadcasts with stories about you and ComBrain."
+"So, we need to focus on marketing first. I promise, I'll flood the portals and broadcasts with stories about you and Komnoe."
 
 Though he was pouring more passion than courtesy into his words, they were the most exciting words Lee Sam-suk had heard.
 
@@ -205,7 +207,7 @@ So he said,
 
 "I'll do it. The match."
 
-"Really? You'll really compete against ComBrain?"
+"Really? You'll really compete against Komnoe?"
 
 "Yes, that's right. If you keep your promises, I believe I should take the initiative."
 

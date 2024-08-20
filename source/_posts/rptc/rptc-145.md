@@ -67,7 +67,7 @@ Park Min-sook briefly explained the series of processes derived from the busines
 
 Additional questions came in throughout the explanation, but she detailed them to the best of her knowledge.
 
-"Although the amount isn't very large, the search engine business receives regular monthly payments, making it difficult to predict how much more profit will be gained. And as more companies inquire, it is certain that they have pioneered a blue ocean."
+"Although the amount isn't very large, the search engine business receives regular monthly payments, making it easier to predict how much more profit will be gained. And as more companies inquire, it is certain that they have pioneered a blue ocean."
 
 "Indeed. The world is wide, and there are many companies."
 
@@ -189,8 +189,6 @@ Even though Manager Park let them go alone, he had already instructed bodyguard 
 
 Following the Chairman’s order, Jung Jin-sung was keeping an eye on Lee Hyun-woo and Kim Ah-young from a distance at the coffee shop they went into.
 
-‘Is that guy a eunuch or what?’
-
 Jung Jin-sung would do his best to prevent them from being alone.
 
 Including using force.
@@ -219,11 +217,9 @@ Soon after, Kim Ah-young approached and said to Jung Jin-sung,
 
 "Oh... yes, yes... got it."
 
-She must have noticed he had been following them from earlier.
+He must have noticed they had been followed from earlier.
 
 As expected, the two returned to their lodging without any "incident."
-
-Jung Jin-sung evaluated Lee Hyun-woo as a eunuch again as he walked to the car and started the engine.
 
 The only improvement was that the two sat together in the back seat.
 
@@ -237,11 +233,9 @@ Even with the voice dripping with ‘sweetness’ from Kim Ah-young,
 
 "Are you really moving the headquarters to Jeju Island?"
 
-It annoys him for no reason.
+It annoys him for some reason.
 
-Though she’s not his woman, why does he feel so bad?
-
-On the other hand, Lee Hyun-woo, aware of Jung Jin-sung in the front seat, said,
+On the other hand, Lee Hyun-woo, taking a glance at Jung Jin-sung in the front seat, said,
 
 "Yeah, I’m going to move."
 

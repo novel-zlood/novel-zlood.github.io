@@ -229,11 +229,11 @@ Hyun-woo Lee asked directly, so Dong-woon Shin had no choice but to nod.
 
 "It's okay. Speak up. These are all trustworthy people."
 
-"1... 1 billion..."
+"1... 100 Million..."
 
-"1 billion won?"
+"100 Million won?"
 
-"1 billion dollars."
+"100 Million dollars."
 
 "......!"
 

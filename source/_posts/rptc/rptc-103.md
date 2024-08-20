@@ -139,7 +139,7 @@ Indeed, during the meal, the daughters showed various interests.
 
 "I don't know about other things, but 【Jungle Music】 is really popular among my classmates. Many of them use it more because of the event where they get 300 coins for a 10,000 won recharge."
 
-"Hyun-woo, I can't eat. Stop it."
+"Na-yoon, I can't eat. Stop it."
 
 Fortunately, Kim Tae-hyun intervened and stopped them.
 

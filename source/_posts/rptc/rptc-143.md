@@ -9,7 +9,7 @@ Meanwhile, at Kim Ah-young's accommodation, a brief meeting with Park Min-sook w
 
 "I thought Jungle's value was impressive, but I was really surprised when Wall Street offered $100 million."
 
-"I didn't expect it either. But if you look at Jungle's content right now, it's only producing massive results in a short period. There's even talk that Korea is changing because of Jungle these days."
+"I didn't expect it either. But if you look at Jungle's growth right now, it keeps producing massive results in a short period. There's even talk that Korea is changing because of Jungle these days."
 
 Kim Ah-young's words, filled with affection for Lee Hyun-woo, were somewhat exaggerated.
 

@@ -61,7 +61,7 @@ This is what is called a fast-follower strategy.
 
 This means making a living through royalties.
 
-“And I’m going to prepare the MP3 phone you just mentioned right away. Then I have to pay another fee for the core technology, so the president will be happy." 
+“And I’m going to prepare the MP3 phone you just mentioned right away. Then I have to pay another fee for the core technology of our own MP3 Player, so the president will be happy." 
 
 "In that sense, thank you.”
 
@@ -87,7 +87,7 @@ On the way back, Kim Tae-hyun reflected on Lee Hyun-woo again.
 
 I never imagined he would bring up the MP3 player today.
 
-I thought he would hold back until it sold a lot.
+I thought he would hold back until it sold a lot, and use it as leverage in negotiation.
 
 ‘He seems to know it’s more foolish to do that.’
 
@@ -101,7 +101,7 @@ If it’s a big company, they might have a chance, but a small company cannot be
 
 Because they use the most competent lawyers in the country.
 
-Even if the opponent is a big company, legal disputes can be dragged endlessy, which drain money and energy.
+Even if the opponent is a big company, legal disputes can be dragged endlessy, which drain the other party's money and energy.
 
 Although he knew this wasn’t morally right, it was better than being left behind.
 
@@ -159,7 +159,7 @@ Her face flushed slightly.
 
 If [Guseong] had always been upright, it wouldn’t be embarrassing, but they had often done what Lee Hyun-woo mentioned.
 
-“It’s embarrassing.”
+“It’s rather embarrassing.”
 
 “There’s nothing to be embarrassed about. You didn’t do it. And most companies have grown that way. I hope the day will come when copyrights and patents are protected, but that day is not today.”
 
@@ -199,7 +199,7 @@ For a moment, Kim Ah-young’s heart fluttered at Lee Hyun-woo’s words.
 
 The words she had in her heart kept lingering.
 
-‘I feel like I can live like that with you.’
+'I feel like I could envision such live with you.'
 
 However, she made eye contact with secretary Park Min-sook sitting across from her.
 

@@ -31,11 +31,11 @@ Do they really enjoy it that much?
 
 Kim Ah-young, who was sitting next to him, seemed to feel the same way.
 
-"The employees seem to really like it."
+"The employees seem to be enjoying themselves."
 
 "Of course. It’s a whopping $100 million, and it’s for expanding into the U.S."
 
-"Is that so."
+"Indeed."
 
 While talking to Lee Hyun-woo, Kim Ah-young regretted not being more proactive.
 
@@ -45,17 +45,17 @@ If she had been a bit bolder, couldn’t 【Guseong】 have also invested in the
 
 Should she consider it fortunate?
 
-"Oh, by the way, do you have any servers in 【Guseong】's U.S. branch?"
+"Oh, by the way, does 【Guseong】's U.S. branch sell servers?"
 
 "Servers? I’m not sure, why?"
 
-"Of course, to make use of them. It seems better to use familiar 【Guseong】 servers."
+"Of course, to make use of them. It seems better to run 【Jungle】's tech on top of the already familiar 【Guseong】 servers. We can decrease incompatibility issues."
 
 "Ah…"
 
 Even with the launch of 【Jungle USA】 in America, it seemed they wanted to maintain a connection with 【Guseong】.
 
-Interestingly, there was a response from the seat behind them.
+Interestingly, ther response was coming from the seat behind them.
 
 "Don't worry. We will find servers somehow."
 
@@ -67,7 +67,7 @@ She also regretted going without any achievements.
 
 She regretted not stressing enough that being late could lead to regret.
 
-Still, she considered using 【Guseong】's servers to be a decent achievement.
+Still, she considered the sale of 【Guseong】's servers to be a decent compromise.
 
 Considering the growth pace that 【Jungle】 had shown so far, it was unpredictable how quickly 【Jungle USA】 would establish itself in the U.S.
 

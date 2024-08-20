@@ -99,7 +99,7 @@ As soon as the first in-house club, the 'Jungle Band,' was started, a huge numbe
 
 * * *
 
-"What, Yucheol, you too?"
+"What, Yoo-cheol, you too?"
 
 Since it was after work, Lee Hyun-woo called by name instead of title.
 
@@ -111,7 +111,7 @@ That’s why the MP3 player was created.
 
 "Guitar."
 
-"Really? I didn't know that. But no matter how much you like it, you still have to pass the competition."
+"Really? I didn't know that. But no matter how much you like it, you still have to pass the audition."
 
 "Huh? Really?"
 
