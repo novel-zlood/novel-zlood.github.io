@@ -7,7 +7,7 @@ tags:
 
 While Lee Hyun-woo and Kim Ah-young were talking, Kim Ah-jin approached them.
 
-Perhaps because she worked at a fashion company, she was neatly and elegantly dressed. Holding up a vinyl bag, she opened her pretty mouth to Lee Hyun-woo.
+Perhaps because she worked at a fashion company, she was neatly and elegantly dressed. Holding up a vinyl bag, she told him.
 
 “Oppa, I bought this.”
 

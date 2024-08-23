@@ -79,11 +79,11 @@ Jang Hee-jin said in a pitying voice while looking at her daughter, but Lee Hyun
 
 "I will change all the inconveniences. Don't worry, Mother-in-law."
 
-"Yes, yes. I trust only you."
+"Yes, yes. I can trust you."
 
 During dinner, they briefly reported how they spent their time in Hawaii, and when the sisters-in-law said they wanted to see their nieces or nephews soon, Kim Ah-young blushed, and Lee Hyun-woo responded.
 
-"Then the first child will be taken care of by Ah-young's sister, and the second by Na-yoon's sister."
+"Then the first child will be taken care of by aunt Ah-jin, and the second by aunt Na-yoon ."
 
 "What about Unnie?"
 
@@ -97,7 +97,7 @@ That was Kim Ah-jin.
 
 Since she was only three years apart from Kim Ah-young, she should have had a boyfriend by now,
 
-"In the past life, it would have been a story where the family arranged the marriage."
+"In the past life, it would have been the case of the family arranged her marriage."
 
 Although Kim Ah-young didn't marry into an ordinary family, Lee Hyun-woo knew that Kim Ah-jin married into a media family.
 
@@ -105,7 +105,7 @@ Surprisingly, during tea time, they heard that she was seeing an ordinary man.
 
 Of course, this was revealed when Kim Na-yoon couldn't keep it to herself while the elders and Kim Tae-hyun's couple were away,
 
-"Hyungbu might know him too."
+"Brother-in-law might know him too."
 
 Kim Na-yoon tried to reveal more.
 
