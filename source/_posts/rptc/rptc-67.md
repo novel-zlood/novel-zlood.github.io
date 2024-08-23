@@ -221,7 +221,7 @@ Lee Hyun-woo gestured to her to wait a moment as he finished his call with Kim Y
 
 (Okay, I’ll make sure to be there.)
 
-After hanging up, Lee Hyun-woo greeted Kim Ah-young playfully.
+After hanging up, Lee Hyun-woo saw Kim Ah-young approaching and greeted her playfully.
 
 “Welcome!”
 
@@ -237,7 +237,7 @@ After hanging up, Lee Hyun-woo greeted Kim Ah-young playfully.
 
 “That was just me talking. Would a star really come here to sing?”
 
-“Maybe? Anyway, looks like a lot of people will come that day.”
+“Who knows. Anyway, looks like a lot of people will come that day.”
 
 “Probably? But do you have something on your mind?”
 
@@ -245,7 +245,7 @@ After hanging up, Lee Hyun-woo greeted Kim Ah-young playfully.
 
 “You just seem a bit off today, unlike usual.”
 
-“No, nothing’s wrong.”
+“Nothing’s particularly wrong.”
 
 She forced a smile, but it looked a bit awkward.
 

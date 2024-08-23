@@ -141,7 +141,7 @@ When there was no answer, he emphasized again.
 
 "......"
 
-"Do you think it won't happen? If you think you don't think about work at home these days, I'll admit my thoughts are unfounded."
+"Do you think it won't happen? If you don't think about work at home these days, I'll admit my thoughts are unfounded."
 
 Their eyes momentarily clouded.
 
@@ -345,7 +345,7 @@ He suddenly stopped walking and extended his hand forward.
 
 "Raindrops are falling."
 
-"Really?"
+"Is that so?"
 
 "Yeah, let's go quickly."
 

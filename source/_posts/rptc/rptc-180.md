@@ -97,7 +97,7 @@ She skipped a lot in between.
 
 That's why she stuttered, but Lee Hyun-woo nodded.
 
-"So, it's my brother's turn next? Of course, there's an order to things."
+"So, it's your brother's turn first? Of course, there's an order to things."
 
 "Yes. Waiting is fine, but I'm worried your parents might be persuaded by the matchmakers."
 
@@ -227,9 +227,9 @@ Lee Hyun-woo turned his gaze from his brother and spoke again.
 
 "Really? That must have cost a lot."
 
-"Indeed. Isn't that place expensive? Then you?"
+"Indeed. Isn't that place expensive? Is that a burden for you?"
 
-"I only received and haven't given anything yet, so I feel sorry."
+"We only received and haven't given anything yet, so I feel sorry."
 
 "No, Hyun-woo treats me so well. I received so much I couldn't handle it. So I planned that event with Jung-woo. Oh, I'm sorry for not telling you then. It was hard to explain our relationship."
 

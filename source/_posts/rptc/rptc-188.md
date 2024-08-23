@@ -169,8 +169,6 @@ Lee Hyun-woo awkwardly laughed, and while cutting her steak, Kim Ah-young recall
 
 - If you try to hold on to a man too tightly, he'll try to break away. Sometimes, you need to let go generously. Then he won't hide or lie about things.
 
-Here, ‘things’ referred to enjoying nightlife or cheating.
-
 Park Min-sook had said this because it was a bit awkward to mention it directly, and Kim Ah-young, who understood it at once, decided to let Lee Hyun-woo go today.
 
 And since she had made up her mind, she quickly changed the subject to the U.S. without dragging on the same topic.

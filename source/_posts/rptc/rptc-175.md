@@ -167,7 +167,7 @@ Just seeing his expansion to Japan and the U.S. was proof.
 
 As an heir to a large group, he didn't want to raise a competitor.
 
-Last year, Lee Hyun-woo and 【Jungle】 were at a size he could handle, but now it seemed like they might swallow him instead.
+Last year, Lee Hyun-woo and 【Jungle】 were at a size he could handle, but now it seemed like he might swallow them instead.
 
 "Instead, we can leverage the field that 【Jungle】 pioneered. As long as we don't overdo it."
 

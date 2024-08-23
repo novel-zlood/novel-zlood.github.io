@@ -129,7 +129,7 @@ So she said,
 
 (For what?)
 
-“Just… you always do well for me.”
+“Just… you always treat me well.”
 
 (Haha, you’ve become quite sappy.)
 

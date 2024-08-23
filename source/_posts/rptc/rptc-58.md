@@ -19,7 +19,7 @@ Seeing them lightly shaking their bodies and talking, he wondered if they would 
 
 It was then.
 
-"Lee Hyun-woo, I'm here."
+"Hyun-woo, I'm here."
 
 Kim Ah-young appeared.
 
@@ -53,7 +53,7 @@ Hearing the words "younger brother's friends," "booking," "bored," and "good tha
 
 Ultimately, she smiled brightly.
 
-"Actually, I can't dance either."
+"I actually can't dance either."
 
 "But where is your bodyguard?"
 
@@ -73,9 +73,7 @@ Will the love between the chaebol daughter Kim Ah-young and the bodyguard Jung J
 
 'Hopefully not.'
 
-Strangely, this was the end of his curiosity.
-
-Although he couldn't explain the reason exactly, he hoped the two wouldn't end up together.
+Strangely, although he couldn't explain the reason exactly, he hoped the two wouldn't end up together.
 
 But relationships between men and women are unpredictable.
 
@@ -83,7 +81,7 @@ Isn't the proof right there with Oh Min-woo and the two women they didn't know a
 
 "They're having a good time."
 
-"Huh?"
+"Who do you mean?"
 
 "Oh, my younger brother's friends. I'm glad they seem to be hitting it off with those women."
 
@@ -273,7 +271,7 @@ But after hearing everything, Kim Ah-young's question took a different direction
 
 "So, will it be faster if the ADSL mentioned in Nostradamus's blog is applied?"
 
-"I believe it will be 100% faster."
+"I believe it will be at least 100% faster."
 
 "Listening to your conversation makes me curious about who this beautiful friend of yours is. It feels like she knows about Nostradamus's blog."
 
@@ -285,7 +283,7 @@ Oh Min-woo asked again.
 
 "May I ask what you do…? Do you work in this field?"
 
-"No, not really. Actually, I work at a hotel."
+"No, not really. I actually work at a hotel."
 
 "A hotel? Which one?"
 

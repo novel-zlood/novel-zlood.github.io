@@ -365,7 +365,7 @@ So, when Lee Jung-woo asked,
 
 She smiled and asked,
 
-"Do you have any gift recommendations for Parents' Day that I could give to Hyun-woo's parents?"
+"Do you have any gift recommendations for Parents' Day that I could give to your parents?"
 
 
 ----

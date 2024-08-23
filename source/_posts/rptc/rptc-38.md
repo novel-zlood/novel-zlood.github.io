@@ -153,7 +153,7 @@ Even now, she was about to ask Kim Ah-young, but the other party spoke first.
 
 "Internet advertisement. I'm intrigued."
 
-"Aren't you talking about Seorabeol Hotel? Is it necessary?"
+"Are you talking about Seorabeol Hotel? Is it necessary?"
 
 "The moment I became a registered director, I felt we needed some change."
 

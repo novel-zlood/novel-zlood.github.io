@@ -263,7 +263,7 @@ Even now, it's the same.
 
 Lee Hyun-woo shook his head as if he couldn't believe it.
 
-"Honestly, in my previous life, I might have felt inferior or hurt my pride."
+'Honestly, in my previous life, I might have felt inferior or hurt my pride.'
 
 So what had changed for Lee Hyun-woo now?
 
@@ -307,7 +307,7 @@ At that time, Kim Sung-hee also visited her brother after a long time.
 
 And she said,
 
-"Ah-young is really clever, brother."
+"Ah-young is really clever, Oppa."
 
 "Did something happen?"
 

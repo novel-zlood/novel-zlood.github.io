@@ -15,7 +15,7 @@ With an involuntary smile, Lee Jung-woo spoke.
 
 "What is it?"
 
-"An older brother's girlfriend."
+"Older brother's girlfriend."
 
 It seemed a bit much to call her a daughter-in-law, so he softened the statement slightly.
 
@@ -25,7 +25,7 @@ Then she reacted without hesitation.
 
 It was a clear acknowledgment that she was indeed Lee Hyun-woo's girlfriend.
 
-"Still, the director... Ah-young, what should I call you?"
+"Still, director... Ah-young, what should I call you?"
 
 "Call me whatever you feel comfortable with."
 
@@ -347,7 +347,7 @@ After confirming he was far from the room, he spoke softly.
 
 "How did this happen...?"
 
-"It was too sudden, right? Sorry for not discussing it..."
+"Was it too sudden? Sorry for not discussing it..."
 
 "No, why apologize? I'm grateful."
 
