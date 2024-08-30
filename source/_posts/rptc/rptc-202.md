@@ -111,7 +111,7 @@ Since the date was approaching, he was trying to review as many as possible.
 
 ‘I hope many good companies come this time.’
 
-Sohn Jung-woo already mentioned he was planning to set up a fund.
+Son Jung-yi already mentioned he was planning to set up a fund.
 
 He also said he would make a significant investment at this meeting.
 

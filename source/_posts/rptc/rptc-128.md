@@ -269,7 +269,7 @@ Would he really be able to leave everything behind after achieving great success
 
 That evening.
 
-As soon as she arrived, Kim Ah-young moved to a hotel in Tokyo for business cooperation, while Lee Hyun-woo and his subordinates checked various things for their meeting with Sohn Jung-ui the next day.
+As soon as she arrived, Kim Ah-young moved to a hotel in Tokyo for business cooperation, while Lee Hyun-woo and his subordinates checked various things for their meeting with Son Jung-yi the next day.
 
 When Kim Ah-young returned, it was nine o'clock at night.
 
