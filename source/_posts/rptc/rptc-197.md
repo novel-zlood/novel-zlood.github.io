@@ -75,13 +75,13 @@ While eating, hopeful predictions were being exchanged as if they were already f
 
 “No way, that's too much.”
 
-“No, it's possible. Didn't Jungle Japan and Jungle USA say they were preparing for IPOs? They also hold shares in our company.”
+“No, it's possible. Didn't Jungle Japan and Jungle USA say they were preparing for IPOs? Our company also had shared in those companies.”
 
 “That's right.”
 
 “Given the economic scale, those two will raise a tremendous amount of capital, right?”
 
-“Of course. And if it's known that our company holds shares, the value of Jungle, which is no different from the headquarters... can you even calculate it?”
+“Of course. And if it's known that our company holds shares, the value of Jungle, which is practically the HQ... can you even calculate it?”
 
 “Whatever you imagine, it will be more than that.”
 
