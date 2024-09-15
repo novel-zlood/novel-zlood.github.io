@@ -128,6 +128,16 @@ date: 2024-07-06 09:44:44
 [Chapter 118](/taghe/taghe-118/)
 [Chapter 119](/taghe/taghe-119/)
 [Chapter 120](/taghe/taghe-120/)
+[Chapter 121](/taghe/taghe-121/)
+[Chapter 122](/taghe/taghe-122/)
+[Chapter 123](/taghe/taghe-123/)
+[Chapter 124](/taghe/taghe-124/)
+[Chapter 125](/taghe/taghe-125/)
+[Chapter 126](/taghe/taghe-126/)
+[Chapter 127](/taghe/taghe-127/)
+[Chapter 128](/taghe/taghe-128/)
+[Chapter 129](/taghe/taghe-129/)
+[Chapter 130](/taghe/taghe-130/)
 
 
 ## Update Logs
@@ -135,8 +145,8 @@ date: 2024-07-06 09:44:44
 - 2024-07-31: Posted the missing chapter 80.
 
 
-<!-- for i in {111..120}; do echo "[Chapter $i](/taghe/taghe-$i/)"; done -->
-<!-- for i in {111..120}; do hexo new taghe "taghe-$i"; done -->
+<!-- for i in {121..130}; do echo "[Chapter $i](/taghe/taghe-$i/)"; done -->
+<!-- for i in {121..130}; do hexo new taghe "taghe-$i"; done -->
 ----
 
 ## Help continue this series:
