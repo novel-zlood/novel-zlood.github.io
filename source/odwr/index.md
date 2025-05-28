@@ -28,9 +28,19 @@ date: 2024-08-05 11:10:54
 [Chapter 18](/odwr/odwr-18/)
 [Chapter 19](/odwr/odwr-19/)
 [Chapter 20](/odwr/odwr-20/)
+[Chapter 21](/odwr/odwr-21/)
+[Chapter 22](/odwr/odwr-22/)
+[Chapter 23](/odwr/odwr-23/)
+[Chapter 24](/odwr/odwr-24/)
+[Chapter 25](/odwr/odwr-25/)
+[Chapter 26](/odwr/odwr-26/)
+[Chapter 27](/odwr/odwr-27/)
+[Chapter 28](/odwr/odwr-28/)
+[Chapter 29](/odwr/odwr-29/)
+[Chapter 30](/odwr/odwr-30/)
 
-<!-- for i in {1..20}; do echo "[Chapter $i](/odwr/odwr-$i/)"; done -->
-<!-- for i in {1..20}; do hexo new odwr "odwr $i"; done -->
+<!-- for i in {21..30}; do echo "[Chapter $i](/odwr/odwr-$i/)"; done -->
+<!-- for i in {21..30}; do hexo new odwr "odwr $i"; done -->
 
 ----
 
