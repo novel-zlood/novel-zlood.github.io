@@ -5,7 +5,7 @@ tags:
 ---
 
 
-Episode 7. The Second Child is Even More Suspicious (2)
+# Episode 7. The Second Child is Even More Suspicious (2)
 
 After finishing the first visitation with their second daughter, Kang Dae-oh, who returned to the hospital room, explained various things he had been additionally informed about at the hospital.
 
