@@ -1,338 +1,313 @@
 ---
 title: odwr 28
-date: 2025-05-28 20:54:41
+date: 2025-05-28 21:05:11
 tags:
 ---
 
-# Episode 1. The Eldest Daughter is Suspicious (1)
 
-If you ask what the biggest problem in South Korea is, nine out of ten people would probably answer this way.
+# Episode 10. Object of Admiration (1)
 
-The exponential decline in birth rate.
+Not long after the first birthday party of Kang Yebin, Kang Dae-oh and Min Seung-yeon’s second daughter, ended.
 
-Kang Dae-oh had always thought it was amazing to have a child at a time when even getting married was difficult.
+The day Kang Yera went to kindergarten for the first time had arrived.
 
-But surely not.
+“Yera! Are you all ready?”
 
-Kang Dae-oh himself never expected that he would be the protagonist who did both of those things.
+In response to her mom’s question, Kang Yera showed her kindergarten bag that she was carrying and replied with an excited voice.
 
-“Is Min Seung-yeon’s guardian here?”
+“Yes! All we have to do is leave now. Are you taking me, Mom?”
 
-“Yes, yes!”
+“No. Mom can’t go because I have to clean up Yebin’s poop and feed her. Dad will take our Yera to kindergarten on his way to work. Right, Yera’s dad?”
 
-It seemed like less than 20 minutes had passed since his heavily pregnant wife went into the operating room.
+Perhaps it was thanks to the heavy drinking session he had with his friends last night.
 
-His name was already being called.
+As a result, Kang Dae-oh still had a headache.
 
-The nurse waiting at the entrance of the nursery smiled brightly and said to Kang Dae-oh.
+But he couldn’t not go to work.
 
-“Congratulations. It’s a beautiful princess, isn’t it?”
+Even if it was just to earn money for his cute daughters’ formula and diapers, Kang Dae-oh forced himself out of bed and hurried to get ready to leave.
 
-“Already…? Is the surgery over?”
+Min Seung-yeon glared at Kang Dae-oh and asked.
 
-“Yes.”
+“Are you going out without washing up?”
 
-“It finished incredibly quickly. In dramas, it seems to take a long time.”
+“I was thinking I could just wash up at the cafe......”
 
-“Induced labor can take 10, 12 hours. But C-sections finish quickly. It only takes about 10 minutes.”
+“Today is the first day you’re meeting the principal and teachers at the kindergarten Yera will attend. And you’re going to go looking like that?”
 
-“Ah… I see.”
+“......”
 
-The nurse opened the nursery entrance door and gestured for Kang Dae-oh to come inside.
+First impressions are important in whatever you do.
 
-“Come and see the baby.”
+He couldn’t give the impression that Kang Yera’s dad was messy, so Kang Dae-oh walked to the bathroom without a word.
 
-“Ah, I understand.”
+After quickly washing up, he came out with Kang Yera, who was waiting.
 
-Late, a wave of tension washed over him.
+The distance between the kindergarten and their home wasn't so far that they had to drive, but since he was also going to work, Kang Dae-oh immediately started the car.
 
-There would be no parent who wouldn't tremble at the moment of meeting their child for the first time.
+Kang Yera took her seat next to him.
 
-With a tense face, slowly, slowly. He barely took his first step, filled with nervousness.
+Kang Dae-oh personally fastened Kang Yera’s seatbelt.
 
-The moment he stepped inside.
+“Thank you, Dad.”
 
-Kang Dae-oh felt an emotion difficult to express in words.
+“You’re welcome. It’s your first day. Aren’t you nervous?”
 
-His first impression was roughly this:
+“Not at all.”
 
-“She’s very… small. Oh my goodness.”
+“Right. Of course not.”
 
-He couldn't help but wonder, 'How can a person be this small?'
+For Kang Yera, who had made a living by singing and dancing in front of strangers, being nervous just for going to kindergarten was nonsense.
 
-*Kkomjirak, Kkomjirak.* (Wriggle, Wriggle)
+He had newly entered the address of the kindergarten Kang Yera would attend into the navigation system.
 
-A small baby girl with skin that hadn't completely lost its reddish tint was actively moving.
+Since it was a place they would be going back and forth to for the next few years, he didn’t forget to add it to his favorites.
 
-In the middle of that, the baby made eye contact with Kang Dae-oh.
+“Then, let’s go.”
 
-At that sight, the nurse exclaimed ‘Omo’ and said.
+“Okay.”
 
-“How amazing. It seems like the baby recognizes her dad.”
+Kang Dae-oh skillfully turned the steering wheel.
 
-“As far as I know, I remember that newborn babies can’t see yet…”
+On the way to kindergarten, Kang Yera asked her dad.
 
-“Perhaps she instinctively recognized that her dad was here? When I saw her in the operating room earlier, her crying was also very short. She was incredibly mature for a newborn.”
+“But Dad. Is it better to keep us a secret from Mom?”
+
+“Probably? As you know, your mom isn’t the strongest mentally. And if something outside her common sense happens right in front of her, she’ll panic. There’s that. And also......”
+
+In fact, there was one thing Kang Dae-oh was most worried about.
+
+“If she finds out you came from the future, I worry if she’ll be able to raise you like normal.”
+
+Because even though they look like young children, they are adults inside.
+
+Min Seung-yeon would be very confused about how to raise the children.
+
+It was clear that this confusion would act as another source of stress for Min Seung-yeon.
+
+This was the biggest reason Kang Dae-oh continued to insist on keeping it a secret from Min Seung-yeon.
+
+“And anyway, if something big is going to happen, you can just tell me. It’s one thing when you were infants, but now you can walk and talk yourselves, so there’s no problem telling your dad directly, is there?”
+
+“That’s true. But are you okay, Dad?”
+
+“Me?”
+
+“Yes. You said earlier that the confusion caused by us could become another source of stress. So I was wondering how you’d be.”
+
+Kang Dae-oh, who had stopped the car temporarily for a traffic light, smiled faintly.
+
+“Do you know what Dad’s hobby is?”
+
+“Isn’t it making coffee? That’s why you run a cafe.”
+
+“Besides that. Actually, I have one more hobby.”
+
+Kang Dae-oh took out his smartphone and showed her the main homepage of a certain platform.
+
+It was a web novel serialization platform.
+
+“I sometimes read web novels whenever I think of it. So I’m familiar with reincarnation, regression, and possession.”
+
+Although he never thought it would actually happen to his own daughters.
+
+Still, compared to Min Seung-yeon, he was able to accept this abnormal situation more flexibly.
+
+Kang Yera spoke with a slightly shocked expression.
+
+“I didn’t know. That Dad reads web novels.”
 
 “Really?”
 
-“Yes. She even smiled brightly at the doctor. They said it was amazing because she was already making 'baenaetjit' (newborn facial expressions).”
+“Yes. Even though I lived with Dad, there’s a lot I don’t know about him.”
 
-Kang Dae-oh recalled the times he went in and out of the obstetrics and gynecology clinic with his wife.
+Kang Dae-oh gave a wry smile.
 
-Every time they had a regular check-up, the doctor said something in common.
+“It’s the same for me when it comes to you two. But don’t worry too much. You can get to know me slowly from now on. Right?”
 
-That she was a somehow mysterious baby.
+Kang Yera nodded her small head.
 
-Every time they tried to see her face through an ultrasound, she would deliberately turn her body to an angle where her face was clearly visible, as if she knew she was being photographed.
-
-And sometimes, she would move her hands and feet from side to side, appearing to greet her parents and the doctor outside.
-
-How should I put it.
-
-It was as if she was already conscious of being a newborn.
-
-“I’ve worked at an obstetrics and gynecology hospital for nearly 15 years. This is the first time I’ve seen such a quiet and mature baby. I think she’ll become a great person later?”
-
-“I hope so.”
-
-The nurse extended her hand towards the baby.
-
-She confirmed that all fingers and toes were present, five each, and meticulously showed whether there were any special problems.
-
-In response to the nurse's touch, the baby also made movements as if cooperating.
-
-“Omo-omo! Look at this. Have you ever seen a baby this cooperative?”
-
-“Of course not. This is my first time even seeing a newborn baby.”
-
-“Right, you would be. I’m sorry. Hoho!”
-
-The nurse pointed to Kang Dae-oh’s pants pocket and said.
-
-“Sir. If you want to take pictures and videos, you can.”
-
-“Ah, I understand.”
-
-Pictures and videos. Kang Dae-oh, who belatedly realized he had forgotten something very important, hastily pulled out his smartphone.
-
-So that the baby’s face would be clearly visible. He raised the smartphone sideways to adjust the angle.
-
-At that moment.
-
-“Aeaeng!”
-
-The baby suddenly made a very short, cry-like sound.
-
-Rather than crying, it felt more like she was telling her dad, 'Not that!'
-
-The baby shook her head and then turned her head to the left.
-
-‘Does she want me to take it from that side?’
-
-As Kang Dae-oh tilted his head, the nurse observed the baby’s actions and shared her own thoughts.
-
-“It seems like a signal asking you to take the picture so her right side of the face is front and center. It definitely looks prettier that way.”
-
-The more he observed the baby’s actions, the more amazing it was.
-
-Just in case, Kang Dae-oh deliberately tried to take a picture of the baby’s left side of the face.
-
-However.
-
-“Eung-ae!”
-
-The baby cried out once more.
-
-The nurse smiled and said to Kang Dae-oh.
-
-“If you tease her too much, the baby might get angry.”
-
-Nodding, Kang Dae-oh eventually took the picture at the angle his young daughter wanted.
-
-*Chalkak, Chalkak.* (Click, Click)
-
-Watching his daughter pose for the photo shoot, maintaining a relaxed expression as if she were a child model, Kang Dae-oh had countless thoughts.
-
-‘Should I make her an entertainer?’
-
-He already felt like she had potential.
+The car, which had stopped for a moment, started moving again.
 
 ***
 
-Kang Dae-oh, who had moved from the hospital room to the post-natal care center, unpacked his bags as soon as he arrived at the assigned room with his wife, Min Seung-yeon.
+Upon arriving at the kindergarten, teachers came out to greet the children.
 
-“Are you feeling okay?”
+“Hello. I’m Kang Yera’s dad.”
 
-Min Seung-yeon nodded heavily and replied that she could manage.
+“Oh my! Yera is here! She’s even prettier in person, isn’t she?”
 
-She was more curious about the baby than her own physical condition.
+Kang Dae-oh knew very well why the kindergarten teacher was talking about Kang Yera in person.
 
-“Honey. You checked where the nursery is, right?”
+Previously, when more than 20 children collectively burst into tears at the pediatrician’s office, Kang Yera had personally sung children's songs and performed actions to soothe them.
 
-“Yeah. If you go out and turn right, there’s a hallway. If you walk straight along it, you’ll find the central staircase of the post-natal care center. The nursery is there. They said they’ll tell us everything later with the feeding calls and stuff.”
+The video from that time was uploaded to YouTube and became a big hit, reaching 700,000 views.
 
-Min Seung-yeon, who had settled on the bed, swept her disheveled hair back and said.
+Perhaps that’s why.
 
-“I want to see our daughter soon.”
+Not only the kindergarten teacher but also some parents of other children seemed to recognize who Kang Yera was.
 
-“You just saw her earlier.”
+“She’s that child who sang at the hospital, right?”
 
-“Isn’t it a mother’s heart to want to keep seeing her?”
+“Oh my, that’s right, it is!”
 
-“Of course it is.”
+“How can she be so cute and pretty?”
 
-Kang Dae-oh also frequently went in and out of the nursery while staying at the hospital, watching over his wife.
+“I heard she used to be a diaper model too.”
 
-Every time visiting hours were allowed, he busily went back and forth to see his daughter.
+Whispers could be heard from all over.
 
-Min Seung-yeon sometimes went with him, but perhaps due to the after-effects of the surgery, her movement was still difficult, so the reality was that she hadn't seen much of the baby.
+Amidst the outpouring of people’s attention, Kang Yera gave an awkward smile.
 
-Perhaps that's why. She wanted to see their child quickly.
+Meanwhile, Kang Dae-oh felt quite good, perhaps because his daughter was being praised as pretty by people.
 
-Just then, the director of the post-natal care center came to the couple's room.
+“Our daughter, shouldn’t she debut on YouTube?”
 
-She quickly began explaining to the two of them what they needed to know while staying there.
+Just then, the kindergarten teacher clapped her hands once and spoke.
 
-The main points were, of course, about the baby.
+As if she had been waiting for Kang Dae-oh to say this.
 
-“A helper will come and teach you various things, from how to bathe the baby, change diapers, burp them, and so on. At that time, you can film it or take separate notes and follow them when you go home. Or, we have a separate post-natal care center channel, so you can subscribe there and watch the videos.”
+“Actually, our kindergarten runs its own YouTube channel. We edit and upload videos of the babies. If there’s an opportunity, could Yera also have a video uploaded like that?”
 
-“Um…”
+“If Yera says it’s okay.”
 
-Min Seung-yeon cautiously asked her.
+Children are not their parents’ property.
 
-“When can we see the baby?”
+Whatever he decided to pursue, Kang Dae-oh always wanted to ask for his daughters’ opinions and make decisions.
 
-“You can see her anytime.”
+This was Kang Dae-oh’s parenting philosophy.
 
-“What? At the hospital, visiting hours were set separately.”
+“Then, with the teachers and your friends. Have fun and come back. Okay?”
 
-“There’s nothing like that at the post-natal care center. If you, mother, want to see her, you can come anytime. You can also bring the baby directly to this room.”
+“Yes, Dad.”
 
-“R-really?”
+Kang Yera faithfully answered Kang Dae-oh’s words.
 
-Min Seung-yeon’s eyes began to sparkle.
+At her sharp and clear demeanor, the kindergarten teacher looked at Kang Yera with eyes full of wonder.
 
-As if she understood Min Seung-yeon’s true feelings, the director smiled gently and said.
+Most of the children who, like Kang Yera, would start kindergarten today were clinging to their moms and dads who were leaving them, crying loudly.
 
-“It’s nursery cleaning time right now. Would you like to come pick up the baby? From 10 AM to 11 AM, cleaning time is fixed, so during this time, babies are unconditionally taken to their respective rooms.”
+However, Kang Yera was calmly saying goodbye to her dad. From the teacher’s perspective, it would naturally be surprising.
 
-“I-I’ll bring her! Honey, let’s go quickly!”
+Kang Dae-oh, who had first dropped Kang Yera off at kindergarten, got back into his car to go to work at the cafe afterward.
 
-Since they had heard all the basic explanations.
+‘Yera will do well at anything. I’m not worried about her......’
 
-They wanted to go see the baby quickly.
+A wry smile appeared on Kang Dae-oh’s face as he changed the navigation’s destination from the kindergarten to the cafe.
 
-Following his wife’s wishes, Kang Dae-oh also moved his steps.
+‘I’m the problem.’
 
-As they got closer to the nursery, the sound of babies crying also grew louder.
+The time had come for the dad to do well, more so than his daughter.
 
-The fifteen babies in the nursery were loudly crying, crying, and crying again.
+***
 
-No, not all of them were crying.
+On the day it had been a week since Kang Yera started attending kindergarten.
 
-Only one.
+Kang Dae-oh, who had now become accustomed to taking his eldest daughter to kindergarten as part of his daily routine, opened the cafe at the usual time today without change.
 
-Kang Dae-oh and Min Seung-yeon’s baby was lying down, yawning lazily.
+Although there was a slight change in the cafe’s opening hours due to the kindergarten drop-off, it wasn’t enough to significantly affect sales.
 
-With an expression that seemed to say, 'Ah, it’s noisy.'
+This was because there was only one customer who rushed to Kang Dae-oh’s cafe as soon as they woke up.
 
-Just then, the helpers were looking at the couple’s daughter with curiosity.
+It was the owner of the laundry shop located right across the street.
 
-“This baby isn’t even crying, she’s so admirable.”
+“Since Kang-sajang’s cafe opening time got later, from some point on, waiting at the laundry shop, wondering ‘When will Kang-sajang arrive?’, became my daily routine.”
 
-“I know, right. Usually, when a baby next to them cries, they tend to cry along.”
+“I’m sorry, sajang-nim.”
 
-Kang Dae-oh and Min Seung-yeon’s daughter was receiving all the attention from adults not only in the hospital nursery but also at the post-natal care center.
+“No, there’s nothing to be sorry about. Anyway, I just spend my time doing laundry here. While I’m organizing customers’ laundry, before I know it, Kang-sajang starts operating the cafe. Then I just come over here at that time.”
 
-At Min Seung-yeon’s words that she had come to pick up the baby, the helper moved.
+To that extent, the laundry shop owner couldn't give up the coffee Kang Dae-oh provided.
 
-A moment later.
+It was also the closest cafe in terms of distance.
 
-Finally, the baby was held in Min Seung-yeon’s arms.
+And Kang Dae-oh’s coffee-making skills were considerable.
 
-“Chukbok-ah. It’s mommy, mommy.”
+In fact, the laundry shop owner even wondered why Kang Dae-oh’s cafe hadn’t achieved great success yet.
 
-The helper asked Min Seung-yeon and Kang Dae-oh.
+Thanks to the laundry shop owner, who always spoke highly of him, Kang Dae-oh’s self-esteem was able to rise another notch today.
 
-“Is the baby’s name Chukbok?”
+“I should offer sajang-nim a service today. Do you like sweets, by any chance? I’ll pack some matcha cookies for you too. They’re good with americano.”
 
-Kang Dae-oh shook his head.
+There’s probably no one who dislikes free service.
 
-“It’s not her name, it’s her taemyeong (prenatal nickname).”
+The laundry shop owner praised Kang Dae-oh’s knack for knowing exactly how to make regulars.
 
-“I see. So you haven’t decided on the baby’s name yet?”
+Kang Dae-oh stood up to prepare the drinks.
 
-“We have candidates, but nothing is definitively decided. We’re going to register her birth at the end of this month. We’ll have to name her before then.”
+It was then.
 
-There wasn’t a name that truly resonated with them yet.
+Kang Yera’s singing voice flowed from his smartphone, which he had left unattended for a moment.
 
-The couple returned to their room, holding Chukbok.
+“Kang-sajang. That video, isn’t it the one that’s online?”
 
-The moment they were about to lay their daughter down in the baby bed.
+“Yes, that’s right. I had paused it while watching for a bit, but it seems to have unpaused.”
 
-“Eung-ae-ae!!!”
+His daughter looked so cute in it that it became one of his treasured videos he watched whenever he was tired or stressed from work.
 
-As if a back sensor had suddenly activated, Chukbok’s cry echoed.
+Kang Dae-oh personally left a comment on this YouTube video.
 
-The couple was greatly flustered for a moment.
+Hello. I am the father of the child in the video. I would be grateful if you could look kindly upon our daughter. Something like that.
 
-Because it was incomprehensible that the baby, who had been quiet in the nursery, suddenly burst into tears upon coming to their room.
+The person who uploaded the YouTube video pinned Kang Dae-oh’s comment so that it would be clearly visible to people.
 
-“I-is it because of her diaper? Or is she hungry?”
+Thanks to this, Kang Dae-oh’s comment received thousands of likes, and many replies expressing envy for having such a cute daughter were being posted.
 
-First-time mother Min Seung-yeon was on the verge of a mental breakdown at her daughter’s unfamiliar crying.
+Today, too, there was a new reply to Kang Dae-oh’s comment.
 
-At that moment.
+Kang Dae-oh, who had pressed the pause button, stopped what he was doing for a moment and checked the most recent reply.
 
-Kang Dae-oh turned his head in the direction the baby was looking.
+For a moment, Kang Dae-oh doubted his eyes.
 
-They had turned on the TV before bringing the baby in.
+“......Huh?”
 
-Just then, a music video from a famous idol group was playing.
+“Kang-sajang. Why? Was there a bad comment?”
 
-If the baby was laid in the baby bed, the TV screen would be out of sight.
+The laundry shop owner asked, showing concern.
 
-‘Surely not.’
+One of the downsides of the internet is anonymity.
 
-Just in case, Kang Dae-oh took the baby from Min Seung-yeon and laid her down at an angle where the TV screen was clearly visible.
+This makes it too easy to post malicious comments.
 
-Then.
+The laundry shop owner wondered if Kang Dae-oh was reacting that way because of a malicious comment.
 
-“……”
+Fortunately, that wasn’t it.
 
-It became as quiet as a mouse.
+Instead, the reply contained surprising content in a different sense.
 
-Min Seung-yeon tilted her head with an expression of incomprehension.
+“A proposal came for Yera to...... sing an anime theme song.”
 
-“Can she see the TV already? She shouldn’t be able to yet.”
+“What? R-really?”
 
-“Maybe she’s recognizing it by the direction of the sound.”
+The laundry shop owner was also greatly surprised.
 
-Watching Chukbok move her lips, wiggling them as if following the idol group’s song, Kang Dae-oh’s mind became complicated.
+Among children’s anime theme songs that kids watch, it’s common for children of a similar age to sing the title song.
 
-It looked as if she was singing along to a song she knew.
+There were many songs like this in the cartoons Kang Dae-oh watched when he was young.
 
-“Honey.”
+However, Kang Dae-oh had one concern.
 
-“Yes, what is it?”
+It was because he wondered if this offer was real or not.
 
-“It might just be my imagination, but…”
+There was no way to confirm if the person who introduced themselves as a music producer belonging to a certain company was real.
 
-From the moment he first met the baby until now.
+‘No, wait. I can confirm it.’
 
-Kang Dae-oh felt a strange sense of incongruity.
+He could ask Kang Yera right away, but she was busy making new friends at kindergarten.
 
-“Don’t misunderstand what I’m about to say.”
+In that case.
 
-“What is it?”
+“Hello. Are you home right now?”
 
-“Our baby…”
+Kang Dae-oh called Min Seung-yeon.
 
-Kang Dae-oh carefully began to speak.
+If there was no way to confirm with Kang Yera directly.
 
-“Doesn’t she seem a little… suspicious?”
+There was another alternative.
+
+“Excuse me, could you put Yebin on the phone? Right now.”
+
+He could ask the other regressor.
 
 
 ----

@@ -1,338 +1,353 @@
 ---
 title: odwr 23
-date: 2025-05-28 20:54:40
+date: 2025-05-28 21:05:10
 tags:
 ---
 
-# Episode 1. The Eldest Daughter is Suspicious (1)
 
-If you ask what the biggest problem in South Korea is, nine out of ten people would probably answer this way.
+Episode 7. The Second Child is Even More Suspicious (2)
 
-The exponential decline in birth rate.
+After finishing the first visitation with their second daughter, Kang Dae-oh, who returned to the hospital room, explained various things he had been additionally informed about at the hospital.
 
-Kang Dae-oh had always thought it was amazing to have a child at a time when even getting married was difficult.
+“They said meals start from tomorrow. Even if you're hungry, just bear with it for today.”
 
-But surely not.
+From Min Seung-yeon's mouth, a heavy sigh escaped.
 
-Kang Dae-oh himself never expected that he would be the protagonist who did both of those things.
+“I guess I'll be eating seaweed soup again for a while.”
 
-“Is Min Seung-yeon’s guardian here?”
+After childbirth, the soup mothers eat is almost fixed as seaweed soup for a while.
 
-“Yes, yes!”
+Not only in the hospital but also in postpartum care centers, the only soup given to mothers is seaweed soup.
 
-It seemed like less than 20 minutes had passed since his heavily pregnant wife went into the operating room.
+Due to milk expression, spicy and salty foods must also be avoided for a while.
 
-His name was already being called.
+“Still, it seems like my breast milk is already trying to come out, perhaps because I've given birth once before.”
 
-The nurse waiting at the entrance of the nursery smiled brightly and said to Kang Dae-oh.
+“Didn't you struggle quite a bit back then because your breast milk didn't come out?”
 
-“Congratulations. It’s a beautiful princess, isn’t it?”
+“That's right. How did you manage to remember that?”
 
-“Already…? Is the surgery over?”
+“It's because the image of you wanting to feed Yera a lot of your milk, but getting upset because the amount was less than you expected, is still vividly etched in my mind.”
 
-“Yes.”
+Even then, Kang Dae-oh told Min Seung-yeon it was okay, that formula milk is good these days, so there's no need to cling to breast milk too much, and offered words of comfort multiple times.
 
-“It finished incredibly quickly. In dramas, it seems to take a long time.”
+Nevertheless, Min Seung-yeon still had lingering regrets.
 
-“Induced labor can take 10, 12 hours. But C-sections finish quickly. It only takes about 10 minutes.”
+“They say that if you're breastfed as a child, you become smarter.”
 
-“Ah… I see.”
+“You don't need to worry about that. There won't be a baby as smart as our Yera, anyway.”
 
-The nurse opened the nursery entrance door and gestured for Kang Dae-oh to come inside.
+Despite not even being 3 years old yet, Kang Yera already possessed all the knowledge adults would know.
 
-“Come and see the baby.”
+She just didn't overtly show it in front of her mother.
 
-“Ah, I understand.”
+Only the father, who knew his eldest daughter's secret, could say with conviction, 'Everything will be fine.'
 
-Late, a wave of tension washed over him.
+“What did Yera say after seeing her younger sibling?”
 
-There would be no parent who wouldn't tremble at the moment of meeting their child for the first time.
+“She said she's pretty and cute.”
 
-With a tense face, slowly, slowly. He barely took his first step, filled with nervousness.
+“Wasn't she incredibly happy about having a younger sibling?”
 
-The moment he stepped inside.
+“She was h-happy. Probably.”
 
-Kang Dae-oh felt an emotion difficult to express in words.
+Kang Dae-oh recalled the conversation he had during the phone call.
 
-His first impression was roughly this:
+When he said that the 'younger sibling assistant operation' might be difficult, Kang Yera initially reacted as if she didn't understand what her father was saying.
 
-“She’s very… small. Oh my goodness.”
+So Kang Dae-oh directly told Kang Yera this:
 
-He couldn't help but wonder, 'How can a person be this small?'
+that the second child also showed reactions similar to when she was first born into the world.
 
-*Kkomjirak, Kkomjirak.* (Wriggle, Wriggle)
+Nevertheless, Kang Yera maintained a 'no way' attitude.
 
-A small baby girl with skin that hadn't completely lost its reddish tint was actively moving.
+Although she herself was a regressor, for someone other than herself—and what's more, for a family member, her own younger sibling, to also have grasped the same opportunity for regression as Kang Yera—was practically impossible.
 
-In the middle of that, the baby made eye contact with Kang Dae-oh.
+If you think about it, Kang Yera's very existence was difficult to explain in the first place.
 
-At that sight, the nurse exclaimed ‘Omo’ and said.
+Even if such a thing happened only once, it would be extraordinary.
 
-“How amazing. It seems like the baby recognizes her dad.”
+For it to happen twice?
 
-“As far as I know, I remember that newborn babies can’t see yet…”
+And even more, for them to be family?
 
-“Perhaps she instinctively recognized that her dad was here? When I saw her in the operating room earlier, her crying was also very short. She was incredibly mature for a newborn.”
+‘It's an impossible thing, indeed.’
 
-“Really?”
+Kang Dae-oh himself, even after saying it, found it hard to believe honestly.
 
-“Yes. She even smiled brightly at the doctor. They said it was amazing because she was already making 'baenaetjit' (newborn facial expressions).”
+However, in a corner of his mind, the seeds of doubt kept sprouting.
 
-Kang Dae-oh recalled the times he went in and out of the obstetrics and gynecology clinic with his wife.
+So, in the end, Kang Yera decided to take drastic measures.
 
-Every time they had a regular check-up, the doctor said something in common.
+Just before she ended the call with Kang Dae-oh, she brought up this:
 
-That she was a somehow mysterious baby.
+‘Alright. Then I'll go and check it myself...’ she said.
 
-Every time they tried to see her face through an ultrasound, she would deliberately turn her body to an angle where her face was clearly visible, as if she knew she was being photographed.
+Because a regressor might be able to immediately recognize another regressor. That's why Kang Dae-oh agreed with Kang Yera's method.
 
-And sometimes, she would move her hands and feet from side to side, appearing to greet her parents and the doctor outside.
+Anyway, she was planning to come visit the hospital in person once.
 
-How should I put it.
+Killing two birds with one stone, to see if what Kang Dae-oh was suspecting was true or not. If Kang Yera was brought along to verify it thoroughly, the uneasiness would also disappear.
 
-It was as if she was already conscious of being a newborn.
+It was beneficial in many ways.
 
-“I’ve worked at an obstetrics and gynecology hospital for nearly 15 years. This is the first time I’ve seen such a quiet and mature baby. I think she’ll become a great person later?”
+After the call, Kang Dae-oh earnestly requested his father to definitely bring Yera when he came to visit the hospital later.
 
-“I hope so.”
+This was the entire content of the phone call Kang Dae-oh had in the visitation room.
 
-The nurse extended her hand towards the baby.
+However, the conversation he had alone with Kang Yera could not possibly be told to Min Seung-yeon.
 
-She confirmed that all fingers and toes were present, five each, and meticulously showed whether there were any special problems.
+So he omitted only this part and told the story.
 
-In response to the nurse's touch, the baby also made movements as if cooperating.
+“Father said he'd stop by the hospital the day after tomorrow.”
 
-“Omo-omo! Look at this. Have you ever seen a baby this cooperative?”
+“The day after tomorrow... I hope by then I'll have no trouble standing up and walking.”
 
-“Of course not. This is my first time even seeing a newborn baby.”
+“The doctor came earlier and said your recovery speed is very fast, so wouldn't you be able to walk without difficulty on that day, if possible? You, too, walked immediately after two days when you gave birth to Yera.”
 
-“Right, you would be. I’m sorry. Hoho!”
+A deep emotion settled on Min Seung-yeon's face as she looked at Kang Dae-oh.
 
-The nurse pointed to Kang Dae-oh’s pants pocket and said.
+“What is this? You remember even such small details?”
 
-“Sir. If you want to take pictures and videos, you can.”
+“Of course I have to remember. Of course.”
 
-“Ah, I understand.”
+In fact, it would be more accurate to say that it was imprinted on his memory.
 
-Pictures and videos. Kang Dae-oh, who belatedly realized he had forgotten something very important, hastily pulled out his smartphone.
+Because his wife had difficulty moving, and Kang Dae-oh became her hands and feet, the days he moved frantically were unforgettable in his mind.
 
-So that the baby’s face would be clearly visible. He raised the smartphone sideways to adjust the angle.
+So he sincerely wished for his wife to recover as quickly as possible, even a day sooner, and to recover enough to at least go to the restroom by herself.
 
-At that moment.
+That's why the hardships of that day were remembered hour by hour.
 
-“Aeaeng!”
+Although this was his second experience.
 
-The baby suddenly made a very short, cry-like sound.
+Nevertheless, Kang Dae-oh wore a deeply troubled expression.
 
-Rather than crying, it felt more like she was telling her dad, 'Not that!'
+And for good reason.
 
-The baby shook her head and then turned her head to the left.
+‘If Yera's words are true, she said the second one wasn't the last.’
 
-‘Does she want me to take it from that side?’
-
-As Kang Dae-oh tilted his head, the nurse observed the baby’s actions and shared her own thoughts.
-
-“It seems like a signal asking you to take the picture so her right side of the face is front and center. It definitely looks prettier that way.”
-
-The more he observed the baby’s actions, the more amazing it was.
-
-Just in case, Kang Dae-oh deliberately tried to take a picture of the baby’s left side of the face.
-
-However.
-
-“Eung-ae!”
-
-The baby cried out once more.
-
-The nurse smiled and said to Kang Dae-oh.
-
-“If you tease her too much, the baby might get angry.”
-
-Nodding, Kang Dae-oh eventually took the picture at the angle his young daughter wanted.
-
-*Chalkak, Chalkak.* (Click, Click)
-
-Watching his daughter pose for the photo shoot, maintaining a relaxed expression as if she were a child model, Kang Dae-oh had countless thoughts.
-
-‘Should I make her an entertainer?’
-
-He already felt like she had potential.
+There's still one more left.
 
 ***
 
-Kang Dae-oh, who had moved from the hospital room to the post-natal care center, unpacked his bags as soon as he arrived at the assigned room with his wife, Min Seung-yeon.
+The day before moving to the postpartum care center.
 
-“Are you feeling okay?”
+Kang Dae-oh and Min Seung-yeon visited the nursery again.
 
-Min Seung-yeon nodded heavily and replied that she could manage.
+When there were about 10 minutes left until visitation time.
 
-She was more curious about the baby than her own physical condition.
+As the elevator doors opened, a very familiar group greeted the couple with bright smiles and greetings.
 
-“Honey. You checked where the nursery is, right?”
+Kang Dae-oh's father and mother.
 
-“Yeah. If you go out and turn right, there’s a hallway. If you walk straight along it, you’ll find the central staircase of the post-natal care center. The nursery is there. They said they’ll tell us everything later with the feeding calls and stuff.”
+And their daughter, Kang Yera.
 
-Min Seung-yeon, who had settled on the bed, swept her disheveled hair back and said.
+“My daughter-in-law! You've worked so hard!”
 
-“I want to see our daughter soon.”
+“You worked so hard giving birth to the second child.”
 
-“You just saw her earlier.”
+“Thank you, abeonim. eomeonim.”
 
-“Isn’t it a mother’s heart to want to keep seeing her?”
+Not to be outdone by her grandfather and grandmother, Kang Yera also looked up at her mother and comforted Min Seung-yeon.
 
-“Of course it is.”
+“Mom, were you very sick? Are you okay?”
 
-Kang Dae-oh also frequently went in and out of the nursery while staying at the hospital, watching over his wife.
+“Yes. I'm okay now. Because our Yera's younger sibling was so calm and well-behaved, Mom was quite comfortable this time.”
 
-Every time visiting hours were allowed, he busily went back and forth to see his daughter.
+“That's a relief.”
 
-Min Seung-yeon sometimes went with him, but perhaps due to the after-effects of the surgery, her movement was still difficult, so the reality was that she hadn't seen much of the baby.
+Was she truly feeling relieved?
 
-Perhaps that's why. She wanted to see their child quickly.
+Kang Yera's purpose for coming here today was to 'discern' (?) her second daughter.
 
-Just then, the director of the post-natal care center came to the couple's room.
+The self-proclaimed regressor discriminator, what was Kang Yera's opinion?
 
-She quickly began explaining to the two of them what they needed to know while staying there.
+Kang Dae-oh was very curious about his eldest daughter's thoughts.
 
-The main points were, of course, about the baby.
+That's why this meeting was arranged.
 
-“A helper will come and teach you various things, from how to bathe the baby, change diapers, burp them, and so on. At that time, you can film it or take separate notes and follow them when you go home. Or, we have a separate post-natal care center channel, so you can subscribe there and watch the videos.”
+Kang Dae-oh, who checked the current time on his wristwatch, gestured for his family to come closer to the nursery's glass wall.
 
-“Um…”
+“The curtain will open soon.”
 
-Min Seung-yeon cautiously asked her.
+No sooner had Kang Dae-oh finished speaking than the blackout curtain was drawn back.
 
-“When can we see the baby?”
+Then, a nurse approached and gestured for Kang Dae-oh to show the certificate paper with the newborn's information.
 
-“You can see her anytime.”
+As Kang Dae-oh showed the certificate he had prepared in advance...
 
-“What? At the hospital, visiting hours were set separately.”
+Finally, the second daughter appeared before the family's eyes.
 
-“There’s nothing like that at the post-natal care center. If you, mother, want to see her, you can come anytime. You can also bring the baby directly to this room.”
+Fortunately, the couple's second daughter was awake with wide, bright eyes.
 
-“R-really?”
+If she had been sleeping, it would have significantly hindered Kang Yera's discernment.
 
-Min Seung-yeon’s eyes began to sparkle.
+So Kang Dae-oh considered it a huge stroke of luck that his second daughter was awake.
 
-As if she understood Min Seung-yeon’s true feelings, the director smiled gently and said.
+Meanwhile. Kang Dae-oh's father and mother couldn't take their eyes off the appearance of the second baby.
 
-“It’s nursery cleaning time right now. Would you like to come pick up the baby? From 10 AM to 11 AM, cleaning time is fixed, so during this time, babies are unconditionally taken to their respective rooms.”
+“She's a hundred, a thousand times prettier than when we saw her on video call, isn't she?”
 
-“I-I’ll bring her! Honey, let’s go quickly!”
+“Can she see us? It's like she's making eye contact with this grandmother... Oh, how cute! My goodness, she's already so admirable!”
 
-Since they had heard all the basic explanations.
+Amidst the outpouring of praise, only Kang Yera gazed at her younger sister with calm eyes.
 
-They wanted to go see the baby quickly.
+The moment her eyes met her older sister's.
 
-Following his wife’s wishes, Kang Dae-oh also moved his steps.
+The second daughter showed no special reaction.
 
-As they got closer to the nursery, the sound of babies crying also grew louder.
+She just waved her arms and legs, or yawned. These simple actions were all she did.
 
-The fifteen babies in the nursery were loudly crying, crying, and crying again.
+After closely observing her younger sibling's behavior for a while.
 
-No, not all of them were crying.
+Kang Yera whispered to Kang Dae-oh in a small voice and replied like this:
 
-Only one.
+“I think you misunderstood, Dad. To me, she just seems like a normal baby.”
 
-Kang Dae-oh and Min Seung-yeon’s baby was lying down, yawning lazily.
+“I-Is that so?”
 
-With an expression that seemed to say, 'Ah, it’s noisy.'
+“Yes.”
 
-Just then, the helpers were looking at the couple’s daughter with curiosity.
+Just as a professional recognizes another professional, someone who has experienced regression once knows it better.
 
-“This baby isn’t even crying, she’s so admirable.”
+That's why he had asked Kang Yera for 'discernment' (?).
 
-“I know, right. Usually, when a baby next to them cries, they tend to cry along.”
+The conclusion she reached was 'no'.
 
-Kang Dae-oh and Min Seung-yeon’s daughter was receiving all the attention from adults not only in the hospital nursery but also at the post-natal care center.
+“Perhaps it's just a coincidence?”
 
-At Min Seung-yeon’s words that she had come to pick up the baby, the helper moved.
+Coincidence. It could very well be.
 
-A moment later.
+But, how should I put it?
 
-Finally, the baby was held in Min Seung-yeon’s arms.
+Kang Dae-oh, who had personally witnessed his second daughter's gestures, felt it was more like destiny than coincidence.
 
-“Chukbok-ah. It’s mommy, mommy.”
+At this moment, Min Seung-yeon lightly tapped Kang Dae-oh's shoulder and asked.
 
-The helper asked Min Seung-yeon and Kang Dae-oh.
+“What are you talking about with Yera?”
 
-“Is the baby’s name Chukbok?”
+“Oh, just... we were talking about various things, like what parts of her younger sibling are pretty and how.”
 
-Kang Dae-oh shook his head.
+When the topic of the second daughter came up, Kang Dae-oh's parents, with expressions suggesting they had something they wanted to ask, spoke to their son.
 
-“It’s not her name, it’s her taemyeong (prenatal nickname).”
+“Now that you mention it, what name did you decide for the second child?”
 
-“I see. So you haven’t decided on the baby’s name yet?”
+“Didn't you say you had a name in mind last time?”
 
-“We have candidates, but nothing is definitively decided. We’re going to register her birth at the end of this month. We’ll have to name her before then.”
+Kang Dae-oh and Kang Yera exchanged a brief glance.
 
-There wasn’t a name that truly resonated with them yet.
+Then, nodding deeply, he replied as follows:
 
-The couple returned to their room, holding Chukbok.
+“Yes. We plan to name her Kang Yebin.”
 
-The moment they were about to lay their daughter down in the baby bed.
+Kang Yebin.
 
-“Eung-ae-ae!!!”
+The same name as her younger sibling who existed before Kang Yera regressed.
 
-As if a back sensor had suddenly activated, Chukbok’s cry echoed.
+***
 
-The couple was greatly flustered for a moment.
+After the family had left.
 
-Because it was incomprehensible that the baby, who had been quiet in the nursery, suddenly burst into tears upon coming to their room.
+Another day passed, and Kang Dae-oh and Min Seung-yeon went through the discharge procedures and headed to the nursery, which had become the next most familiar place after their hospital room.
 
-“I-is it because of her diaper? Or is she hungry?”
+A nurse came out and handed over their deeply sleeping second daughter, Kang Yebin, to the couple.
 
-First-time mother Min Seung-yeon was on the verge of a mental breakdown at her daughter’s unfamiliar crying.
+“I'll take your first family photo. Alright, one, two~”
 
-At that moment.
+Click!
 
-Kang Dae-oh turned his head in the direction the baby was looking.
+Was she startled by the shutter sound? Kang Yebin, who had been deeply asleep, slowly opened her eyes.
 
-They had turned on the TV before bringing the baby in.
+Min Seung-yeon smiled gently and welcomed her daughter's early awakening.
 
-Just then, a music video from a famous idol group was playing.
+“Baby. Are you awake?”
 
-If the baby was laid in the baby bed, the TV screen would be out of sight.
+While the second child made eye contact with her mother and shared mother-daughter affection.
 
-‘Surely not.’
+Kang Dae-oh, to perform his role as a porter, pulled the carrier and got on the elevator.
 
-Just in case, Kang Dae-oh took the baby from Min Seung-yeon and laid her down at an angle where the TV screen was clearly visible.
+The fact that the postpartum care center was located on the upper floor of the hospital, meaning there was no need to go far, was a big advantage.
 
-Then.
+Moreover, if anything happened, they could just come down to the floor below and get medical attention.
 
-“……”
+That's why the couple decided to rely on this obstetrics and gynecology department again when giving birth to Kang Yebin, following Kang Yera.
 
-It became as quiet as a mouse.
+‘On the other hand, the postpartum care center fee is a bit expensive.’
 
-Min Seung-yeon tilted her head with an expression of incomprehension.
+Even so, Kang Dae-oh didn't care much.
 
-“Can she see the TV already? She shouldn’t be able to yet.”
+Because more than money, the comfort of the mother and daughter was the priority.
 
-“Maybe she’s recognizing it by the direction of the sound.”
+After temporarily leaving Kang Yebin in the nursery.
 
-Watching Chukbok move her lips, wiggling them as if following the idol group’s song, Kang Dae-oh’s mind became complicated.
+Kang Dae-oh, as before, headed to the room where they would stay, along with Min Seung-yeon.
 
-It looked as if she was singing along to a song she knew.
+As soon as they arrived at the room, Min Seung-yeon let out a short exclamation.
 
-“Honey.”
+“Oh my! Honey. This room, it seems like the same one I used when I gave birth to Yera?”
 
-“Yes, what is it?”
+“It really is?”
 
-“It might just be my imagination, but…”
+No wonder. It felt familiar, and it turned out there was such a secret.
 
-From the moment he first met the baby until now.
+As they looked around with a sense of nostalgia.
 
-Kang Dae-oh felt a strange sense of incongruity.
+Knock knock.
 
-“Don’t misunderstand what I’m about to say.”
+With the sound of the knock, another memory visited where they were.
 
-“What is it?”
+“Oh! Hello! You're back again, aren't you?”
 
-“Our baby…”
+The director of the postpartum care center seemed to recognize them immediately, and expressed her delight with a broad smile.
 
-Kang Dae-oh carefully began to speak.
+“Since both of you are already experienced, it will be easy to explain.”
 
-“Doesn’t she seem a little… suspicious?”
+“But aren't there things that have changed in the meantime?”
+
+At Kang Dae-oh's question, the director shook her head.
+
+“It's the same, exactly the same. The feeding call system is also the same, and the mother-baby rooming-in time is unchanged. Oh, right. It's just about time to disinfect and clean the nursery. You can bring the baby over now.”
+
+Kang Dae-oh stood up from his seat and took the initiative to leave first.
+
+“I'll go get her. You listen to the director's explanation.”
+
+“Okay. Thank you.”
+
+Leaving the room, Kang Dae-oh, who headed to the nursery, joined the waiting line with other people.
+
+It wasn't long before it was Kang Dae-oh's turn.
+
+“Room 201... Yes, that's right. You can take the baby.”
+
+“Thank you.”
+
+Within a few minutes, Kang Dae-oh met Kang Yebin again.
+
+While slowly walking down the hallway.
+
+Kang Dae-oh looked at Kang Yebin, who had wide, sparkling eyes, and casually brought up a question he had harbored for days.
+
+“Yebin. Did you... perhaps regress?”
+
+Kang Dae-oh had just said it as a joke.
+
+If Kang Yebin were like any other baby, she wouldn't have understood Kang Dae-oh's words themselves.
+
+But.
+
+The baby's reaction deviated from Kang Dae-oh's expectations.
+
+Kang Yebin, who had been still for a long time, suddenly.
+
+Nod nod.
+
+She performed a head nod, indicating affirmation.
+
+Even after this, could it still truly be called a coincidence?
+
+Kang Dae-oh's mind became complicated.
 
 
 ----
