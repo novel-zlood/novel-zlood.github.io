@@ -48,9 +48,29 @@ date: 2024-08-05 11:10:54
 [Chapter 38](/odwr/odwr-38/)
 [Chapter 39](/odwr/odwr-39/)
 [Chapter 40](/odwr/odwr-40/)
+[Chapter 41](/odwr/odwr-41/)
+[Chapter 42](/odwr/odwr-42/)
+[Chapter 43](/odwr/odwr-43/)
+[Chapter 44](/odwr/odwr-44/)
+[Chapter 45](/odwr/odwr-45/)
+[Chapter 46](/odwr/odwr-46/)
+[Chapter 47](/odwr/odwr-47/)
+[Chapter 48](/odwr/odwr-48/)
+[Chapter 49](/odwr/odwr-49/)
+[Chapter 50](/odwr/odwr-50/)
+[Chapter 51](/odwr/odwr-51/)
+[Chapter 52](/odwr/odwr-52/)
+[Chapter 53](/odwr/odwr-53/)
+[Chapter 54](/odwr/odwr-54/)
+[Chapter 55](/odwr/odwr-55/)
+[Chapter 56](/odwr/odwr-56/)
+[Chapter 57](/odwr/odwr-57/)
+[Chapter 58](/odwr/odwr-58/)
+[Chapter 59](/odwr/odwr-59/)
+[Chapter 60](/odwr/odwr-60/)
 
-<!-- for i in {31..40}; do echo "[Chapter $i](/odwr/odwr-$i/)"; done -->
-<!-- for i in {31..40}; do hexo new odwr "odwr $i"; done -->
+<!-- for i in {51..60}; do echo "[Chapter $i](/odwr/odwr-$i/)"; done -->
+<!-- for i in {51..60}; do hexo new odwr "odwr $i"; done -->
 
 ----
 
