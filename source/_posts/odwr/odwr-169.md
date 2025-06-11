@@ -5,7 +5,7 @@ tags:
 ---
 
 
-# Episode 45. Row the Boat While the Water's High (1)
+# Episode 45. Strike While the Iron Is Hot (1)
 
 Time flowed.
 
